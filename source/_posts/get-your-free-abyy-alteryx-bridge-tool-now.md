@@ -1,7 +1,7 @@
 ---
 title: Get Your Free ABYY Alteryx Bridge Tool Now!
-date: 2024-08-20 20:44:35
-updated: 2024-08-22 10:15:25
+date: 2024-08-21T15:04:22.394Z
+updated: 2024-08-22T15:04:22.394Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/823f23c7edcedac53296943724a2a5d85768ba365fc03ece8dfb85ac34b0b238.jpg
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/823f23c7edcedac53296943724a2a5d85768ba365
 
 Bringing the power of Process Intelligence to the Alteryx Analytic Process Automation (APA) Platform™.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Timeline connector for Alteryx
 
 The ABBYY Connector for Alteryx delivers the integration between the ABBYY Timeline platform and the Alteryx APA PlatformTM. Alteryx data sources and assets can be accessed and leveraged by ABBYY Timeline to deliver insight into the data-driven processes resulting from advanced process analytics.

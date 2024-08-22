@@ -1,7 +1,7 @@
 ---
 title: Elevate Your Digital Campaigns Using the Power of Cookiebot
-date: 2024-08-21 23:54:38
-updated: 2024-08-22 10:26:52
+date: 2024-08-21T15:04:20.943Z
+updated: 2024-08-22T15:04:20.943Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/da588ad139882f359e01e1480116ed64f1f64c7e5500ad5bb32d29ff957df078.jpg
@@ -33,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/da588ad139882f359e01e1480116ed64f1f64c7e5
 
 多くの場合、テクノロジープロバイダーや企業は、文書を記録システムのデータ問題にしがち、このような仮定のしかたは、混乱や競争に対して脆弱性をもたらすものです。 文書には貴重なデータとコンテンツの両方が含まれています。ただし後者には熟練した読解力と文脈に基づいた解釈が必要であり、迅速な意思決定が求められます。 熟練したスタッフは、この明確な目的のために文書やコンテンツに接しています。なぜなら、データは、日々、貨物を動かしたり、材料やサービスを調達したりする重要な意思決定に必要な情報の一部を提供するだけだからです。 人工知能 （AI） は、経験とデータの間のミッシングリンクを埋めて、熟練した読解力を文書に加えることができますが、サプライチェーンはまだその可能性を認識しておらず、オペレーションを変革することができていません。
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## オペレーションにドキュメント「スキル」を加える
 
 もし、熟練した訓練を受けた経験豊富な人材が必要ないのであれば、「文書問題」は10年前に解決していたでしょう。しかし、現実には、コンテンツに関する意思決定、すなわち調達、出荷、受領に関する意思決定を行うために、これらのスキルと経験が頻繁に必要とされています。 ほとんどの場合、データ抽出は十分であり、90％以上のストレートスルー・プロセッシングが一般的に期待できるようになっています。 しかし、そのようなレベルの効率性を実現するためには、ツールに組み込まれたContent Intelligenceが必要であり、それ以外にも高度な意思決定スキルが必要です。
@@ -41,12 +44,20 @@ thumbnail: https://thmb.techidaily.com/da588ad139882f359e01e1480116ed64f1f64c7e5
 
 もはや、ドキュメントスキルの運用メリットを得るために、大きなキャプチャープラットフォームやフレームワークは必要ありません。 事前学習済みのコンテナ化されたドキュメント「スキル」（データだけでなく、文書に対して必要なアクションを理解する、事前に学習されたアクション）を持つAIの助けを借りれば、サプライチェーンはついに一般的なボトルネックを取り除き、輸送・物流から買掛金（AP）の支払い処理まで、あらゆるレベルのビジネスオペレーションが依存する文書主導のプロセスをコントロールできるようになります。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### 急速な変化に対応して輸送・物流業務を最適化したいとお考えですか？
 
 当社にはそのためのスキルがあります。
 
 [ABBYY MarketplaceにアクセスするENG](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## ABBYY Marketplaceのアプローチ方法
 
 [輸送・物流分野](https://tools.techidaily.com/abbyy/products/)では、スピードが顧客満足度と競争力の鍵となります。これこそが、まさに新しい[ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/)の背景にある考え方です。これは、企業文書を処理および理解するための初のデジタルマーケットプレイスであり、コンテンツスキル、コネクター、およびアセットを豊富に提供します。 トップレベルの荷主や物流業者、そして多くのクラウドベースの企業が、数分ですぐに使用できる、使いやすく設定可能でプラグイン可能な当社のプラットフォームを使って、ビジネスユーザーとシチズンディベロッパーに対し業界最高レベルの文書およびコンテンツ処理を提供しています。
@@ -59,8 +70,14 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Reginald J. Twigg
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

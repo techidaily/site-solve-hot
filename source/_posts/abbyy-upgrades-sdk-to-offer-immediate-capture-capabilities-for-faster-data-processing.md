@@ -1,7 +1,7 @@
 ---
 title: ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing
-date: 2024-08-19 13:43:43
-updated: 2024-08-22 10:24:42
+date: 2024-08-21T15:04:20.866Z
+updated: 2024-08-22T15:04:20.866Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c477119574c19e1fe1c1e24c760eca970cf6d9df63cc3bc93f37a86e27d2e105.png
@@ -67,3 +67,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->

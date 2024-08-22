@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Professional Perks: Why Joining ABBYY Is Your Smart Move"
-date: 2024-08-20 21:45:59
-updated: 2024-08-22 12:33:27
+date: 2024-08-21T15:04:20.447Z
+updated: 2024-08-22T15:04:20.447Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0e4e69a266c0e21cfaa72121cb274553aaa959ab8154e71b42e7a2317f1338de.png
@@ -103,34 +103,52 @@ There is richness in variety of our collective experiences, history, backgrounds
 
 As most successful businesses, we strive to build our product in a way such that we can differentiate it and better serve our customers; in order to do that, we need to be able to innovate – innovation is a function of challenge and non-linear thinking, which is in turn enabled by individuals who represent different perspectives. To hire and retain diverse talent, we need to offer an inclusive environment – a community where differences are celebrated, and where we can all feel like we belong. That’s our aspiration and vision for ABBYY.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Environmental and Social Responsibility
 
 At ABBYY, environmental and social responsibility initiatives have been of vital importance for a long time. Not only do our products help hundreds of clients around the world reduce inefficiencies and improve their resource management practices, but we have also developed our own host initiatives to promote sustainability and social responsibility.
 
 ![Checkmark](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_checkmark-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ##### A tree planted for every deal closed
 
 For each new customer deal, we donate a tree via One Tree Planted, planting over 2,000 trees in 2021.
 
 ![People_Employee](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_people_employee-1-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Paid time off, for a worthy cause
 
 Everyone gets two paid days annually to support causes they care about, contributing to over 40 causes last year.
 
 ![Mountain](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_mountain-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### On our path to becoming carbon-neutral
 
 Starting 2023, we measure our travel carbon footprint, investing in offset programs.
 
 ![Heart](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_heart-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ##### Our ABBYY Summer Challenge
 
 Annually, we host a global sports competition with charity donations for every kilometer our colleagues run, cycle, walk, or swim.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Learn more about ABBYY
 
 The leading AI-driven intelligent automation company

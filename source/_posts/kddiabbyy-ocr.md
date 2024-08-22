@@ -1,7 +1,7 @@
 ---
 title: "KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース"
-date: 2024-08-21 21:12:48
-updated: 2024-08-22 10:34:19
+date: 2024-08-21T15:04:21.023Z
+updated: 2024-08-22T15:04:21.023Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/00e1438c22966a36d893eecd9042143ec66d342044498e4db45f5bcf754631a6.jpg
@@ -63,3 +63,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->

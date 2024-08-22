@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Personalization: Enhance Your Website's User Experience"
-date: 2024-08-21 21:28:44
-updated: 2024-08-22 11:41:32
+date: 2024-08-21T15:04:21.891Z
+updated: 2024-08-22T15:04:21.891Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b1cba008df1c48de3d3ce1280dbcf873e7a62b2d4e310b5139d32185695685f2.jpg
@@ -20,18 +20,28 @@ expenses?
 
 Digital identity proofing and affirmation let you build a powerful fraud-prevention tool into your onboarding experience while also meeting users’ expectations for ease and efficiency. Find out how in our ebook **Onboarding: Balance customer expectations with fraud controls**, where you’ll also learn
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Download it now!
 
 * The difference between identity proofing and identity affirmation—and why you need both.
 * How these solutions help you optimize mobile experiences, which now account for 60% of website visits.
 * How using artificial intelligence for identity proofing enables faster, more cost-efficient onboarding processes with fewer mistakes.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read eBook](https://digital.abbyy.com/hubfs/documents/content/ebook-use-case-financial-services-onboarding-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

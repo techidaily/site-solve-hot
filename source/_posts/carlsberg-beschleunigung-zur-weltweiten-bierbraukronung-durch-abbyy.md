@@ -1,7 +1,7 @@
 ---
 title: "Carlsberg: Beschleunigung Zur Weltweiten Bierbraukrönung Durch ABBYY"
-date: 2024-08-21 17:51:50
-updated: 2024-08-22 10:53:31
+date: 2024-08-21T15:04:21.869Z
+updated: 2024-08-22T15:04:21.869Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b61684b0bd89a4b6e70d1ea8.jpg
@@ -89,6 +89,9 @@ Durch die Integration der ABBYY-IDP-Lösung in den Lieferschein-Scan-Prozess wir
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

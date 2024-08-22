@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Enabled Personalized Experiences
-date: 2024-08-21 11:18:38
-updated: 2024-08-22 12:15:47
+date: 2024-08-21T15:04:22.250Z
+updated: 2024-08-22T15:04:22.250Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/675815b145dcafd84fe359ee4ac52511e6c57ba8907f6c40cdafb2c11a8f5a83.jpg
@@ -136,6 +136,9 @@ FlexiCaptureは、オンプレミス／クラウド／SDKで利用できる多�
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

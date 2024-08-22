@@ -1,7 +1,7 @@
 ---
 title: Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.
-date: 2024-08-20 15:46:47
-updated: 2024-08-22 12:18:48
+date: 2024-08-21T15:04:21.535Z
+updated: 2024-08-22T15:04:21.535Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e18468f4536db088e3157824.jpg
@@ -59,3 +59,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->

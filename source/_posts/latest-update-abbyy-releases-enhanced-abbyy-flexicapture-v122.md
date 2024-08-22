@@ -1,7 +1,7 @@
 ---
 title: "Latest Update: ABBYY Releases Enhanced ABBYY FlexiCapture V12.2"
-date: 2024-08-20 13:45:34
-updated: 2024-08-22 12:50:55
+date: 2024-08-21T15:04:21.030Z
+updated: 2024-08-22T15:04:21.030Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/21333b0674dae8e987dce32ef856602446e7d37aac1b972fab53c865a8b5f643.jpg
@@ -72,3 +72,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Abbyy & M-Files Bolster Synergistic Alliance
-date: 2024-08-21 22:58:58
-updated: 2024-08-22 10:19:35
+date: 2024-08-21T15:04:20.853Z
+updated: 2024-08-22T15:04:20.853Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5d1594082aca6452dbc25a49388a37fc7e84721f123ecd76572cb92530c4365.jpg
@@ -84,3 +84,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference
-date: 2024-08-21 23:48:13
-updated: 2024-08-22 11:39:28
+date: 2024-08-21T15:04:22.027Z
+updated: 2024-08-22T15:04:22.027Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e591b5728fa84d66a3323b91b4ed2e3f5b0efaa53a757d0b8f7bbc674ee0d976.jpg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

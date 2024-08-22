@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP"
-date: 2024-08-20 20:51:38
-updated: 2024-08-22 10:37:56
+date: 2024-08-21T15:04:22.158Z
+updated: 2024-08-22T15:04:22.158Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fb8053ac7214659fa378f042df998d4365da978dd3a640439d6ee68045b0a185.jpg
@@ -66,3 +66,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->

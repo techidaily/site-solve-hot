@@ -1,7 +1,7 @@
 ---
 title: "Enhance Shipping Efficiency: Leveraging Artificial Intelligence for Smart Document Management"
-date: 2024-08-19 15:31:13
-updated: 2024-08-22 12:19:45
+date: 2024-08-21T15:04:22.314Z
+updated: 2024-08-22T15:04:22.314Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1945857397ebd75b26ddd988969514bcfe07be7bef56803fb658a77091d094a7.jpg
@@ -118,3 +118,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->

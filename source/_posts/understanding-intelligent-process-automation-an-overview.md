@@ -1,7 +1,7 @@
 ---
 title: "Understanding Intelligent Process Automation: An Overview"
-date: 2024-08-20 22:18:38
-updated: 2024-08-22 10:58:25
+date: 2024-08-21T15:04:21.779Z
+updated: 2024-08-22T15:04:21.779Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dba9ef92930f5d20237b2a75fb5ee76b8bab75f866f82161cefcc63f630df758.jpg
@@ -29,6 +29,9 @@ From the dawn of the digital age, businesses have been chasing the goal of true 
 
 Today, organizations seeking true process automation are finding the answer in an approach that’s both simpler and more complex: complex in its multifaceted nature, but simple for humans to implement and manage. Welcome to [Intelligent Process Automation (IPA).](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## What are the capabilities of Intelligent Process Automation?
 
 #### **Process Intelligence**
@@ -49,6 +52,9 @@ While many traditional approaches to process automation focused on data flows, m
 
 ![what is IDP vs legacy tech](https://static1.abbyy.com/abbyycommedia/34935/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Intelligent Document Processing (IDP)](https://tools.techidaily.com/abbyy/products/) applies AI-based document processing “skills” to read and understand documents in a way that humans understand and manage content. As a result, the information contained in documents becomes immediately available and actionable, when and where it's needed, with little to no human intervention required. In addition to saving time and money, IDP reduces the risk of costly errors and frees employees to focus on more challenging work.
 
 [Learn more about ABBYY Vantage, the industry’s only low-code / no-code intelligent document processing platform.](https://tools.techidaily.com/abbyy/products/)
@@ -67,8 +73,18 @@ There’s no question that [robotic process automation](https://tools.techidaily
 
 ![Icon with gears, paper, and a head representing how intelligent process automation encompasses the &quot;big picture&quot; of applying AI technologies to mirror human decision-making at every stage with Intelligent Process Automation. And a description of what is IPA, text repeated below.](https://static1.abbyy.com/abbyycommedia/35771/what-is-ipa-technology-lg-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 Intelligent Process Automation encompasses the “big picture” of business processes, applying AI technologies (e.g., Intelligent Document Processing, process mining, task mining, natural language processing, machine learning, advanced analytics) to mirror human decision-making at every stage. When and where relatively simple, rules-based decision-making is required, RPA can be an appropriate solution and may be used quite successfully. IPA capabilities allow you to [scale RPA projects](https://tools.techidaily.com/abbyy/products/) by expanding automation further.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What can Intelligent Process Automation do for businesses?
 
 By combining the capabilities of Process Intelligence and Intelligent Document Processing, Intelligent Process Automation helps businesses understand processes before, during, and after automation. It identifies deviations or inefficiencies that can waste time and resources. This means businesses can use real-world data from their own operations to identify and prioritize processes most likely to benefit from automation. They also gain insight into how documents function as the basis for skilled decision-making at every stage of the process. These insights enable the business to determine how they can manage documents to make the process work more efficiently, and then apply the document skills needed to optimize content processing.
@@ -86,6 +102,9 @@ In hospitals and other healthcare organizations, [AI and automation in healthcar
 * ##### Transportation and logistics  
 Documents such as invoices, bills of lading, and receipts are at the heart of [transportation and logistics processes](https://tools.techidaily.com/abbyy/products/), and IPA can help transporters improve efficiencies in data entry, order management, invoice processing, and other supply chain processes.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## What does the IPA journey look like?
 
 While earlier approaches to automation required significant infrastructure investments and dedicated teams of data scientists, implementing Intelligent Process Automation is relatively simple, and businesses can get up and running in a matter of weeks. Once the basic building blocks are in place, the organization can follow a few simple steps to achieve their IPA goals:
@@ -105,6 +124,9 @@ Find out how [ABBYY Intelligent Process Automation solutions](https://tools.tech
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Process Mining](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

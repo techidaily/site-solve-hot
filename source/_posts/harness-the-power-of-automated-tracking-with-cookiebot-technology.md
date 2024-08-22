@@ -1,7 +1,7 @@
 ---
 title: Harness the Power of Automated Tracking with Cookiebot Technology
-date: 2024-08-19 20:16:39
-updated: 2024-08-22 11:30:32
+date: 2024-08-21T15:04:22.005Z
+updated: 2024-08-22T15:04:22.005Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e4f1f7a9a67dc80aa935e243.jpg
@@ -86,6 +86,18 @@ Zudem liefert die Lösung von ABBYY deutlich mehr der benötigten Zusatzinformat
 
 [Zum Dokument](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") 
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

@@ -1,7 +1,7 @@
 ---
 title: Strategic Evaluation of Robotic Automation Through Advanced Process Analytics Techniques
-date: 2024-08-20 11:47:51
-updated: 2024-08-22 12:18:36
+date: 2024-08-21T15:04:21.107Z
+updated: 2024-08-22T15:04:21.107Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3485122afbd86c9e9c462c3f4114e1a2939bb988f69531afc473f2a12af7b022.jpg
@@ -27,12 +27,18 @@ In this new white paper from RPA Today and ABBYY, we cover how you can get the f
 
 Plus, hear a real-life use case for evaluating Process Intelligence technology.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read the white paper](https://digital.abbyy.com/hubfs/documents/content/whitepaper-rpa-reducingblindspots-en.pdf "Read the white paper") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

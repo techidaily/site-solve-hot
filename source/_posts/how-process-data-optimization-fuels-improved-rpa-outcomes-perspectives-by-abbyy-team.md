@@ -1,7 +1,7 @@
 ---
 title: How Process Data Optimization Fuels Improved RPA Outcomes - Perspectives by ABBYY Team
-date: 2024-08-21 15:22:19
-updated: 2024-08-22 10:27:10
+date: 2024-08-21T15:04:20.761Z
+updated: 2024-08-22T15:04:20.761Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/936d10b629420455d4c3cd43378416c6e205e5dc73cdd968038b275d13e490d5.png
@@ -89,3 +89,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

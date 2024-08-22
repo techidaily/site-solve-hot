@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced User Experience: Smart SEO Tools"
-date: 2024-08-19 13:46:50
-updated: 2024-08-22 12:18:29
+date: 2024-08-21T15:04:21.915Z
+updated: 2024-08-22T15:04:21.915Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/984f643c4b4f7bae0c2654dd17f8e46d49464b1fbd02ad27cef488f7c4915f8e.jpg
@@ -31,6 +31,9 @@ One of the main advantages of RPA is the relative ease of its implementation. It
 
 A good example is Siemens medical unit - Siemens Healthcare – which recently implemented the RPA system, which collects genetic data of clients for diagnosis of diseases. The solution automatically sets parameters for analysis using more than 90 different settings. The robot extracts the necessary data in 15 mouse clicks, after which the results are entered into Excel to compile various reports. In 2017 Ernst & Young [introduced 700 robots](http://www.google.ru/url?sa=t&rct=j&q=&esrc=s&source=web&cd=4&ved=0ahUKEwjbuvWv6pPaAhWDFSwKHXrICuQQFgg-MAM&url=https%3A%2F%2Fblogs.wsj.com%2Fcio%2F2018%2F03%2F22%2Fno-coffee-breaks-needed-companies-add-software-robots-to-workforce%2F&usg=AOvVaw3y9Aj5gtY8TTiatrlR36BT) that search for information in the knowledge base on personnel issues, collect data from resumes, and even remind employees about meetings and hotel reservations. The company plans to save more than 2 million hours on routine actions within a year and a half.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Important considerations before implementing RPA**
 
 Despite companies' interest in RPA, almost 30% of such projects end in failure. Most of the problems are in scaling the solution, managing and controlling the robots. Here are a few factors to consider for successful implementation of RPA projects.
@@ -43,8 +46,14 @@ Despite companies' interest in RPA, almost 30% of such projects end in failure. 
 
 ![Dmitry Shushkin ABBYY](https://static1.abbyy.com/abbyycommedia/25703/dmitryshushkin-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Dmitry Shushkin
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

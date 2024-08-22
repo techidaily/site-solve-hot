@@ -1,7 +1,7 @@
 ---
 title: "ABBYYジャパンと共同開発した最新技術:パーソルプロセス&テクノロジーによる革新"
-date: 2024-08-20 21:32:49
-updated: 2024-08-22 10:27:34
+date: 2024-08-21T15:04:21.212Z
+updated: 2024-08-22T15:04:21.212Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c32a9023581f934b16334c5a.jpg
@@ -116,3 +116,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren"
-date: 2024-08-21 19:20:16
-updated: 2024-08-22 10:25:23
+date: 2024-08-21T15:04:21.833Z
+updated: 2024-08-22T15:04:21.833Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0d31f5646fe3a9a749251ddb64d10288427198f92e87a603dc09ffcf334ba8c5.jpg
@@ -21,14 +21,23 @@ Prozesstechnologien wie Process Mining, Robotic Process Automation oder Process 
 
 Unsere aktuelle Studie in Zusammenarbeit mit dem Fraunhofer-Institut für Angewandte Informationstechnik FIT zeigt allerdings, dass viele Unternehmen mit dem aktuellen Stand ihrer Geschäftsprozesse noch nicht zufrieden sind und großes Verbesserungspotenzial sehen. Im Rahmen der Studie wurden Unternehmen der Branchen Versicherungen und Banken sowie Logistik und Produktion befragt.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Laden Sie die Studie jetzt herunter, um mehr über den aktuellen Stand zum Einsatz von Prozesstechnologien und damit einhergehende Handlungsempfehlungen zu erfahren.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY.
 
 [Studie lesen](https://digital.abbyy.com/hubfs/documents/content/report-processintelligence-fraunhoferfitstudydigitalizationprocesses-de.pdf "Studie lesen") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
 #### Obtenez votre exemplaire en complétant le formulaire.

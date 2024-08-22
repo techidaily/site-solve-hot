@@ -1,7 +1,7 @@
 ---
 title: Enhance Web Analytics with the Power of Cookiebot Technology
-date: 2024-08-20 10:58:27
-updated: 2024-08-22 12:34:45
+date: 2024-08-21T15:04:21.343Z
+updated: 2024-08-22T15:04:21.343Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f780668281f43de469309d641324f16afda3a68eb738e8c283227d7e47f57830.jpg
@@ -57,6 +57,9 @@ Die Prozessvorhersage (Process Prediction) nutzt historische Ausführungsmuster,
 
 Die Prozesssimulation (Process Simulation) bietet einen Mechanismus zur Nutzung von Prozessverläufen/-historie zur automatischen Modellierung einer Simulation. Dieses Modell kann dann angepasst werden, um vorgeschlagene Änderungen am Prozess oder an der Ressourcenzuweisung zu berücksichtigen, mit dem Ziel, die Auswirkungen dieser Änderungen zu verstehen, bevor sie umgesetzt werden. Eine Bank kann diesen Ansatz zum Beispiel nutzen, um die Auswirkungen einer veränderten Personalausstattung in ihrer Kreditgenehmigungsabteilung zu verstehen. Dies unterstützt Führungskräfte dabei, informierte Entscheidungen über die Ressourcenzuweisung und Prozessänderungen zu treffen, was letztlich zu einer optimierten betrieblichen Effizienz und mehr Kundenzufriedenheit führt.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Was sind die Vorteile von Process Intelligence?
 
 Traditionelle Ansätze zur Verbesserung von Geschäftsprozessen beruhen auf manuellen Beobachtungen, Interviews und Umfragen, die alle subjektiv und zeitaufwendig sein können. Process Intelligence greift auf Daten aus den eigenen Systemen des Unternehmens zu, um die Prozessoptimierung voranzutreiben und die Überwachung zu automatisieren, was eine kontinuierliche Verbesserung ermöglicht.
@@ -73,18 +76,30 @@ Durch die Nutzung von Process Intelligence können Unternehmen ein breites Spekt
 
 **Kosteneinsparungen** Durch die Ermittlung und Beseitigung von Prozessineffizienzen können Unternehmen ihre Betriebskosten senken. Process Intelligence ermöglicht eine kosteneffiziente Ressourcenzuweisung und hilft, unnötige Kosten zu vermeiden, die durch manuelle Eingriffe oder Fehler entstehen.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Anwendungsfälle für Process Intelligence
 
 In jeder Branche ermöglicht [die Integration von Process Intelligence in eine digitale Transformationsstrategie](https://tools.techidaily.com/abbyy/products/) den Unternehmen, die zukünftigen Auswirkungen von vorgeschlagenen Änderungen zu bewerten, den Übergang effektiver zu gestalten, die Leistung der implementierten Automatisierungsschritte zu gewährleisten und eine Feedbackschleife für kontinuierliche Verbesserungen zu schaffen. Unternehmen aller Branchen nutzen Process Intelligence, um in einer Vielzahl von Anwendungsfällen bessere Ergebnisse zu erzielen.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Gesundheitswesen
 
 Krankenhäuser und andere Gesundheitsdienstleister können Process Intelligence nutzen, um das Patientenerlebnis und die klinische Effektivität zu verbessern, Qualitätsstandards aufrechtzuerhalten und Compliance-Risiken zu vermeiden. Sie können die Einhaltung von Vorschriften erleichtern, indem sie klinische Abläufe in Echtzeit überwachen und das Personal proaktiv warnen, wenn Protokolle nicht eingehalten oder Prozessabweichungen festgestellt werden.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### Banken
 
 Process Intelligence ermöglicht es Banken und anderen Finanzinstituten, die digitale Transformation voranzutreiben und Prioritäten bei der Risikokontrolle und der Einhaltung von Vorschriften zu unterstützen. Sie können Transaktionsdaten nahezu in Echtzeit analysieren, um den Kundenservice zu verbessern, die Genauigkeit der Berichterstattung zu erhöhen und das Risiko kostspieliger Fehler zu verringern. Prozessüberwachung hilft ihnen, sicherzustellen, dass SLAs, Compliance-Mandate und gesetzliche Anforderungen eingehalten werden, und verringert so das Risiko kostspieliger Fehler, die andernfalls übersehen werden könnten.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Versicherungen
 
 Versicherungsunternehmen können prädiktive Analysen nutzen, um Risikobewertung, Risikoauswahl und Risikoübernahme-Entscheidungen zu beschleunigen. Sie können die Einhaltung von Vorschriften durch automatisierte Überwachung und Abhilfemaßnahmen verbessern und gleichzeitig Produktivitätssteigerungen erzielen, indem sie eine durchgehende Datenverarbeitung ermöglichen. Prozessanalysen bieten einen Mehrwert für interne Mitarbeitende, Vertragsregulierer, externe Supportorganisationen und andere Partner.
@@ -105,6 +120,9 @@ Vor der Implementierung der Automatisierung setzte das Unternehmen Process-Minin
 
 Nach der Umsetzung dieser Optimierungen implementierte das Unternehmen eine intelligente Prozessautomatisierungslösung, die robotische Prozessautomatisierungsbots (RPA-Bots) für die Dateneingabe und -extraktion, KI-Algorithmen für die Entscheidungsfindung, Workflow-Automatisierung für die Orchestrierung des End-to-End-Prozesses und Process-Intelligence-Tools zur Überwachung der Leistung des automatisierten Prozesses und zur Ermittlung weiterer verbesserungswürdiger Bereiche umfasste.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Ein ganzheitlicher Ansatz für Process Intelligence
 
 Viele Process-Mining- oder Task-Mining-Tools geben zwar vor, umfassende Lösungen zu bieten, sind aber oft nicht in der Lage, die Komplexität und die Feinheiten von Prozessen in der Praxis zu berücksichtigen. Eine wirklich wirksame Lösung muss die fünf oben genannten Säulen vollständig unterstützen. Nur mit einem ganzheitlichen Ansatz, der alle diese Aspekte umfasst, können Unternehmen darauf hoffen, eine sinnvolle und nachhaltige Prozessumstellung zu erreichen.

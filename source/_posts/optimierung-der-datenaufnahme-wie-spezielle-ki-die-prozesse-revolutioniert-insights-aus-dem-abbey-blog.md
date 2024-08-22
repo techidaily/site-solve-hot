@@ -1,7 +1,7 @@
 ---
 title: "Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog"
-date: 2024-08-19 18:18:46
-updated: 2024-08-22 11:59:24
+date: 2024-08-21T15:04:22.071Z
+updated: 2024-08-22T15:04:22.071Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae77072947e6de85d2a8d631e24f7937491d0d11e8e4a458198601a87eb9beb.jpg
@@ -42,6 +42,9 @@ Die [IDP-Plattform von ABBYY](https://tools.techidaily.com/abbyy/products/) ist 
 
 Mit der richtigen Kombination von Technologien und Techniken können die [IDP-Lösungen von ABBYY jede Art von Dokument verarbeiten](https://tools.techidaily.com/abbyy/products/) \- jedes Format, jede Sprache, jede Struktur. Alle spezialisierten Techniken wurden für die bestmöglichen Schlussfolgerungen und den geringstmöglichen Ressourcenbedarf optimiert, so dass die Kosten und der ROI für die Kunden optimiert werden können.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Large Language Models (LLMs) und Kontext bezogene Antworten. 
 
 Kaum überraschend, aber die Geschäftsprozesse laufen weiterhin auf Basis zahlreichen Dokumenten ab. Der Bedarf an intelligenter Dokumentenverarbeitung (IDP) reißt auch nicht ab, denn die IDP ist ein wesentliches Instrument in einem RAG-Projekt. RAG? Wieder eine Abkürzung, die nach Erklärung ruft. RAG bedeutet wörtlich „Retrieval Augmented Generation“. RAG verwendet vorhandene Unternehmensdokumente zur Anreicherung von Datenbanken und zur Feinabstimmung von KI-Modellen, um genauere und kontextspezifische Antworten zu ermöglichen. Durch den Einsatz unternehmensspezifischer Informationen gehen die RAG-Modelle über generische Antworten hinaus, die auf zuvor trainierten Daten basieren, und liefern stattdessen maßgeschneiderte Antworten, die den einzigartigen Kontext und die Bedürfnisse des Unternehmens widerspiegeln und zusätzlich die Zuverlässigkeit erhöhen, indem u.a. auch sog. Hallucination – eine in der KI auftretende Halluzination (auch Konfabulation genannt) verhindert werden. 
@@ -50,6 +53,9 @@ Dies ist somit eine kostengünstige Methode, die die Fähigkeiten großer Sprach
 
 So unterstützt ABBYY die Unternehmen, mit generativer KI erfolgreich zu sein: Daten liegen oft in Silos innerhalb des Unternehmens vor, sind aber größtenteils in Geschäftsdokumenten eingeschlossen. Eine intelligente Dokumentenverarbeitung extrahiert Dokumentendaten und stellt sie in einen Kontext. Diese Daten und der Kontext werden dann mit der Benutzer-Prompot an das LLM kombiniert, um sie inhaltsbezogen zu machen. Das bedeutet, Genauigkeit, Qualität und Zuverlässigkeit.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Convolutional Neural Networks (CNN) und Transformatoren
 
 ABBYYs End-to-End-Ansatz für OCR (Optical Character Recognition) – optische Zeichenerkennung und ICR (was für Intelligent Character Recognition – also die handgeschriebenen Zeichen steht) wurde vor vielen Jahren bereits auf den Markt gebracht und seitdem kontinuierlich weiterentwickelt. ABBYY verwendet die gleichen Technologien wie ChatGPT und andere LLMs - neuronale Faltungsnetzwerke, Transformatoren und große Sprachmodelle. 
@@ -58,12 +64,18 @@ Das LLM, das ABBYY einsetzt, ist sehr spezifisch auf die Bedürfnisse der Kunden
 
 Diese Technik verbessert die Leistung und Genauigkeit unserer OCR-Funktionen insgesamt drastisch und wird in Kombination mit unserem statistischen Ansatz eingesetzt. Die KI entscheidet automatisch, welcher Ansatz für Ihre Dokumente am besten geeignet ist, um sie im Hinblick auf Konsistenz, Genauigkeit und Geschwindigkeit zu optimieren, was zu besseren Durchsatzraten führt. 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Deep Learning und schnelles maschinelles Lernen (ML) 
 
 Deep Learning ermöglicht es ABBYY, KI-Modelle in seiner Plattform für einen ganz bestimmten Zweck vorzutrainieren. Das ist etwas anderes als bei Open-Source-LLMs oder Anbietern generativer KI, die diese als API anbieten. Während generative KI erstaunliche neue Möglichkeiten schafft, wie man mit Technologien interagiert, wird sie nicht bei allem gut funktionieren. Durch Deep Learning werden Modelle für einen ganz bestimmten Zweck trainiert, und darin ist es hervorragend, denn es ist zweckgebunden. Wie oben erwähnt, setzt ABBYY eine Kombination aus vielen verschiedenen Technologien ein, um eine intelligente Dokumentenverarbeitung der Spitzenklasse zu bieten. 
 
 Im ABBYY Produkt „Vantage“ vereint ABBYY eine Kombination aus Deep Learning und schnellem maschinellem Lernen auf einer Low-Code-IDP-Plattform, um die Durchsatzrate zu maximieren. Mit Deep Learning allein können die Kunden mit den von ABBYY trainierten Modellen sofort eine Genauigkeit von oftmals bis zu 90 Prozent erreichen. Durch die Einbeziehung des schnellen maschinellen Lernens kann die Genauigkeit sogar auf über 95 Prozent steigen. Schnelles maschinelles Lernen merkt sich die Ausreißer, die tiefes maschinelles Lernen (Deep Learning) nicht erreichen konnte, und arbeitet schnell, mit nur wenigen Variationen der fraglichen Dokumente. Das Modell verbessert sich kontinuierlich anhand der verarbeiteten Dokumente -und deren Variationen-, sowie basierend auf manuellem Input während des sogenannten HITL (Human in the Loop). Was so viel bedeutet wie manuelle Verifikation. Somit erzielen die Modelle mit der Zeit eine immer höhere Genauigkeit.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Natural Language Processing (NLP) 
 
 Natural Language Processing (NLP), im deutschen Sprachraum auch Computerlinguistik bzw. linguistische Datenverarbeitung genannt, ist ein Bereich der KI als auch des maschinellen Lernens. Diese beschäftigt sich mit der Analyse und Generierung von natürlicher Sprache. Einerseits können wir durch Natural Language Processing mit Computern mittels Sprache kommunizieren, wie „Hey Alex, dimme das Licht im Pool“, andererseits erlaubt es hoch entwickelten Intelligent Document Processing (IDP), dieses Sprach-„Verständnis“ zu nutzen, um Dokumente jeglicher Art und Komplexität zu „verstehen“- unabhängig davon, ob diese textlastig, unstrukturierte hochkomplexe Dokumente sind. 
@@ -80,6 +92,13 @@ Um ein Update zu erhalten, wenn neue Artikel veröffentlicht sind, melden Sie si
 
 ![Christian Marquardt](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/christian-marquadt-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 Christian Marquardt 
 
 Regional Sales Director for the DACH region at ABBYY Europe

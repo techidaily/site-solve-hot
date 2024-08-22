@@ -1,7 +1,7 @@
 ---
 title: "How McDonald's Employs ABBYY OCR Tech in Their Mobile App: Insights From the Official ABBYY Blog"
-date: 2024-08-20 21:27:20
-updated: 2024-08-22 11:45:57
+date: 2024-08-21T15:04:21.388Z
+updated: 2024-08-22T15:04:21.388Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a01205544ff8168a67a8bfa126c67a299939543e9188165b03ba61640e3fc085.jpg
@@ -87,3 +87,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->

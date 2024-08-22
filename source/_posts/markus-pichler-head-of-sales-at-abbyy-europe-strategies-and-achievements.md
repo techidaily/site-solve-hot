@@ -1,7 +1,7 @@
 ---
 title: "Markus Pichler - Head of Sales at ABBYY Europe: Strategies and Achievements"
-date: 2024-08-21 11:25:23
-updated: 2024-08-22 12:46:12
+date: 2024-08-21T15:04:22.044Z
+updated: 2024-08-22T15:04:22.044Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d5597ded286e2b977dc206141e5.jpg
@@ -60,3 +60,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->

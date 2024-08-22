@@ -1,7 +1,7 @@
 ---
 title: Mastering AI Commerce Insights - Tips & Trends on the ABBYY Platform
-date: 2024-08-21 12:32:36
-updated: 2024-08-22 11:23:55
+date: 2024-08-21T15:04:22.406Z
+updated: 2024-08-22T15:04:22.406Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef75e54c89ead83bf0af102804bf50f616e622b6f296003a4995fda9891371fd.jpg
@@ -25,24 +25,50 @@ The possibilities are limitless. New AI-based solutions can transform streams of
 
 AI is fueling a seismic shift in customer expectations. Customers now want to interact with companies 'here and now' in a way that minimizes their efforts and want services are available to them regardless of office hours. New AI tools are popping up daily in the support space that can address high-urgency situations quickly. These days, virtual assistants like Alexa, Cortana and Siri are the core of online services such as internet search or online shopping where they provide helpful responses. Companies are increasingly using chat-bots to communicate with their customers without requiring staff to be available.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## 2\. Healthcare Services
 
 The need for more evidence-based medicine, for access to more diverse types of data to solve chronic conditions, the increasing workloads of healthcare professionals and a drive to improve the quality of healthcare services have opened up opportunities for AI in healthcare services. According to [CBInsights](https://www.cbinsights.com/research/artificial-intelligence-startups-healthcare/), by 2025, AI systems could be involved in everything from population health management, to digital avatars capable of answering specific patient queries. AI's medical applications include oncology, drug discovery, remote patient monitoring, patient risk scoring, and imaging & diagnostics.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. Transportation & Logistics
 
 AI can deliver enormous benefits to supply chain and logistics operations, including cost reductions through reduced redundancies and risk mitigation, improved forecasting, faster deliveries through more optimized routes, improved customer service, and more. AI's ability to streamline so many supply chain and logistics functions is already delivering a competitive advantage for early adopters by cutting shipping times and costs. A cross-industry study on AI adoption conducted in early 2017 by [McKinsey](https://www.mckinsey.com/business-functions/mckinsey-analytics/our-insights/how-artificial-intelligence-can-deliver-real-value-to-companies) found that early adopters with a proactive AI strategy in the transportation and logistics sector enjoyed profit margins greater than 5%. Meanwhile, respondents in the sector that had not adopted AI were in the red.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. Manufacturing Sector
 
 AI-powered robots are already being used in the manufacturing companies to assemble products and package them for shipment. The next robotic revolution will take things to the next level by being able to assemble more complicated items, such as electronics, cars, and even some homes. Newer smart sensors will be used to track, analyze production quotas, and aggregate control rooms, or help to create models for predictive maintenance. Robotic automation will help the manufacturing industry reach a high level of accuracy and productivity, a level that is even beyond human ability.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## 5\. Financial Services
 
 Like in other industries, AI has made significant inroads in financial services with banks and fintechs launching pilots across the front, middle and back offices, with applications for customer service, credit scoring, and fraud management, among others. In 2018, firms will likely move toward more advanced “augmented intelligence,” with tools that help humans make decisions and learn from the interactions. In the [2017 Global Digital IQ Survey](https://www.pwc.ru/ru/assets/pdf/2017-global-digital-iq-survey-pharmaceutical-en.pdf) by PwC, 52% of those in the financial services industry said they’re currently making “substantial investments” in AI, and 66% said they expect to do the same in three years. Almost three out of four (72%) business decision makers believe that AI will be the business advantage of the future.
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

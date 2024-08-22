@@ -1,7 +1,7 @@
 ---
 title: "Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem"
-date: 2024-08-21 13:12:35
-updated: 2024-08-22 11:29:47
+date: 2024-08-21T15:04:21.864Z
+updated: 2024-08-22T15:04:21.864Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f244a4b607ff1304250df827a08b69767edd00f8e4433a759d16a32700c891a6.jpg
@@ -69,3 +69,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

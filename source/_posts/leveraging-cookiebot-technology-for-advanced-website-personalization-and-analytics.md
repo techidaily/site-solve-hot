@@ -1,7 +1,7 @@
 ---
 title: Leveraging Cookiebot Technology for Advanced Website Personalization & Analytics
-date: 2024-08-20 19:58:12
-updated: 2024-08-22 11:38:21
+date: 2024-08-21T15:04:20.775Z
+updated: 2024-08-22T15:04:20.775Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659cd0b84f4316b6b432fb112c.jpg
@@ -31,10 +31,17 @@ ABBYY developed FineReader 14 in response to the needs of modern business profes
 * **Deep OCR integration into PDF tools:** FineReader 14 is the product of choice for those who work with scans and paper-based PDFs on a daily basis due to its ability to automatically apply OCR to PDFs when required.
 * **Over 190 OCR languages:** New version supports text recognition in more than 190 languages, including some difficult-to-digitize languages such as Korean, Chinese, Japanese and Arabic. It also comes with support for simple math formulas and English phonetic transcriptions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ### Availability
 
 ABBYY FineReader 14 is available immediately in three editions: Standard, Corporate and Enterprise, worldwide. It can be ordered through online stores and many retail outlets . For detailed product information and available versions, visit [www.abbyy.com/finereader](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY is a leading global provider of technologies and solutions that help businesses to action information. The company sets the standard in content capture and innovative language-based technologies that integrate across the information lifecycle. ABBYY solutions are relied on to optimize business processes, mitigate risk, accelerate decision making and drive revenue. ABBYY technologies are used and licensed by some of the largest international enterprises and government organizations, as well as SMBs and individuals. The company maintains offices in Australia, Canada, Cyprus, France, Germany, Japan, Spain, Taiwan, UAE, the UK, Ukraine, and the United States. For more information, visit [/company/about-us/](https://tools.techidaily.com/abbyy/products/).

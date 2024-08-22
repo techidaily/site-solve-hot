@@ -1,7 +1,7 @@
 ---
 title: "Transform Your Medical Practice: Enhancing Patient Care Through ABBYY Paperless Data Solutions"
-date: 2024-08-19 19:43:13
-updated: 2024-08-22 10:26:34
+date: 2024-08-21T15:04:20.511Z
+updated: 2024-08-22T15:04:20.511Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
@@ -115,6 +115,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

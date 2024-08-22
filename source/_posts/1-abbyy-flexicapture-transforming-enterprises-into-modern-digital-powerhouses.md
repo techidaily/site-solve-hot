@@ -1,7 +1,7 @@
 ---
 title: "1. ABBYY FlexiCapture: Transforming Enterprises Into Modern Digital Powerhouses"
-date: 2024-08-21 17:51:13
-updated: 2024-08-22 10:10:29
+date: 2024-08-21T15:04:21.131Z
+updated: 2024-08-22T15:04:21.131Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a5e56b77e4674926b57f0f9161817ac7d31c24b7d1008a2fd7cf38de6f5c41cb.jpg
@@ -104,6 +104,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

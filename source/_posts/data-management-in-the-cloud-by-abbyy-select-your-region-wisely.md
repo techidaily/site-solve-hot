@@ -1,7 +1,7 @@
 ---
 title: Data Management in the Cloud by ABBYY - Select Your Region Wisely
-date: 2024-08-20 14:51:33
-updated: 2024-08-22 10:52:16
+date: 2024-08-21T15:04:21.301Z
+updated: 2024-08-22T15:04:21.301Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/230adad01721806c33e8b8bec3c60db44af37ad2338e40c998d0c7dc6ff96d9a.jpg
@@ -53,3 +53,7 @@ The URLs of the FlexiCapture SaaS and REST API servers used for the API calls va
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
