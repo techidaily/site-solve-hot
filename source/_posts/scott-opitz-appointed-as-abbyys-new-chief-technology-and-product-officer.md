@@ -1,7 +1,7 @@
 ---
 title: Scott Opitz Appointed as ABBYY's New Chief Technology & Product Officer
-date: 2024-08-21T15:04:21.095Z
-updated: 2024-08-22T15:04:21.095Z
+date: 2024-08-25T22:41:07.664Z
+updated: 2024-08-26T22:41:07.664Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad3863dd1f8be14d01cc17569.jpg
@@ -75,3 +75,50 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-your-digital-identity-start-a-youtube-channel-today/"><u>[New] 2024 Approved  Building Your Digital Identity  Start a YouTube Channel Today</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-closer-look-at-youtubes-unlisted-content-category/"><u>[New] A Closer Look at YouTube’s ‘Unlisted’ Content Category</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-20-must-have-video-tools-for-new-creators/"><u>[New] In 2024, 20 Must-Have Video Tools For New Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-chart-topping-ideas-to-invigorate-your-youtube-channel/"><u>[New] In 2024, Chart-Topping Ideas to Invigorate Your YouTube Channel</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-quick-guide-integrating-snap-camera-with-teams/"><u>[New] Quick Guide  Integrating Snap Camera with Teams</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-untapped-potential-to-augment-your-youtube-audience/"><u>[New] Unveiling Untapped Potential to Augment Your Youtube Audience</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-capture-and-share-top-no-cost-screen-recorders-for-windowsmac-users/"><u>[Updated] 2024 Approved  Capture and Share - Top No-Cost Screen Recorders for Windows/Mac Users</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-pocketcapture-app-testimonials-and-insights/"><u>[Updated] 2024 Approved  PocketCapture App Testimonials & Insights</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-elevate-your-virtual-presentations-with-zoom-sharing/"><u>[Updated] In 2024, Elevate Your Virtual Presentations with Zoom Sharing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-strategies-to-overcome-unseen-tiktok-limitations/"><u>[Updated] Strategies to Overcome Unseen TikTok Limitations</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-pivotal-principles-in-digital-story-making/"><u>2024 Approved  Pivotal Principles in Digital Story Making</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-marketing-automation-solutions/"><u>Cookiebot-Enabled Marketing Automation Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-solutions-optimize-your-online-experience/"><u>Cookiebot-Enabled Solutions: Optimize Your Online Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-with-expertly-managed-cookies/"><u>Cookiebot-Enhanced: Boost Your Site's Performance with Expertly Managed Cookies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/efficient-lead-generation-using-the-cookiebot-platform/"><u>Efficient Lead Generation Using the Cookiebot Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-user-engagement-using-the-innovative-power-of-cookiebot-analytics-solutions/"><u>Elevate User Engagement Using the Innovative Power of Cookiebot Analytics Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-digital-campaigns-using-the-power-of-cookiebot/"><u>Elevate Your Digital Campaigns Using the Power of Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/empower-your-site-with-cookiebot-advanced-analytics-and-custom-user-experience-features/"><u>Empower Your Site with Cookiebot: Advanced Analytics & Custom User Experience Features</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-document-management-efficiency-the-new-wave-of-sharp-mfps-featuring-abbyy-ocr-technology-as-showcased-on-abbyys-expert-blog/"><u>Enhance Document Management Efficiency: The New Wave of Sharp MFPs Featuring ABBYY OCR Technology, as Showcased on ABBYY's Expert Blog</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-cookiebots-advanced-tracking-technology/"><u>Enhance User Experience with Cookiebot's Advanced Tracking Technology</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/enhanced-website-analytics-smart-data-collection-via-cookiebot-integration/"><u>Enhanced Website Analytics: Smart Data Collection via Cookiebot Integration</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-accessibility-how-texthelp-software-and-abbyy-assist-individuals-with-dyslexia/"><u>Enhancing Accessibility: How Texthelp Software & ABBYY Assist Individuals with Dyslexia</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-website-visitors-the-role-of-cookiebot-technology/"><u>Enhancing Website Visitors: The Role of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/expert-guide-to-implementing-advanced-ai-in-abbyy-software-fusing-machine-learning-and-natural-language-processing-techniques-for-superior-results/"><u>Expert Guide to Implementing Advanced AI in ABBYY Software: Fusing Machine Learning and Natural Language Processing Techniques for Superior Results</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-strategies-for-live-over-the-net-broadcast-in-vlc-for-2024/"><u>Expert Strategies for Live Over-the-Net Broadcast in VLC for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploiter-au-mieux-le-potentiel-dune-entreprise-double-numerique-et-modelisation-procedurale/"><u>Exploiter Au Mieux Le Potentiel D'une Entreprise : Double Numérique Et Modélisation Procédurale</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fortschrittliche-texterfassung-mit-machine-learning-aktuelle-innovationen-von-abbyy/"><u>Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-elevate-your-websites-seo-and-conversion-rates/"><u>Harness the Power of Cookiebot: Elevate Your Website's SEO & Conversion Rates!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-perfecting-your-vocal-harmony-in-canva-projects/"><u>In 2024, Perfecting Your Vocal Harmony in Canva Projects</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-transform-your-images-into-nfts-the-best-generators-listed/"><u>In 2024, Transform Your Images Into NFTs - The Best Generators Listed</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/kddiabbyy-ocr/"><u>KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/latest-update-abbyy-releases-enhanced-abbyy-flexicapture-v122/"><u>Latest Update: ABBYY Releases Enhanced ABBYY FlexiCapture V12.2</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/model-b-1913-27-adjustable-rear-sight-two-settings-optional-safety-first-firing-pin-block-lever-between-trigger-and-slide-unfluted-grip/"><u>Model B - 1913-27, Adjustable Rear Sight (Two Settings), Optional Safety First Firing Pin Block Lever Between Trigger and Slide, Unfluted Grip</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigating-digital-change-in-insurance-your-ultimate-checklist-featuring-abbyy-solutions/"><u>Navigating Digital Change in Insurance: Your Ultimate Checklist Featuring ABBYY Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/nouvelle-version-du-logiciel-de-reconnaissance-ocr-abbyy-finereader-server-est-maintenant-disponible/"><u>Nouvelle Version Du Logiciel De Reconnaissance OCR ABBYY : FineReader Server Est Maintenant Disponible</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimized-with-advanced-traffic-analytics-the-cookiebot-way/"><u>Optimized with Advanced Traffic Analytics: The Cookiebot Way</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-revolutionizing-website-analytics-and-seo/"><u>Optimized with Cookiebot Technology: Revolutionizing Website Analytics and SEO</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-mov-movies-on-htc-u23-is-it-possible-by-aiseesoft-video-converter-play-mov-on-android/"><u>Play MOV movies on HTC U23, is it possible?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionize-your-website-insights-cookiebot-enabled-data-tracking-and-personalization-technology/"><u>Revolutionize Your Website Insights - Cookiebot-Enabled Data Tracking & Personalization Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-document-capture-with-abbyy-flexiconnect-compatible-with-pegasystems-platform/"><u>Seamless Document Capture with ABBYY FlexiConnect: Compatible with Pegasystems Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/strategic-evaluation-of-robotic-automation-through-advanced-process-analytics-techniques/"><u>Strategic Evaluation of Robotic Automation Through Advanced Process Analytics Techniques</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/streamlined-energy-switching-made-simple-butagaz-partners-with-abbyy-solutions/"><u>Streamlined Energy Switching Made Simple - Butagaz Partners with ABBYY Solutions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-resolving-microphone-problems-on-turtle-beach-devices/"><u>Troubleshooting Guide: Resolving Microphone Problems on Turtle Beach Devices</u></a></li>
+</ul></div>
