@@ -1,7 +1,7 @@
 ---
 title: "Seamless Document Capture with ABBYY FlexiConnect: Compatible with Pegasystems Platform"
-date: 2024-08-25T22:41:08.575Z
-updated: 2024-08-26T22:41:08.575Z
+date: 2024-09-03T22:48:32.038Z
+updated: 2024-09-04T22:48:32.038Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4fb035ab41968a0873cebbd66.jpg
@@ -16,7 +16,10 @@ thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4f
 Enabling Pega BPM and RPA to transform documents and unstructured content automatically into actionable information for customer service and operational excellence.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## ABBYY FlexiCapture Connector for Pega
 

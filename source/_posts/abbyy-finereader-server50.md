@@ -1,7 +1,7 @@
 ---
 title: ABBYY FineReader Serverで過去50年間の文書検索能力向上
-date: 2024-08-25T22:39:55.995Z
-updated: 2024-08-26T22:39:55.995Z
+date: 2024-09-03T22:48:30.745Z
+updated: 2024-09-04T22:48:30.745Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fa466aca4e0117af9ede098ff5beff07b4b780680a77e468de6afed425dad313.jpg
@@ -124,7 +124,10 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 

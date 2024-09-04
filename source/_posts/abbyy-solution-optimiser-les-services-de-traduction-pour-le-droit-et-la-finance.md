@@ -1,7 +1,7 @@
 ---
 title: ABBYY Solution - Optimiser Les Services De Traduction Pour Le Droit Et La Finance
-date: 2024-08-25T22:42:32.191Z
-updated: 2024-08-26T22:42:32.191Z
+date: 2024-09-03T22:48:33.545Z
+updated: 2024-09-04T22:48:33.545Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d87088006ba977c8519d5351.jpg
@@ -26,7 +26,10 @@ Consulting
 _![](https://tools.techidaily.com/abbyy/products/)HL TRAD est une agence de traduction et d´interprétariat, spécialisée auprès des acteurs du droit, de la finance et du conseil, qui propose à ses clients des traductions libres ou assermentées, des interprètes et des services de relecture. Pour mieux répondre aux besoins de ses clients, HL TRAD constitue des équipes dont l'objectif est de mettre au point des solutions sur mesure. HL TRAD est implantée en France, en Angleterre et en Belgique. L´agence a récemment investi dans une solution permettant d'améliorer les procédures associées au traitement de documents importants à traduire._
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Contexte
 
@@ -37,7 +40,16 @@ HL TRAD doit convertir des documents régulièrement pour répondre aux besoins 
 Eric Le Poole, gérant de HL TRAD, explique la raison pour laquelle trouver une solution de reconnaissance de texte (OCR) devenait essentielle: « Les documents sont au centre de notre activité, qu'il s'agisse de conclusions, de comptes annuels, de rapports de gestion, ou encore, de rapports de due diligence. La possibilité de convertir ces documents devait nous permettre de récupérer du texte, des tableaux et des graphiques en évitant une ressaisie fastidieuse et source d´erreurs. Les avantages recherchés étaient de faciliter le travail de nos collaborateurs et d´assurer un meilleur service à nos clients.»
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<span id="1983584">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Solution
 
@@ -50,7 +62,10 @@ ABBYY FineReader est un logiciel de reconnaissance de texte, ou OCR, qui convert
 La précision d'ABBYY FineReader, sa vitesse, son prix et sa convivialité ont été des facteurs importants dans le processus de décision. Le nombre de langues de reconnaissance constituait également un facteur important. Presque toutes les agences de traduction doivent traiter des langues différentes quotidiennement. HL TRAD doit traiter des documents rédigés principalement en français, anglais, italien, néerlandais, allemand ou espagnol. Grâce à une capacité de reconnaissance jusqu´à 189 langues, aucune tâche ne résiste à ABBYY FineReader lorsqu'il s'agit de traiter des documents multilingues.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Résultat
 
@@ -59,7 +74,16 @@ Maintenant, HL TRAD effectue plus de 3600 tâches OCR par an sur des documents m
 « ABBYY est le logiciel qui permet à nos équipes commerciales et projets d'accomplir leur tâche plus rapidement et facilement » déclare Eric Le Poole. Travailler avec FineReader est devenu nécessaire pour HL TRAD. ABBYY FineReader permet de mieux répondre aux attentes de ses clients.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<span id="1982485">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### A propos de HL TRAD
 
@@ -78,7 +102,10 @@ Tél.: +33 (0)1 30 09 41 90
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### A propos d’ABBYY et contact
 
@@ -89,7 +116,10 @@ Tél.: +33 (0)1 30 09 41 90
 Partager 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 

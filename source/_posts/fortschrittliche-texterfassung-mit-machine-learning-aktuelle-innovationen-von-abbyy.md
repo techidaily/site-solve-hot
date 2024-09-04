@@ -1,7 +1,7 @@
 ---
 title: Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY
-date: 2024-08-25T22:40:57.281Z
-updated: 2024-08-26T22:40:57.281Z
+date: 2024-09-03T22:48:31.843Z
+updated: 2024-09-04T22:48:31.843Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3371d97eae392c322e9b82d456ad7eef262a0a211072cf38379ccece2b069d93.jpg
@@ -73,9 +73,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://vimeo-videos.techidaily.com/new-in-2024-boosting-vimeo-videos-accelerating-playback/"><u>[New] In 2024, Boosting Vimeo Videos  Accelerating Playback</u></a></li>
@@ -132,3 +129,16 @@ Vernetzen Sie sich mit uns
 <li><a href="https://buynow-tips.techidaily.com/unlocking-savings-with-every-new-iphone-release/"><u>Unlocking Savings with Every New iPhone Release</u></a></li>
 <li><a href="https://program-issues.techidaily.com/unraveling-infinity-the-philosophy-of-the-eternal-return-in-black-thrillers/"><u>Unraveling Infinity: The Philosophy of the 'Eternal Return' In Black Thrillers</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="150" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Deloitte Und ABBEY Zusammenarbeit Beendet - Innovatives Lösungsportfolio Für Die Optimierung Von Geschäftsprozessen
-date: 2024-08-25T22:42:11.619Z
-updated: 2024-08-26T22:42:11.619Z
+date: 2024-09-03T22:48:33.172Z
+updated: 2024-09-04T22:48:33.172Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822adafed338c6c5049f6c7aefb.jpg
@@ -42,7 +42,10 @@ Mehr über die Partnerschaft zwischen Deloitte Luxemburg und ABBYY sowie über d
 Mit mehr als 130 Partnern und 2.300 Mitarbeitern ist Deloitte Luxemburg eines der größten, stärksten und ältesten professionellen Dienstleistungsunternehmen im Großherzogtum. Seit mehr als 70 Jahren sind dessen talentierte Teams für Kunden in verschiedenen Branchen tätig und bieten nationalen und internationalen Kunden einen hohen Mehrwert in den Bereichen Wirtschaftsprüfung, Consulting, Finanzberatung, Risikoberatung, Steuern und damit verbundenen Dienstleistungen. Deloitte Luxemburg ist Teil des globalen Deloitte-Netzwerks, das in mehr als 150 Ländern und Territorien vertreten ist und vier von fünf Fortune Global 500®-Unternehmen betreut. Erfahren Sie unter [www.deloitte.com/lu](http://www.deloitte.com/lu) wie die Mitarbeiter von Deloitte etwas bewegen.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY
 
@@ -55,14 +58,20 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

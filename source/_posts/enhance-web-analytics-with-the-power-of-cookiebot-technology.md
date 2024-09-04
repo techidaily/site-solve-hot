@@ -1,7 +1,7 @@
 ---
 title: Enhance Web Analytics with the Power of Cookiebot Technology
-date: 2024-08-25T22:41:34.902Z
-updated: 2024-08-26T22:41:34.902Z
+date: 2024-09-03T22:48:32.500Z
+updated: 2024-09-04T22:48:32.500Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f780668281f43de469309d641324f16afda3a68eb738e8c283227d7e47f57830.jpg
@@ -33,6 +33,12 @@ Gehe direkt zu:
 
 **Process Intelligence ist eine Kombination von datengesteuerten Fähigkeiten, die der Analyse und Verbesserung von Geschäftsabläufen dienen.**  Sie nutzt die Daten aus unternehmenseigenen Informationssystemen, um Muster und Erkenntnisse zu finden, die den Weg zu neuen betrieblichen Effizienzen weisen. **Die fünf wesentlichen Säulen für nachhaltige Process Intelligence sind Prozesserkennung, Prozessanalyse, Prozessüberwachung, Prozessvorhersage und Prozesssimulation.**  Unternehmen können die daraus resultierenden Erkenntnisse nutzen, um ihre Prozesse zu erkennen, zu verstehen und effektiver zu verwalten.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Die fünf Säulen von Process Intelligence
 
 #### 1\. Prozesserkennung
@@ -58,7 +64,10 @@ Die Prozessvorhersage (Process Prediction) nutzt historische Ausführungsmuster,
 Die Prozesssimulation (Process Simulation) bietet einen Mechanismus zur Nutzung von Prozessverläufen/-historie zur automatischen Modellierung einer Simulation. Dieses Modell kann dann angepasst werden, um vorgeschlagene Änderungen am Prozess oder an der Ressourcenzuweisung zu berücksichtigen, mit dem Ziel, die Auswirkungen dieser Änderungen zu verstehen, bevor sie umgesetzt werden. Eine Bank kann diesen Ansatz zum Beispiel nutzen, um die Auswirkungen einer veränderten Personalausstattung in ihrer Kreditgenehmigungsabteilung zu verstehen. Dies unterstützt Führungskräfte dabei, informierte Entscheidungen über die Ressourcenzuweisung und Prozessänderungen zu treffen, was letztlich zu einer optimierten betrieblichen Effizienz und mehr Kundenzufriedenheit führt.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Was sind die Vorteile von Process Intelligence?
 
@@ -76,29 +85,29 @@ Durch die Nutzung von Process Intelligence können Unternehmen ein breites Spekt
 
 **Kosteneinsparungen** Durch die Ermittlung und Beseitigung von Prozessineffizienzen können Unternehmen ihre Betriebskosten senken. Process Intelligence ermöglicht eine kosteneffiziente Ressourcenzuweisung und hilft, unnötige Kosten zu vermeiden, die durch manuelle Eingriffe oder Fehler entstehen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Anwendungsfälle für Process Intelligence
 
 In jeder Branche ermöglicht [die Integration von Process Intelligence in eine digitale Transformationsstrategie](https://tools.techidaily.com/abbyy/products/) den Unternehmen, die zukünftigen Auswirkungen von vorgeschlagenen Änderungen zu bewerten, den Übergang effektiver zu gestalten, die Leistung der implementierten Automatisierungsschritte zu gewährleisten und eine Feedbackschleife für kontinuierliche Verbesserungen zu schaffen. Unternehmen aller Branchen nutzen Process Intelligence, um in einer Vielzahl von Anwendungsfällen bessere Ergebnisse zu erzielen.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Gesundheitswesen
 
 Krankenhäuser und andere Gesundheitsdienstleister können Process Intelligence nutzen, um das Patientenerlebnis und die klinische Effektivität zu verbessern, Qualitätsstandards aufrechtzuerhalten und Compliance-Risiken zu vermeiden. Sie können die Einhaltung von Vorschriften erleichtern, indem sie klinische Abläufe in Echtzeit überwachen und das Personal proaktiv warnen, wenn Protokolle nicht eingehalten oder Prozessabweichungen festgestellt werden.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Banken
 
 Process Intelligence ermöglicht es Banken und anderen Finanzinstituten, die digitale Transformation voranzutreiben und Prioritäten bei der Risikokontrolle und der Einhaltung von Vorschriften zu unterstützen. Sie können Transaktionsdaten nahezu in Echtzeit analysieren, um den Kundenservice zu verbessern, die Genauigkeit der Berichterstattung zu erhöhen und das Risiko kostspieliger Fehler zu verringern. Prozessüberwachung hilft ihnen, sicherzustellen, dass SLAs, Compliance-Mandate und gesetzliche Anforderungen eingehalten werden, und verringert so das Risiko kostspieliger Fehler, die andernfalls übersehen werden könnten.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Versicherungen
 
@@ -120,9 +129,6 @@ Vor der Implementierung der Automatisierung setzte das Unternehmen Process-Minin
 
 Nach der Umsetzung dieser Optimierungen implementierte das Unternehmen eine intelligente Prozessautomatisierungslösung, die robotische Prozessautomatisierungsbots (RPA-Bots) für die Dateneingabe und -extraktion, KI-Algorithmen für die Entscheidungsfindung, Workflow-Automatisierung für die Orchestrierung des End-to-End-Prozesses und Process-Intelligence-Tools zur Überwachung der Leistung des automatisierten Prozesses und zur Ermittlung weiterer verbesserungswürdiger Bereiche umfasste.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Ein ganzheitlicher Ansatz für Process Intelligence
 
 Viele Process-Mining- oder Task-Mining-Tools geben zwar vor, umfassende Lösungen zu bieten, sind aber oft nicht in der Lage, die Komplexität und die Feinheiten von Prozessen in der Praxis zu berücksichtigen. Eine wirklich wirksame Lösung muss die fünf oben genannten Säulen vollständig unterstützen. Nur mit einem ganzheitlichen Ansatz, der alle diese Aspekte umfasst, können Unternehmen darauf hoffen, eine sinnvolle und nachhaltige Prozessumstellung zu erreichen.
@@ -131,6 +137,12 @@ Unternehmen auf der ganzen Welt automatisieren zeitaufwendige Routineabläufe, d
 
 [Demo anfordern](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Häufig gestellte Fragen
 
 [Was ist eine Process-Intelligence-Strategie?](https://tools.techidaily.com/abbyy/products/)
@@ -163,6 +175,12 @@ In seiner 30-jährigen Laufbahn in der Computerbranche hat Scott Opitz verschied
 
 Zuvor fungierte er unter anderem als Senior Vice President, Worldwide Marketing & Business Development für webMethods (heute Software AG), wobei er für Marketing, Geschäftsentwicklung und strategische Produktplanung verantwortlich zeichnete. Zu webMethods war er im Zuge von dessen Übernahme von IntelliFrame Corporation gekommen, einem Unternehmen, das sowohl Produkte zur Datenintegration als auch die integrierte Workflow- und BPM-Plattform InVista bereitstellte, die Opitz mitgegründet hatte. Scott Opitz hat außerdem zahlreiche Führungspositionen in den Bereichen Technologie, Marketing und Geschäftsentwicklung für staatliche und privatwirtschaftliche Unternehmen bekleidet.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Gefällt mir, teilen oder neu posten 
 
 Teilen 

@@ -1,7 +1,7 @@
 ---
 title: "Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog"
-date: 2024-08-25T22:43:07.115Z
-updated: 2024-08-26T22:43:07.115Z
+date: 2024-09-03T22:48:34.122Z
+updated: 2024-09-04T22:48:34.122Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae77072947e6de85d2a8d631e24f7937491d0d11e8e4a458198601a87eb9beb.jpg
@@ -43,7 +43,10 @@ Die [IDP-Plattform von ABBYY](https://tools.techidaily.com/abbyy/products/) ist 
 Mit der richtigen Kombination von Technologien und Techniken können die [IDP-Lösungen von ABBYY jede Art von Dokument verarbeiten](https://tools.techidaily.com/abbyy/products/) \- jedes Format, jede Sprache, jede Struktur. Alle spezialisierten Techniken wurden für die bestmöglichen Schlussfolgerungen und den geringstmöglichen Ressourcenbedarf optimiert, so dass die Kosten und der ROI für die Kunden optimiert werden können.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Large Language Models (LLMs) und Kontext bezogene Antworten. 
 
@@ -54,7 +57,16 @@ Dies ist somit eine kostengünstige Methode, die die Fähigkeiten großer Sprach
 So unterstützt ABBYY die Unternehmen, mit generativer KI erfolgreich zu sein: Daten liegen oft in Silos innerhalb des Unternehmens vor, sind aber größtenteils in Geschäftsdokumenten eingeschlossen. Eine intelligente Dokumentenverarbeitung extrahiert Dokumentendaten und stellt sie in einen Kontext. Diese Daten und der Kontext werden dann mit der Benutzer-Prompot an das LLM kombiniert, um sie inhaltsbezogen zu machen. Das bedeutet, Genauigkeit, Qualität und Zuverlässigkeit.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<span id="1993651">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Convolutional Neural Networks (CNN) und Transformatoren
 
@@ -65,7 +77,10 @@ Das LLM, das ABBYY einsetzt, ist sehr spezifisch auf die Bedürfnisse der Kunden
 Diese Technik verbessert die Leistung und Genauigkeit unserer OCR-Funktionen insgesamt drastisch und wird in Kombination mit unserem statistischen Ansatz eingesetzt. Die KI entscheidet automatisch, welcher Ansatz für Ihre Dokumente am besten geeignet ist, um sie im Hinblick auf Konsistenz, Genauigkeit und Geschwindigkeit zu optimieren, was zu besseren Durchsatzraten führt. 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Deep Learning und schnelles maschinelles Lernen (ML) 
 
@@ -74,7 +89,10 @@ Deep Learning ermöglicht es ABBYY, KI-Modelle in seiner Plattform für einen ga
 Im ABBYY Produkt „Vantage“ vereint ABBYY eine Kombination aus Deep Learning und schnellem maschinellem Lernen auf einer Low-Code-IDP-Plattform, um die Durchsatzrate zu maximieren. Mit Deep Learning allein können die Kunden mit den von ABBYY trainierten Modellen sofort eine Genauigkeit von oftmals bis zu 90 Prozent erreichen. Durch die Einbeziehung des schnellen maschinellen Lernens kann die Genauigkeit sogar auf über 95 Prozent steigen. Schnelles maschinelles Lernen merkt sich die Ausreißer, die tiefes maschinelles Lernen (Deep Learning) nicht erreichen konnte, und arbeitet schnell, mit nur wenigen Variationen der fraglichen Dokumente. Das Modell verbessert sich kontinuierlich anhand der verarbeiteten Dokumente -und deren Variationen-, sowie basierend auf manuellem Input während des sogenannten HITL (Human in the Loop). Was so viel bedeutet wie manuelle Verifikation. Somit erzielen die Modelle mit der Zeit eine immer höhere Genauigkeit.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Natural Language Processing (NLP) 
 
@@ -93,11 +111,10 @@ Um ein Update zu erhalten, wenn neue Artikel veröffentlicht sind, melden Sie si
 ![Christian Marquardt](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/christian-marquadt-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Christian Marquardt 
 

@@ -1,7 +1,7 @@
 ---
 title: Enhanced Traffic Conversion with Cookiebot Technology
-date: 2024-08-25T22:44:15.461Z
-updated: 2024-08-26T22:44:15.461Z
+date: 2024-09-03T22:48:35.295Z
+updated: 2024-09-04T22:48:35.295Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6e60383647786ca91fac6705ee563d1d14735cbfcbf29cef2bea0822024a08e1.jpg
@@ -24,26 +24,30 @@ January 18, 2023
 この変革の中核にあるのは、実は何十年も前から存在する「光学文字認識 (OCR)」と呼ばれる技術です。かつては単にテキストをデジタル化するツールでしたが、OCR は現在、高品質なデータを使って大規模言語モデル (LLM) を学習させる上で欠かせない役割を果たしています。単純なテキスト変換ツールから高度なデータ供給者への進化は、IDP 技術の適応性と持続的な重要性を示しています。従来の IDP は、精度とコンテキストが最優先される新しい時代への道を切り開いているのです。
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 実世界での応用と課題
 
 今日の [OCR](https://tools.techidaily.com/abbyy/products/)は、単にテキストを読むだけでなく、テキスト全体を理解することが求められます。企業はこれまで以上に高い精度とより深いデータ洞察を求めているため、IDP技術はより高度で微妙なニュアンスを理解する必要があります。しかし、この進化には課題もあります。精度とコンテキスト理解のバランスが重要になってきます。AI システムに投入するデータは、正確であるだけでなく、文脈的にも関連性があるものであることをどのように保証するのでしょうか？
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### インテリジェント文書処理（IDP）の未来
 
 本当に理解力のある「IDP」こそが、データとAIに対する考え方そのものを革新し、未来を切り拓く鍵となります。単に文書を処理するだけでなく、内容を理解し、データだけでなくそこからインサイトを引き出すシステムの構築が求められています。 この新しいIDPこそが、絶え間なく進化を遂げるAIのランドマークとなり、より知的で効率的、そして直感的なシステム構築において欠かせない要素となるでしょう。
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 現代のIDPの内幕
 
@@ -62,7 +66,10 @@ January 18, 2023
 現代の IDP システムの真髄は、継続的に学習して向上できる点にあります。フィードバックループを取り入れることで、これらのシステムはアルゴリズムを改良し、新しいタイプのドキュメントに適応し、時間の経過とともに精度を向上させることができます。この継続的な学習プロセスにより、ドキュメントの種類や形式が進化し続ける中でも、IDP の関連性と有効性が維持されます。
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 大規模言語モデル（LLM）学習における高品質データの役割
 
@@ -89,7 +96,10 @@ IDP プロセスは、データ収集から始まります。OCR などの IDP �
 学習が完了すると、LLM は厳格なテストと検証を受けます。これには、LLM がさまざまな分野、スタイル、フォーマットの言語を理解し生成する能力をチェックすることが含まれます。この段階からのフィードバックは、学習ループにフィードバックされ、LLM の能力をさらに向上させます
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2030385/7443" target="_top" id="2030385">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030385" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030385/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 新時代の幕開け
 
@@ -100,7 +110,10 @@ ABBYY が 4 年連続で IDP リーダーに選出された理由をご報告書
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Maxime Vermeir
 

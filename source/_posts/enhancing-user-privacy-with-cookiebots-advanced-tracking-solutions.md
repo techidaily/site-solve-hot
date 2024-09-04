@@ -1,7 +1,7 @@
 ---
 title: Enhancing User Privacy with Cookiebot's Advanced Tracking Solutions
-date: 2024-08-25T22:42:56.769Z
-updated: 2024-08-26T22:42:56.769Z
+date: 2024-09-03T22:48:33.942Z
+updated: 2024-09-04T22:48:33.942Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c2631446be3adbac2ea8607bb00.jpg
@@ -32,7 +32,10 @@ Für leicht zugängliche, durchsuchbare Dokumente im gesamten Unternehmen.
 [Datenblatt herunterladen](https://static1.abbyy.com/abbyycommedia/34873/datasheet-finereaderserver-microsoftsharepoint-en.pdf)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Vorteile der Integration 
 
@@ -53,7 +56,16 @@ Vermeiden Sie Strafen und Bußgelder durch Einhaltung aller Vorschriften des Ges
 Geschäftsdokumente in elektronischer Form können schnell und problemlos zwischen Benutzern ausgetauscht oder nach Belieben neu angeordnet werden. Die Integration von FineReader Server mit SharePoint gewährleistet, dass keine Daten verloren gehen, selbst wenn ein Papierdokument zerstört wird oder nicht mehr auffindbar ist.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<span id="1982457">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Anwendungsszenarien 
 
@@ -68,7 +80,16 @@ Dokumente, die bereits in SharePoint-Bibliotheken gespeichert wurden, können da
 Der FineReader Server-to-SharePoint-Konnektor ermöglicht während der Speicherung die automatische Konvertierung von Nur-Bild-Dateien (eingescannte Dokumente, PDFs, Faxe, TIFF-Dateien und andere) in PDF-Dateien. Alle Dokumente werden als komprimierte, archivierungsfähige Dateien gespeichert.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<span id="1328683">
+					<video width="125" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Möchten Sie mit unserem Expertenteam sprechen?
 

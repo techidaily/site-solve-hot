@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP"
-date: 2024-08-25T22:43:16.812Z
-updated: 2024-08-26T22:43:16.812Z
+date: 2024-09-03T22:48:34.291Z
+updated: 2024-09-04T22:48:34.291Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fb8053ac7214659fa378f042df998d4365da978dd3a640439d6ee68045b0a185.jpg
@@ -67,9 +67,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-echo-of-you-customizing-your-speak-on-reels-and-stories/"><u>[New] In 2024, The Echo of You  Customizing Your Speak on Reels & Stories</u></a></li>
@@ -124,3 +121,10 @@ Connect with us
 <li><a href="https://video-content-creator.techidaily.com/updated-in-2024-the-ultimate-list-10-free-online-video-compression-tools/"><u>Updated In 2024, The Ultimate List 10 Free Online Video Compression Tools</u></a></li>
 <li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Oppo Find N3 Flip? | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
