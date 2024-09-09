@@ -1,22 +1,58 @@
 ---
 title: "ABBYYジャパンと共同開発した最新技術:パーソルプロセス&テクノロジーによる革新"
-date: 2024-09-03T22:48:32.240Z
-updated: 2024-09-04T22:48:32.240Z
+date: 2024-09-08T23:42:08.546Z
+updated: 2024-09-09T23:42:08.546Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c32a9023581f934b16334c5a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYYジャパンと共同開発した最新技術:パーソルプロセス&テクノロジーによる革新
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## パーソルプロセス＆テクノロジー ABBYYジャパンと協業
 
 8月29日, 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## _パーソルプロセス＆テクノロジー ABBYYジャパンと協業 紙やPDFなどの非定型の帳票をデータ化 データ処理の全自動化で圧倒的な業務の効率化を実現_ 
 
 #### _～クラウドとの組み合わせで、手軽に低コストでAI-OCRの導入を可能に～_
@@ -25,6 +61,12 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
 ![](https://static1.abbyy.com/abbyycommedia/22979/pr-japanese-partnership.jpg)
   
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 本提携では、ABBYYが提供するデータキャプチャおよびドキュメント処理ソフトウェアの「ABBYY Flexi Capture（※1）」や自動化・大量の文書変換ソフトウェア「ABBYY FineReader Server（※2）」などのAIを活用した製品のライセンス販売、および導入支援をパッケージ化し、またその後のデータを基幹システムへ自動移行するためのツール開発やRPAの導入支援、製品操作におけるトレーニングにいたるまで、トータルに支援するサービスを提供いたします。
 
@@ -53,6 +95,12 @@ AI-OCRに学習させるための膨大なデータの読み込み作業、企�
 
 ![](https://static1.abbyy.com/abbyycommedia/23240/abbyy-on-azure.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ※ABBYY製品(FineReader Server及びFlexi Capture 以外のサービスも含みます)
 
 ※サービス名称はパーソルP&Tのオリジナルとなります。
@@ -67,6 +115,12 @@ AI-OCRに学習させるための膨大なデータの読み込み作業、企�
 
 ![Data vs Knowledge Mining ABBYY](https://static1.abbyy.com/abbyycommedia/22989/abbyy-on-data-mining_abbyy-on-knowledge-mining-small.png?width=748&height=320&mode=max)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ※ABBYY製品(FineReader Server及びFlexi Capture 以外のサービスも含みます)
   
   
@@ -189,16 +243,3 @@ Connect with us
 <li><a href="https://win-able.techidaily.com/troubleshooting-continuous-lag-in-warframe-solutions-found/"><u>Troubleshooting Continuous Lag in Warframe - Solutions Found</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/unlocking-advanced-data-insights-with-our-cookiebot-technology-platform/"><u>Unlocking Advanced Data Insights with Our Cookiebot Technology Platform</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: "Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses"
-date: 2024-09-03T22:48:34.233Z
-updated: 2024-09-04T22:48:34.233Z
+date: 2024-09-08T23:42:10.443Z
+updated: 2024-09-09T23:42:10.443Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b074d81c3008e2f891a827245d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iGuana and ABBYY join forces to help enterprises streamline and automate accounts payable processes
 
 February 15, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, a leading provider of technologies and solutions to action information, and [iGuana](https://iguana-idm.com/ "IGuana"), a leading Document Management and Digital Archiving Solutions provider for the BENELUX region, are pleased to announce their partnership.
 
 iGuana and ABBYY decided to join forces in an effort to help enterprise-level customers streamline and automate invoice processing for Accounts Payable (AP) departments. The primary goal of the partnership is to integrate two powerful enterprise software platforms into a one-stop-shop solution for automated invoice capture, data extraction, intelligent processing and digital archiving.
@@ -147,16 +165,3 @@ Connect with us
 <li><a href="https://solve-hot.techidaily.com/transforming-doc-mastery-with-abbyy-marketplace-advanced-llm-and-rag-technology-unleashed/"><u>Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: Enhancing Online Engagement with Cookiebot Technology Solutions
-date: 2024-09-03T22:48:35.335Z
-updated: 2024-09-04T22:48:35.335Z
+date: 2024-09-08T23:42:11.479Z
+updated: 2024-09-09T23:42:11.479Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5396014f071443efd9e1f13ed6c2f299f41c767371cdaf8ce5e5162404d28c7d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhancing Online Engagement with Cookiebot Technology Solutions
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Finanzabteilung von Costain meistert digitale Transformation dank ABBYY-Technologie
 
 3\. Juni 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, ein globaler Anbieter von Technologien und Unternehmenslösungen für Digital Intelligence, wurde von Costain, einem Unternehmen für intelligente Infrastrukturlösungen, als Technologiepartner für die strategische Digitalisierung des eigenen Finanzbereichs ausgewählt.
 
 Ein essentieller Schritt von Costains Digitalstrategie bestand in der Umstellung des Procure-to-Pay-Betriebs. Das Unternehmen hat damit enorme Kosteneinsparungen bei einem großen Infrastrukturprojekt in London erreicht. Durch die Aufstockung seines Finanzteams hat die Costain Group erfolgreich eine End-to-End-Lösung implementiert, mit der Rechnungen abgerufen, erfasst, identifiziert und die wesentlichen Daten darin extrahiert werden können. Anschließend werden die Rechnungen an RPA-Bots (Robotic Process Automation) übertragen, die sie schließlich in das ERP-System (Enterprise Resource Planning) einbuchen.
@@ -110,10 +128,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://youtube-clips.techidaily.com/perfect-visual-experience-on-youtube-with-professional-techniques/"><u>Perfect Visual Experience on YouTube with Professional Techniques</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-vivo-v30-lite-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Vivo V30 Lite 5G</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,26 +1,56 @@
 ---
 title: "Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017"
-date: 2024-09-03T22:48:30.430Z
-updated: 2024-09-04T22:48:30.430Z
+date: 2024-09-08T23:42:06.774Z
+updated: 2024-09-09T23:42:06.774Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d0ab1cb7b8b22999ef087a383ed3db769492e1f7dd341f7046ddf8ecb2ad394e.png
 ---
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Over 9.3 billion pages of documents processed annually using ABBYY technologies!
 
 August 29, 2017
 
 ![](https://static1.abbyy.com/abbyycommedia/25837/93m-pages.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Thousands of companies across every industry process more than 9.3 billion pages\* of documents and forms annually using ABBYY technologies! We create intelligent technologies that help businesses and knowledge workers achieve greater efficiency, accelerate decision-making, and drive revenue. We offer a complete range of AI-based technologies and solutions transforming business documents and content into business value. And we provide digital transformation solutions to financial services, insurance, transportation, healthcare and other industries, helping them achieve the next wave of growth.
 
 [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [OCR](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -126,10 +156,3 @@ Connect with us
 <li><a href="https://audio-editing.techidaily.com/unlocking-creative-power-in-logic-pro-x-with-these-top-8-plugins-for-2024/"><u>Unlocking Creative Power in Logic Pro X with These Top 8 Plugins for 2024</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

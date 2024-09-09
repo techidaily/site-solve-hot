@@ -1,24 +1,54 @@
 ---
 title: "Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen"
-date: 2024-09-03T22:48:31.408Z
-updated: 2024-09-04T22:48:31.408Z
+date: 2024-09-08T23:42:07.737Z
+updated: 2024-09-09T23:42:07.737Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e808122dfec490930e9df565.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen
 
 E-Book
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Wie KI und ML Banken dabei helfen, Cyberkriminellen einen Schritt voraus zu sein
 
 ![eBook - Wie KI und ML Banken dabei helfen, Cyberkriminellen einen Schritt voraus zu sein | ABBYY](https://static1.abbyy.com/abbyycommedia/32232/01b-banking-on-intelligence-de-360x232.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Im Bankwesen sind die jährlichen Kosten für Cyberangriffe unter allen Branchen am höchsten – mehr als 18,3 Millionen US-Dollar pro Jahr und Unternehmen. Zwar kann die Einhaltung von KYC- und AML-Vorschriften Betrug und Diebstahl wirksam verhindern, doch müssen die Banken wachsam bleiben, um mit den sich schnell entwickelnden Methoden der Cyberkriminalität Schritt zu halten.
 
 Um ihre Produktivität zu erhöhen, setzen Finanzinstitute mehr und mehr auf Automatisierung, mobile Technologien und kontaktlose Interaktionen. Diese Maßnahmen können aber neue Schwachstellen schaffen, die sich Cyberkriminelle zunutze machen. Was können Finanzinstitute gegen die ständigen Angriffe unternehmen?
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Jetzt herunterladen!
 
 Um raffinierte Verbrechen zu verhindern, braucht es raffinierte Maßnahmen. Digital Intelligence ist ein neuer Ansatz zur Verwendung der neuesten Technologien für künstliche Intelligenz und maschinelles Lernen, um Schlüsselfunktionen bereitzustellen, die Banken die nötigen Mittel an die Hand geben, um sich vor Betrug und anderen Gesetzesverstößen zu schützen.
@@ -30,10 +60,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 * verdächtige Verhaltensmuster in Prozessen zu entdecken
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY.
 
@@ -42,16 +72,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 

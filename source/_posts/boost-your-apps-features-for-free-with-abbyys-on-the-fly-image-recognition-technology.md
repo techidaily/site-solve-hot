@@ -1,22 +1,40 @@
 ---
 title: Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.
-date: 2024-09-03T22:48:32.929Z
-updated: 2024-09-04T22:48:32.929Z
+date: 2024-09-08T23:42:09.245Z
+updated: 2024-09-09T23:42:09.245Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e18468f4536db088e3157824.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Real-Time Recognition SDK Elevates Mobile User Experience with Free OCR
 
 December 01, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _New mobile SDK with ABBYY OCR enables developers to create mobile apps that leverage text recognition directly on a smartphone camera preview screen._
 
 ABBYY®, a leading provider of technologies and solutions to action information, today announced the release of the [ABBYY Real-Time Recognition SDK](http://rtrsdk.com), a software development kit enabling developers to create iOS and Android apps that eliminate photo taking and saving to capture information. The SDK is powered by ABBYY’s best-in-class optical character recognition (OCR) technology.
@@ -102,10 +120,3 @@ Connect with us
 <li><a href="https://common-error.techidaily.com/simple-solution-resolving-the-steam-disk-write-error/"><u>Simple Solution: Resolving the Steam Disk Write Error</u></a></li>
 <li><a href="https://buynow-tips.techidaily.com/worldwide-standard-moco-keyboard-with-unfolding-design-wireless-bluetooth-functionality/"><u>Worldwide Standard MOCO Keyboard with Unfolding Design, Wireless Bluetooth Functionality</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

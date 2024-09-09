@@ -1,22 +1,40 @@
 ---
 title: "ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP"
-date: 2024-09-03T22:48:34.291Z
-updated: 2024-09-04T22:48:34.291Z
+date: 2024-09-08T23:42:10.500Z
+updated: 2024-09-09T23:42:10.500Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fb8053ac7214659fa378f042df998d4365da978dd3a640439d6ee68045b0a185.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Streamlines Sales Structure, Appoints Joe Rayfield Vice President
 
 February 18, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _2020 kicks off a new decade and a new era at ABBYY._ 
 
   
@@ -121,10 +139,3 @@ Connect with us
 <li><a href="https://video-content-creator.techidaily.com/updated-in-2024-the-ultimate-list-10-free-online-video-compression-tools/"><u>Updated In 2024, The Ultimate List 10 Free Online Video Compression Tools</u></a></li>
 <li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Oppo Find N3 Flip? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

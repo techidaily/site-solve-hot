@@ -1,7 +1,7 @@
 ---
 title: "Navigating the 'New Normal': How and Why Cloud IT Investments Are Set to Soar"
-date: 2024-09-03T22:48:34.096Z
-updated: 2024-09-04T22:48:34.096Z
+date: 2024-09-08T23:42:10.316Z
+updated: 2024-09-09T23:42:10.317Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/819ca37a79eec3bdd5aa4e06aa1b76048f3e0307801a786c71f9bbf8a10f29d0.jpg
@@ -19,31 +19,49 @@ September 16, 2020
 
 ![Cloud IT Spending Forecast Cover | ABBYY Blog Post](https://static3.abbyy.com/abbyycommedia/29601/cloud-it-spending-forecast-cover.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 After many years of continuous growth, IT investments are predicted to [drop by 7.3% in 2020](https://www.gartner.com/en/newsroom/press-releases/2020-07-13-gartner-says-worldwide-it-spending-to-decline-7-point-3-percent-in-2020), according to Gartner, with the largest gaps expected in spending for hardware such as IT devices and data center infrastructure. At the same time, this renowned market research company predicts worldwide revenues that relate to public cloud IT services [to increase by 6.3% in 2020](https://www.gartner.com/en/newsroom/press-releases/2020-07-13-gartner-says-worldwide-it-spending-to-decline-7-point-3-percent-in-2020). At first glance, the reports deliver contradictory messages; but in reality, they underpin the fact that the cloud computing will continue to surge during the months ahead.
 
 ### Fast adoption of cloud computing IT within a slow IT market
 
 ![pursue cloud IT strategies](https://static1.abbyy.com/abbyycommedia/29600/cloud-it-spending-forecast-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In the beginning of 2020, the COVID-19 pandemic reached the world quickly and caught enterprise companies by surprise. Very strict lock-down regulations in many countries cut off supply chains, made customer meetings impossible, banned employees from offices, and caused an atmosphere of uncertainty. This led to shrinking revenue, investment cut-offs, and reductions in spending (including IT) in many companies.
 
 As economies gradually re-open during the post-pandemic phase, the need to conduct postponed IT projects will lead to new IT spending—but in a changed world. In the ‘new normal’ post-pandemic times, companies will re-evaluate their IT plans, and very likely pursue cloud IT strategies.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Why will enterprises move their IT into the cloud faster than ever?
 
 ![cloud-based IT systems](https://static1.abbyy.com/abbyycommedia/29598/cloud-it-spending-forecast-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The following trends will underpin the pursuits of enterprises to move their IT infrastructure into the cloud:
 
@@ -53,18 +71,6 @@ The following trends will underpin the pursuits of enterprises to move their IT 
 
 ![moving IT into the cloud](https://static1.abbyy.com/abbyycommedia/29599/cloud-it-spending-forecast-3.png)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 As enterprise customers will be increasing their spending for cloud-based IT systems, IT providers must get ready with offerings that meet the demand of their clients in the ‘new normal’ post-pandemic world: the need for flexible and scalable cloud-based applications that can be accessed by users 24/7 from wherever people need to access them—from the standard office, from the home office, or from the beach.
 
 [Cloud](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) 
@@ -72,18 +78,24 @@ As enterprise customers will be increasing their spending for cloud-based IT sys
 ![Eva Weber ABBYY](https://static2.abbyy.com/abbyycommedia/25705/evaweber-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Eva Weber
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

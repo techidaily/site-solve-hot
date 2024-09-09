@@ -1,7 +1,7 @@
 ---
 title: "Blue Prism : La Technologie De L'Intelligence Des Processus Pour Améliorer Et Perfectionner La Performance D'Automatisation"
-date: 2024-09-03T22:48:33.618Z
-updated: 2024-09-04T22:48:33.618Z
+date: 2024-09-08T23:42:09.870Z
+updated: 2024-09-09T23:42:09.870Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/43a1f72d8140b4852b3ec1b168bf1a5fdf9e93b16a9fa8da6c72d7e20d694e32.jpg
@@ -17,8 +17,32 @@ thumbnail: https://thmb.techidaily.com/43a1f72d8140b4852b3ec1b168bf1a5fdf9e93b16
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Blueprism News 848X444](https://static4.abbyy.com/abbyycommedia/34371/blueprism-news-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### _Blue Prism intègre ABBYY Timeline à Blue Prism Capture pour offrir une découverte complète des processus et des tâches en tant que fonctionnalité standard._
 
 Blue Prism® (AIM : PRSM), Blue Prism, pionnier mondial et leader du marché de l’automatisation intelligente, et ABBYY, entreprise spécialisée dans l’intelligence numérique, ont annoncé aujourd’hui la sortie de Blue Prism Process Intelligence Powered by ABBYY Timeline sur la plateforme d’automatisation Blue Prism. Les clients pourront ainsi découvrir rapidement les meilleures opportunités d’automatisation à partir de données éparpillées dans l’entreprise.
@@ -47,20 +71,8 @@ Cette nouvelle offre est essentielle à la réussite de toute entreprise engagé
 
 [En savoir plus](https://www.blueprism.com/products/blue-prism-process-intelligence/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-product-2021-q4-10-1-blue-prism-process-intelligence) sur Blue Prism Process Intelligence Powered by ABBYY Timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Informations pour les rédacteurs : 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### À propos de Blue Prism
 
 Blue Prism est un leader mondial de la robotisation automatisée des processus (RPA) et de l’automatisation intelligente, et transforme le travail. Chez Blue Prism, nous comptons plus de 2 000 clients dans plus de 170 pays et 70 secteurs, dont 30 % appartiennent au _classement Forbes Global 2 000_. Nos clients créent de la valeur avec de nouvelles méthodes de travail et restituent des millions d’heures de travail à leur entreprise. Notre solution d’automatisation digitale intelligente sécurisée est accessible à tous, et libère les humains pour qu’ils puissent réimaginer leur travail. Pour en savoir plus, rendez-vous sur [www.blueprism.com](https://www.blueprism.com/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-brand-2021-fy-5-13-boilerplate) ou suivez-nous sur Twitter [@blue\_prism](https://twitter.com/blue%5Fprism) et sur [LinkedIn](https://www.linkedin.com/company/blue-prism-limited).
@@ -68,10 +80,10 @@ Blue Prism est un leader mondial de la robotisation automatisée des processus (
 © 2021 Blue Prism Limited. « Blue Prism », le logo « Blue Prism » et l’image de prisme sont des marques commerciales ou des marques déposées par les entreprises du groupe Blue Prism. Tous droits réservés. 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### À propos d’ABBYY
 
@@ -79,21 +91,15 @@ ABBYY permet aux entreprises d’appréhender de manière précise leurs process
 
 ABBYY et le logo ABBYY sont des marques déposées par ABBYY Software Ltd. Les produits mentionnés ici peuvent être des marques et/ou des marques enregistrées par leurs propriétaires reconnus.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Contact presse :
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030385/7443" target="_top" id="2030385">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030385" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030385/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Paul Taylor 
 
@@ -104,10 +110,10 @@ ABBYY et le logo ABBYY sont des marques déposées par ABBYY Software Ltd. Les p
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

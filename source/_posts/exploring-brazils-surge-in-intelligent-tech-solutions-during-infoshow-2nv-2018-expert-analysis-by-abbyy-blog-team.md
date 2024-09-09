@@ -1,12 +1,18 @@
 ---
 title: Exploring Brazil's Surge in Intelligent Tech Solutions During InfoShow 2Nv 2018 | Expert Analysis by ABBYY Blog Team
-date: 2024-09-03T22:48:34.756Z
-updated: 2024-09-04T22:48:34.756Z
+date: 2024-09-08T23:42:10.951Z
+updated: 2024-09-09T23:42:10.951Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545b8fd2ecff1c5ec11c0e45ff.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Exploring Brazil's Surge in Intelligent Tech Solutions During InfoShow 2Nv 2018 | Expert Analysis by ABBYY Blog Team
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,16 +23,40 @@ September 14, 2018
 
 ![Key takeaways from Information Show 2018 Congress in Sao Paolo Brazil | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25311/9576e_blog_brazil-signalsblog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Ranked as the [9th world’s largest technology market](http://web6.bnamericas.com/en/news/ict/brazil-the-worlds-ninth-it-market-but-needs-incentives/), Brazil has always attracted innovative companies from across the globe. This year's [Information Show 2018 Congress](http://informationshow.com.br/), which was held in São Paulo, attracted more than 700 professionals from many world's leading technology companies. The Congress has been billed as Latin America's largest meeting on Information Management, Documents and Digital Business and was sponsored by world's leading providers of document processing technologies including [ABBYY](https://tools.techidaily.com/abbyy/products/), IBM and Fujitsu to name but a few.
 
 With [Content Intelligence](https://tools.techidaily.com/abbyy/products/) (CI) panning out as the leading document automation technology, efficient document management using artificial intelligence (AI) can be challenging. Information Show 2018 Congress was conceived to address the challenges, identify opportunities especially since the protracted economic crisis of the last few years had a significant impact on the IT market and its players as large innovative projects were frozen for an indefinite period. The show also strived to provide perspective on the entire context of Enterprise Content Management (ECM) solutions to make companies more competitive in the era of data-driven decision-making. It is also an important annual gathering point for IT professionals for sharing industry knowledge, ideas and expertise and for networking.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to tackle the digital transformation challenge effectively
 
 Business-critical information accumulates as technology advances, putting pressure on businesses to find more efficient way of processing data. A [survey by AIIM](http://www.m-files.com/blog/digital-transformation-intelligent-information-management-10-data-points/) concludes that the rising tide of information chaos and confusion is creating a demand for new information management practices that extend beyond traditional ECM. However, latest advances in AI and automation is also creating huge opportunities for businesses, Maria Ilicheva, the Regional Manager of ABBYY in Latin America told the Congress attendees. A good example is the [new FlexiCapture platform](https://tools.techidaily.com/abbyy/products/) that enables organizations to automatically classify, extract, validate and direct business critical data from written customer communications and operational processes – such as customer claims, applications and transactions, she said.
 
 For ABBYY, Brazil is a top priority market, despite its instability and complexity, presenting a favorable environment for IT business. Brazil was the world's 7th largest IT market before the 2016 the economic crisis resulted in the decrease of the GDP by 3.6% with reductions across all sectors of the economy including IT. The good news though is that IT sector is expected to post growth of 5.8% this year, according to estimates released by IDC Brazil. This is already a visible evidence that some of the companies which abandoned their IT projects in the wake of the crisis are trickling back. The Government is also encouraging foreign participation in Brazilian ICT companies through the Association for Promotion of the Excellence of the Brazilian Software (Softex) and the Brazilian Agency of Promotion of exports and investments (Apex-Brazil).
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Taking responsibility for social progress
 
 As a global leader, ABBYY is actively trying to expand its footprint in the Latin America . In May this year, the company was a participant of the RPA Congress which brought together consultants, industry experts and users to discuss and exchange experiences on the transformation power of RPA. Along with IBM, Fujitsu and other big players, ABBYY was a Diamond Sponsor of the 9th Session of the Information Show that was recently concluded in Brazil.
@@ -38,10 +68,16 @@ This is not ABBYY's first foray into the Brazilian market. Earlier, the company 
 [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Events](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

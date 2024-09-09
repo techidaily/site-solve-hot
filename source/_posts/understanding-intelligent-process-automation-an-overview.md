@@ -1,7 +1,7 @@
 ---
 title: "Understanding Intelligent Process Automation: An Overview"
-date: 2024-09-03T22:48:33.469Z
-updated: 2024-09-04T22:48:33.469Z
+date: 2024-09-08T23:42:09.720Z
+updated: 2024-09-09T23:42:09.720Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dba9ef92930f5d20237b2a75fb5ee76b8bab75f866f82161cefcc63f630df758.jpg
@@ -11,12 +11,30 @@ thumbnail: https://thmb.techidaily.com/dba9ef92930f5d20237b2a75fb5ee76b8bab75f86
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Intelligent Process Automation?
 
 June 03, 2022
 
 ![](https://static2.abbyy.com/abbyycommedia/35736/intelligent-processing-automation-blog-cover-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Intelligent Process Automation (IPA)?
 
 [Intelligent Process Automation](https://tools.techidaily.com/abbyy/products/) is grounded in the recognition that business processes have two main dimensions: the process itself and the data (typically found in documents) that fuels it. On the process side, it’s vital to understand how processes actually work, not just how they should work. And any successful approach to process automation would be incomplete without consideration of the documents that carry information from one step to the next.
@@ -30,10 +48,16 @@ From the dawn of the digital age, businesses have been chasing the goal of true 
 Today, organizations seeking true process automation are finding the answer in an approach that’s both simpler and more complex: complex in its multifaceted nature, but simple for humans to implement and manage. Welcome to [Intelligent Process Automation (IPA).](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## What are the capabilities of Intelligent Process Automation?
 
@@ -59,18 +83,6 @@ While many traditional approaches to process automation focused on data flows, m
 
 [Learn more about ABBYY Vantage, the industry’s only low-code / no-code intelligent document processing platform.](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Intelligent Process Automation—why now?
 
 As we mentioned earlier, the drive to automate is nothing new, but the onset of the COVID-19 pandemic forced organizations across industries to accelerate their automation initiatives. [As digital analyst Brian Solis commented in CIO magazine](https://www.cio.com/article/193608/covid-19-accelerates-enterprise-use-of-automation-in-digital-transformation.html?msclkid=04f68554cef011ec8a7183a473c86cf2), “COVID-19 pushed legacy processes \[…\] well beyond peak capacity. They were also exposed for their inefficiencies and reliance on manual processing.”
@@ -80,10 +92,10 @@ As the initial shock of the pandemic faded and the economy began to recover, bus
 Over the last two years, businesses have faced ample incentives to light a fire under their automation journeys, and they wasted no time taking action. According to a recent survey, [98 percent of IT decision makers have implemented new automation technologies in the last two years](https://tools.techidaily.com/abbyy/products/), spurred by the pandemic. Better preparing the company to adapt to remote and hybrid working was the top cited reason for the change, followed by alleviating employee burnout and (somewhat surprisingly) pressure from employees to implement.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## What's the difference between IPA and RPA?
 
@@ -92,16 +104,10 @@ There’s no question that [robotic process automation](https://tools.techidaily
 ![Icon with gears, paper, and a head representing how intelligent process automation encompasses the &quot;big picture&quot; of applying AI technologies to mirror human decision-making at every stage with Intelligent Process Automation. And a description of what is IPA, text repeated below.](https://static1.abbyy.com/abbyycommedia/35771/what-is-ipa-technology-lg-2.png)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Intelligent Process Automation encompasses the “big picture” of business processes, applying AI technologies (e.g., Intelligent Document Processing, process mining, task mining, natural language processing, machine learning, advanced analytics) to mirror human decision-making at every stage. When and where relatively simple, rules-based decision-making is required, RPA can be an appropriate solution and may be used quite successfully. IPA capabilities allow you to [scale RPA projects](https://tools.techidaily.com/abbyy/products/) by expanding automation further.
 
@@ -110,10 +116,10 @@ Intelligent Process Automation encompasses the “big picture” of business pro
 By combining the capabilities of Process Intelligence and Intelligent Document Processing, Intelligent Process Automation helps businesses understand processes before, during, and after automation. It identifies deviations or inefficiencies that can waste time and resources. This means businesses can use real-world data from their own operations to identify and prioritize processes most likely to benefit from automation. They also gain insight into how documents function as the basis for skilled decision-making at every stage of the process. These insights enable the business to determine how they can manage documents to make the process work more efficiently, and then apply the document skills needed to optimize content processing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Which industries can benefit from Intelligent Process Automation?
 
@@ -137,6 +143,12 @@ While earlier approaches to automation required significant infrastructure inves
 3. Intelligently automate where it makes sense, prioritizing processes that offer the greatest potential ROI from automation
 4. Automate monitoring of results to enable continuous improvement.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The future of process automation is intelligent
 
 By blending the unique capabilities of Process Intelligence and Intelligent Document Processing, Intelligent Process Automation (IPA) is ushering in a new era for business processes optimization. Organizations seeking to bridge the gaps encountered in earlier approaches and tap into the full power of AI are uncovering new possibilities—without having to make huge infrastructure investments or hire entire teams of data scientists.
@@ -148,10 +160,10 @@ Find out how [ABBYY Intelligent Process Automation solutions](https://tools.tech
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Process Mining](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

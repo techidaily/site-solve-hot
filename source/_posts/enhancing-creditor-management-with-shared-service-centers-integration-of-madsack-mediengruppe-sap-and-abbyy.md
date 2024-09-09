@@ -1,22 +1,46 @@
 ---
 title: Enhancing Creditor Management with Shared Service Centers - Integration of MADSACK Mediengruppe, SAP, and ABBYY
-date: 2024-09-03T22:48:33.927Z
-updated: 2024-09-04T22:48:33.927Z
+date: 2024-09-08T23:42:10.167Z
+updated: 2024-09-09T23:42:10.167Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6d6520e192a843298c5f3fb60d79f701e9d849b7c957109090842f5892749c79.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhancing Creditor Management with Shared Service Centers - Integration of MADSACK Mediengruppe, SAP, and ABBYY
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Shared Services Center der MADSACK Mediengruppe erhöht in der Kreditorenbuchhaltung in SAP dank ABBYY und Beck IT den Automatisierungsgrad
 
 10\. Oktober 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Shared Services Center der MADSACK Mediengruppe erhöht in der Kreditorenbuchhaltung in SAP dank ABBYY und Beck IT den Automatisierungsgrad_
 
 ABBYY, ein führender globaler Anbieter von Lösungen für die Informationsverarbeitung, liefert Beck IT, einem führenden Anbieter von Workflow-Lösungen und Standard-Add-Ons im SAP-Umfeld und zertifizierten ABBYY Partner, eine leistungsstarke, betriebsbereite Lösungskomponente für die Rechnungserfassung. Diese setzt Beck IT in der neuen End-to-End-Lösung für die automatisierte Rechnungsverarbeitung in SAP bei der MDG Medien Dienstleistungsgesellschaft, dem Shared Services Center der MADSACK Mediengruppe, bereits erfolgreich ein. Mit der neuen Lösung konnte die MDG den Automatisierungsgrad in ihrer Kreditorenbuchhaltung weiter erhöhen – bis hin zur Dunkelverarbeitung. So kann sie dem stetig wachsenden Belegaufkommen bei gleichbleibender Personalstärke zur Verarbeitung begegnen und ihren Kunden einen herausragenden, schnellen und kosteneffizienten Service anbieten.
@@ -142,16 +166,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-hot.techidaily.com/transforming-accounts-payable-how-iguras-integration-with-abbyy-enhances-efficiency-for-businesses/"><u>Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/unlocking-cost-reduction-with-process-mining-a-case-study-on-saving-millions-from-the-customer-angle/"><u>Unlocking Cost Reduction with Process Mining: A Case Study on Saving Millions From the Customer Angle</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,12 +1,18 @@
 ---
 title: "How McDonald's Employs ABBYY OCR Tech in Their Mobile App: Insights From the Official ABBYY Blog"
-date: 2024-09-03T22:48:32.610Z
-updated: 2024-09-04T22:48:32.610Z
+date: 2024-09-08T23:42:08.938Z
+updated: 2024-09-09T23:42:08.938Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a01205544ff8168a67a8bfa126c67a299939543e9188165b03ba61640e3fc085.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How McDonald's Employs ABBYY OCR Tech in Their Mobile App: Insights From the Official ABBYY Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,14 +23,38 @@ January 15, 2015
 
 ![abbyy cloud ocr sdk | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/28766/ocrsdk-visual-default.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 McDonald’s in Germany launched a special promotion during the FIFA World Cup in Brazil: By sending the unique code, which was printed on his cup or food packaging, each McDonald’s customer had the opportunity to win a valuable prize. To make the data entry more convenient for the participants the company offered a possibility to photograph the code with a mobile phone instead of entering it manually. To enable this, the McDonald’s creative agency Razorfish developed a special app that used the ABBYY Cloud OCR SDK for reading out the individual codes and sending it directly to the database for the lottery.
 
 ![screenshot-90-mcdonalds_450px](https://static1.abbyy.com/abbyycommedia/25807/screenshot-90-mcdonalds_450px-300x201.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![140512_08_worldcup_ios_wf_09_submit_code_50_240px](https://static1.abbyy.com/abbyycommedia/25808/140512_08_worldcup_ios_wf_09_submit_code_50_240px-169x300.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Customer Experience](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -133,10 +163,3 @@ Connect with us
 <li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
 <li><a href="https://bypass-frp.techidaily.com/vivo-g2-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Vivo G2 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

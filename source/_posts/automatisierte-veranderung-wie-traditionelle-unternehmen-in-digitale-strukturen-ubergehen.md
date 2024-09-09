@@ -1,7 +1,7 @@
 ---
 title: "Automatisierte Veränderung: Wie Traditionelle Unternehmen in Digitale Strukturen Übergehen"
-date: 2024-09-03T22:48:32.916Z
-updated: 2024-09-04T22:48:32.916Z
+date: 2024-09-08T23:42:09.230Z
+updated: 2024-09-09T23:42:09.230Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d3cca1cb8e22e05445139021e91e25daa93afe1718351a0f0a580312ddf158d.jpg
@@ -15,12 +15,24 @@ thumbnail: https://thmb.techidaily.com/3d3cca1cb8e22e05445139021e91e25daa93afe17
 
 German
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Sprecher
 
 ![82 Slavasatanovsky 198X198](https://static4.abbyy.com/abbyycommedia/33243/logo-kpmg-forcards.png) 
 
 ![82 Slavasatanovsky 198X198](https://static5.abbyy.com/abbyycommedia/33240/82-slavasatanovsky-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Slava Satanovsky
 
 Manager, Consulting, **KPMG**
@@ -28,33 +40,33 @@ Manager, Consulting, **KPMG**
 ![43 Susannerichter Wills 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![43 Susannerichter Wills 198X198](https://static2.abbyy.com/abbyycommedia/29475/43-susannerichter-wills-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Susanne Richter-Wills
 
 Director Sales DACH and France, **ABBYY**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Übersicht
 
 Die Pandemie hat den strategischen Wert von Investitionen in die digitale Transformation stark verstärkt. Ungeachtet des wirtschaftlichen Abschwungs haben Unternehmen ihre Investitionen in Automatisierungstechnologien erhöht – und das nicht nur um Transaktionskosten zu senken, sondern auch um die Kundenbindung zu verbessern. Eine digitale Transformation ermöglicht Unternehmen datengestützte Einblicke in ihr Tagesgeschäft und lässt sie zusätzlich Möglichkeiten zur Effizienzsteigerung zu identifizieren. Es gibt jedoch weiterhin große Herausforderungen bei der Operationalisierung und Priorisierung von Investitionen.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Das sind die Themen:
 
 In diesem Expert Talk sprechen Slava Satanovsky, Manager, Consulting bei KPMG, einem ABBYY Premium Technology Alliance Partner, und Susanne Richter-Wills, Director Sales DACH und Frankreich bei ABBYY, über Best Practices und mehr im Zusammenhang mit der digitalen Transformation, insbesondere:
@@ -64,13 +76,19 @@ In diesem Expert Talk sprechen Slava Satanovsky, Manager, Consulting bei KPMG, e
 * Digitale Transformation beschleunigen – Durch Low-Code / No-Code-Anwendungen zur intelligenten Dokumentenverarbeitung mit Machine Learning und Künstlicher Intelligenz
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Webinar-Aufzeichnung hier anfordern
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -81,19 +99,13 @@ All personal information collected via this method is under full scope of all pr
 [![Mit Automatisierung](https://static2.abbyy.com/abbyycommedia/33747/mit-automatisierung.jpg)](https://www.youtube.com/watch?v=8hudU9ntb40) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Haben Sie weiterführende Fragen oder möchten Sie mit uns über ein konkretes Projekt sprechen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:

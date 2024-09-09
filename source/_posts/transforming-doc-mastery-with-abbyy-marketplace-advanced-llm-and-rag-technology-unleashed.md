@@ -1,22 +1,40 @@
 ---
 title: "Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed"
-date: 2024-09-03T22:48:30.660Z
-updated: 2024-09-04T22:48:30.660Z
+date: 2024-09-08T23:42:06.997Z
+updated: 2024-09-09T23:42:06.997Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0ebef61d0b2c8908bbc43dc1da12abaf166bb4f6229b3a45bf569455ab91d1f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY améliore sa Marketplace pour répondre à la demande croissante de données pour les LLM et simplifier l'intégration des RAG
 
 Mai 15, 2024
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/content-images/abbyy-redesigned-marketplace-preview.jpg?h=418&iar=0&w=743)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### ABBYY propose désormais une bibliothèque enrichie pour les fonctions d'IA documentaire qui simplifie le déploiement, accélère la rentabilité et maximise l'efficacité de la génération augmentée par récupération (RAG) dans ABBYY Vantage.
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), multinationale spécialisée dans l’IA, annonce une version améliorée de sa Marketplace, repensée pour les compétences d’IA documentaires. Cette évolution intervient alors que les entreprises ont un besoin croissant de données de haute qualité, essentielles à l'utilisation efficace des LLM. En s'appuyant sur les contributions d'ABBYY et de son réseau de partenaires, la Marketplace d'ABBYY offre une bibliothèque en ligne d'actifs d'IA, conçus spécifiquement pour enrichir les capacités d'ABBYY Vantage, sa plateforme low-code de traitement intelligent des documents (IDP).
@@ -41,6 +59,18 @@ Bruce Orcutt, Chief Marketing Officer d'ABBYY
 
 ABBYY Vantage assure une extraction, un traitement et une classification précis et efficaces des données opérationnelles clés dans les documents, permettant un traitement direct de 95 % des documents avec une précision de 99 %. En tant que première plateforme low-code pour l'IDP, Vantage offre une interface intuitive aux développeurs et réduit ainsi leur dépendance vis-à-vis des départements informatiques. Ils peuvent notamment intégrer facilement des compétences d'IA pré-entraînées, capables de traiter des documents de tout format, structure et langue, à tout moment.
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### À PROPOS D’ABBYY
 
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
@@ -137,10 +167,3 @@ Connect with us
 <li><a href="https://solve-hot.techidaily.com/verstehen-sie-den-wechsel-von-etl-zu-elt-und-seinen-einfluss-fur-datenmanagement-strategien/"><u>Verstehen Sie Den Wechsel Von ETL Zu ELT Und Seinen Einfluss Für Datenmanagement-Strategien</u></a></li>
 <li><a href="https://techidaily.com/xiaomi-redmi-a2-won-t-play-mp4-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Xiaomi Redmi A2 won’t play MP4 files</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

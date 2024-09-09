@@ -1,22 +1,46 @@
 ---
 title: "ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News"
-date: 2024-09-03T22:48:30.255Z
-updated: 2024-09-04T22:48:30.255Z
+date: 2024-09-08T23:42:06.627Z
+updated: 2024-09-09T23:42:06.627Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5404a87cd8723307a9d0e6c73b4b785c1ac7bfa81bbe5b64a2be76707a27a2f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The official communication on COVID-19 situation from Ulf Persson, CEO, ABBYY Group
 
 March 23, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The last few weeks have brought unprecedented developments to our communities and the world at large. Like many companies across the globe, one of the measures ABBYY decided to implement is remote work for all employees. Rest assured that ABBYY is running business as usual. We’re well-equipped to work remotely and are still accessible through all normal channels of communication. Our technical support, customer service, professional services, and other teams you rely on every day remain available to prevent any interruption to our normal operations.
 
 To ensure we maintain these high levels of service,ABBYY is closely following the advice and guidelines of the World Health Organization and local agencies and has implemented a strict travel policy for our employees to minimize in-person meetings with customers and partners. Instead, we’re using technology to maintain strong communications using virtual platforms like Zoom and Microsoft Teams. We also remain readily accessible via traditional online methods and phone.
@@ -98,16 +122,3 @@ Connect with us
 <li><a href="https://techidaily.com/undeleted-lost-videos-from-moto-g34-5g-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Moto G34 5G</u></a></li>
 <li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-best-of-the-best-professional-animation-software-for-mac-and-windows/"><u>Updated In 2024, Best of the Best Professional Animation Software for Mac and Windows</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference
-date: 2024-09-03T22:48:34.027Z
-updated: 2024-09-04T22:48:34.027Z
+date: 2024-09-08T23:42:10.257Z
+updated: 2024-09-09T23:42:10.257Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e591b5728fa84d66a3323b91b4ed2e3f5b0efaa53a757d0b8f7bbc674ee0d976.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Advocates the Importance of Understanding Your Customer at AIIM Conference 2017
 
 February 28, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Executives Lead Sessions on How to Optimize Digital Transformation and Content Analytics Initiatives_
 
 ABBYY®, a leading provider of technologies and solutions to action information, will share with AIIM Conference 2017 attendees how having access to the right data empowers organizations to better understand customers and make smarter decisions faster. The annual conference is taking place March 14-16 in Orlando, Florida where executives will lead several sessions and demonstrate solutions that optimize the use of text and data in business processes. The company will be meeting with several organizations in its interactive booth #22.
@@ -130,16 +148,3 @@ Connect with us
 <li><a href="https://techidaily.com/unlock-a-disable-iphone-12-mini-using-itunes-by-drfone-ios-unlock-ios-unlock/"><u>Unlock a disable iPhone 12 mini using itunes</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

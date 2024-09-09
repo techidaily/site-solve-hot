@@ -1,7 +1,7 @@
 ---
 title: "Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog"
-date: 2024-09-03T22:48:34.122Z
-updated: 2024-09-04T22:48:34.122Z
+date: 2024-09-08T23:42:10.339Z
+updated: 2024-09-09T23:42:10.339Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae77072947e6de85d2a8d631e24f7937491d0d11e8e4a458198601a87eb9beb.jpg
@@ -11,6 +11,12 @@ thumbnail: https://thmb.techidaily.com/6ae77072947e6de85d2a8d631e24f7937491d0d11
 
 [Zurück zu ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Was eine maßgeschneiderte KI für eine effiziente Datenerfassung bedeutet
 
 ###### Christian Marquardt
@@ -27,6 +33,18 @@ Nehmen wir einmal die Verpflichtung zur [elektronischen Rechnungstellung der EU]
 
 Im Folgenden werde ich daher anhand des Beispiels ABBYY versuchen, etwas Transparenz in die Welt der Abkürzungen (LLM, CNN, ML, NLP, IDP) zu bringen.
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### KI-Innovation als Grundlage für ABBYY Intelligent Document Processing (IDP) 
 
 Grundsätzlich kann man sagen, dass Intelligente Dokumentenverarbeitung (IDP) eine hochentwickelte Automatisierungstechnologie zur Erfassung, Auswertung, Extraktion, Kategorisierung und Verarbeitung aussagekräftiger Daten aus großen Dokumenten-Strömen in leicht zugänglichen Formaten ist. Diese Technologie kann verschiedene Arten von Dokumenten verarbeiten, darunter Papier, PDFs, Word-Dokumente, Tabellenkalkulationen und viele andere Formate. IDP zielt vor allem darauf ab, nützliche Informationen aus großen Dokumenten zu extrahieren, ohne dass menschliche Eingaben erforderlich sind. 
@@ -43,10 +61,10 @@ Die [IDP-Plattform von ABBYY](https://tools.techidaily.com/abbyy/products/) ist 
 Mit der richtigen Kombination von Technologien und Techniken können die [IDP-Lösungen von ABBYY jede Art von Dokument verarbeiten](https://tools.techidaily.com/abbyy/products/) \- jedes Format, jede Sprache, jede Struktur. Alle spezialisierten Techniken wurden für die bestmöglichen Schlussfolgerungen und den geringstmöglichen Ressourcenbedarf optimiert, so dass die Kosten und der ROI für die Kunden optimiert werden können.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Large Language Models (LLMs) und Kontext bezogene Antworten. 
 
@@ -57,16 +75,10 @@ Dies ist somit eine kostengünstige Methode, die die Fähigkeiten großer Sprach
 So unterstützt ABBYY die Unternehmen, mit generativer KI erfolgreich zu sein: Daten liegen oft in Silos innerhalb des Unternehmens vor, sind aber größtenteils in Geschäftsdokumenten eingeschlossen. Eine intelligente Dokumentenverarbeitung extrahiert Dokumentendaten und stellt sie in einen Kontext. Diese Daten und der Kontext werden dann mit der Benutzer-Prompot an das LLM kombiniert, um sie inhaltsbezogen zu machen. Das bedeutet, Genauigkeit, Qualität und Zuverlässigkeit.
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Convolutional Neural Networks (CNN) und Transformatoren
 
@@ -77,10 +89,10 @@ Das LLM, das ABBYY einsetzt, ist sehr spezifisch auf die Bedürfnisse der Kunden
 Diese Technik verbessert die Leistung und Genauigkeit unserer OCR-Funktionen insgesamt drastisch und wird in Kombination mit unserem statistischen Ansatz eingesetzt. Die KI entscheidet automatisch, welcher Ansatz für Ihre Dokumente am besten geeignet ist, um sie im Hinblick auf Konsistenz, Genauigkeit und Geschwindigkeit zu optimieren, was zu besseren Durchsatzraten führt. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Deep Learning und schnelles maschinelles Lernen (ML) 
 
@@ -88,12 +100,6 @@ Deep Learning ermöglicht es ABBYY, KI-Modelle in seiner Plattform für einen ga
 
 Im ABBYY Produkt „Vantage“ vereint ABBYY eine Kombination aus Deep Learning und schnellem maschinellem Lernen auf einer Low-Code-IDP-Plattform, um die Durchsatzrate zu maximieren. Mit Deep Learning allein können die Kunden mit den von ABBYY trainierten Modellen sofort eine Genauigkeit von oftmals bis zu 90 Prozent erreichen. Durch die Einbeziehung des schnellen maschinellen Lernens kann die Genauigkeit sogar auf über 95 Prozent steigen. Schnelles maschinelles Lernen merkt sich die Ausreißer, die tiefes maschinelles Lernen (Deep Learning) nicht erreichen konnte, und arbeitet schnell, mit nur wenigen Variationen der fraglichen Dokumente. Das Modell verbessert sich kontinuierlich anhand der verarbeiteten Dokumente -und deren Variationen-, sowie basierend auf manuellem Input während des sogenannten HITL (Human in the Loop). Was so viel bedeutet wie manuelle Verifikation. Somit erzielen die Modelle mit der Zeit eine immer höhere Genauigkeit.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Natural Language Processing (NLP) 
 
 Natural Language Processing (NLP), im deutschen Sprachraum auch Computerlinguistik bzw. linguistische Datenverarbeitung genannt, ist ein Bereich der KI als auch des maschinellen Lernens. Diese beschäftigt sich mit der Analyse und Generierung von natürlicher Sprache. Einerseits können wir durch Natural Language Processing mit Computern mittels Sprache kommunizieren, wie „Hey Alex, dimme das Licht im Pool“, andererseits erlaubt es hoch entwickelten Intelligent Document Processing (IDP), dieses Sprach-„Verständnis“ zu nutzen, um Dokumente jeglicher Art und Komplexität zu „verstehen“- unabhängig davon, ob diese textlastig, unstrukturierte hochkomplexe Dokumente sind. 
@@ -111,10 +117,10 @@ Um ein Update zu erhalten, wenn neue Artikel veröffentlicht sind, melden Sie si
 ![Christian Marquardt](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/christian-marquadt-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Christian Marquardt 
 

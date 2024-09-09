@@ -1,22 +1,46 @@
 ---
 title: "Boost Traffic with Cookiebot: Advanced Marketing Automation Solutions"
-date: 2024-09-03T22:48:34.388Z
-updated: 2024-09-04T22:48:34.388Z
+date: 2024-09-08T23:42:10.578Z
+updated: 2024-09-09T23:42:10.578Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fae766879cd08ae756a7af9db37ac778f5fbfa89e057843b1343689c4f471473.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Boost Traffic with Cookiebot: Advanced Marketing Automation Solutions
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Studie zeigt: Finanzdienstleister halten sich am ehesten an Regeln und Prozesse – Regierungsbeamte weniger
 
 15\. Juli 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Laut der ABBYY Studie befolgen Mitarbeiter verschiedener Branchen vordefinierte Unternehmens-Prozesse sehr unterschiedlich und setzen auf Process-Mining-Technologien, um Prozesse nachverfolgen zu können_
 
 Die Wahrscheinlichkeit, dass Mitarbeiter im Bank- und Finanzdienstleistungssektor Prozesse "streng" befolgen, ist dreimal so hoch wie bei Regierungsangestellten. Dies geht aus einer neuen branchenübergreifenden Studie des Digital Intelligence Spezialisten ABBYY hervor. Tatsächlich scheint fast die Hälfte (46%) der Beschäftigten im Bank- und Finanzdienstleistungsgewerbe sehr genau die Regeln zu befolgen, im Vergleich zu schlappen 15% aller Beschäftigten in der Regierung.
@@ -27,6 +51,18 @@ In einer sich rasch wandelnden Branche wie im Finanzwesen - in der traditionelle
 
 ![infographic](https://static1.abbyy.com/abbyycommedia/29022/11982_infographics_process-mining_abbyy-survey_ger_300dpi.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 Die Managerriege im Finanzwesen ist zudem überzeugt davon, dass ihre Mitarbeiter überaus motiviert sind, um Prozesse und Regeln zu befolgen. Lediglich 12% der Mitarbeiter in diesem Bereich sind dies nicht. Nur im Versicherungswesen sind es mit 8% noch weniger. Insgesamt gaben 9 von 10 der Chefs (89%) sowohl im Bank- und Finanz- als auch im Versicherungswesen an, dass die Prozesse "streng" oder "meistens" befolgt werden.
 
@@ -34,11 +70,23 @@ Umgekehrt gibt ein Viertel (25%) der Führungskräfte in der Regierung an, dass 
 
 _![](https://static1.abbyy.com/abbyycommedia/29014/pr-1407-table-1-de.png)Abbildung 1\. Wie gut werden Ihrer Meinung nach die Geschäftsprozesse in Ihrer Organisation befolgt?_
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 Wenn Mitarbeiter von Finanzdienstleistern gegen die Regeln verstoßen, dann häufig, um einen guten Kundenservice zu bieten – 62% der Vorgesetzten in Versicherungen vertrauen darauf, dass ihre Mitarbeiter dies tun, um die Bedürfnisse der Kunden zu erfüllen. 50% der Vorgesetzten in der Bank- und Finanzdienstleistungsbranche stimmen dem zu. Dies zeugt daher, dass Mitarbeiter im Finanzdienstleistungsbereich extrem kundenorientiert handeln und bereit sind, die Regeln zu umgehen, wenn es für die Kunden besser ist.
 
 _![](https://static1.abbyy.com/abbyycommedia/29015/pr-1407-table-2-de.png)Abbildung 2\. Warum glauben Sie, dass sich die Mitarbeiter nicht immer streng an die Prozesse halten? Kreuzen Sie alle zutreffenden Punkte an._
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 „Die Studie zeigt, wie wichtig es ist, Einblicke in die Geschäftsprozesse zu gewinnen und sie zu verstehen: wie verhalten sich Prozesse tatsächlich, wie identifiziert man Abweichungen und wie kann man die aktuellen Kundenbedürfnisse besser erfüllen. Dies ist ein wesentlicher erster Schritt auf dem Weg der digitalen Transformation,“ sagt Markus Pichler, VP Sales Europe bei ABBYY. „Besonders wichtig ist dies für Finanzdienstleistungsunternehmen, die sich einem beispiellosen Druck ausgesetzt sehen. Die Herausforderung, während einer Pandemie die Geschäftskontinuität aufrechtzuerhalten und dabei mit veränderten technologischen Anforderungen sowie Kundenerwartungen umzugehen, rollen wie ein Sturm über den normalen Bankbetrieb hinweg. Innovative Process Intelligence-Lösungen können dem entgegenwirken und Abhilfe in stürmischen Zeiten schaffen." 
 
@@ -136,16 +184,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-hot.techidaily.com/unlocking-advanced-data-insights-with-our-cookiebot-technology-platform/"><u>Unlocking Advanced Data Insights with Our Cookiebot Technology Platform</u></a></li>
 <li><a href="https://tech-haven.techidaily.com/unlocking-new-potentials-with-chatgpt-vision-a-guide-to-8-unique-methods/"><u>Unlocking New Potentials with ChatGPT Vision - A Guide to 8 Unique Methods</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

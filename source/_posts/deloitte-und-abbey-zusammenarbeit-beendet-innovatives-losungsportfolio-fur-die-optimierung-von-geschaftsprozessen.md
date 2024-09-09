@@ -1,12 +1,24 @@
 ---
 title: Deloitte Und ABBEY Zusammenarbeit Beendet - Innovatives Lösungsportfolio Für Die Optimierung Von Geschäftsprozessen
-date: 2024-09-03T22:48:33.172Z
-updated: 2024-09-04T22:48:33.172Z
+date: 2024-09-08T23:42:09.439Z
+updated: 2024-09-09T23:42:09.439Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822adafed338c6c5049f6c7aefb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Deloitte Und ABBEY Zusammenarbeit Beendet - Innovatives Lösungsportfolio Für Die Optimierung Von Geschäftsprozessen
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
@@ -17,6 +29,12 @@ thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822a
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![News Partners7](https://static2.abbyy.com/abbyycommedia/33722/news-partners7.jpg) 
 
 Deloitte Luxemburg und ABBYY sind eine [Partnerschaft](https://tools.techidaily.com/abbyy/products/) eingegangen, die es ihren Kunden ermöglichen wird, Geschäftsprozesse zu beschleunigen und ihre Rentabilität zu steigern. Das Unternehmen wird Kunden die Lösung für intelligente Dokumentenverarbeitung (IDP) von ABBYY anbieten, welche die besten Fähigkeiten aus NLP, maschinellem Lernen und fortschrittlichen Erkennungsfunktionen vereint.
@@ -37,15 +55,21 @@ Mehr über die Partnerschaft zwischen Deloitte Luxemburg und ABBYY sowie über d
 
 \[1\] IDC, European Intelligent Process Automation Software Forecast, 2020-2024, Doc #EUR147055020, December 2020.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über Deloitte Luxemburg
 
 Mit mehr als 130 Partnern und 2.300 Mitarbeitern ist Deloitte Luxemburg eines der größten, stärksten und ältesten professionellen Dienstleistungsunternehmen im Großherzogtum. Seit mehr als 70 Jahren sind dessen talentierte Teams für Kunden in verschiedenen Branchen tätig und bieten nationalen und internationalen Kunden einen hohen Mehrwert in den Bereichen Wirtschaftsprüfung, Consulting, Finanzberatung, Risikoberatung, Steuern und damit verbundenen Dienstleistungen. Deloitte Luxemburg ist Teil des globalen Deloitte-Netzwerks, das in mehr als 150 Ländern und Territorien vertreten ist und vier von fünf Fortune Global 500®-Unternehmen betreut. Erfahren Sie unter [www.deloitte.com/lu](http://www.deloitte.com/lu) wie die Mitarbeiter von Deloitte etwas bewegen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY
 
@@ -58,20 +82,20 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

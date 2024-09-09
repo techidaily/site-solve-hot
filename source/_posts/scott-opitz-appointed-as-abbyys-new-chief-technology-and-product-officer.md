@@ -1,24 +1,54 @@
 ---
 title: Scott Opitz Appointed as ABBYY's New Chief Technology & Product Officer
-date: 2024-09-03T22:48:32.019Z
-updated: 2024-09-04T22:48:32.019Z
+date: 2024-09-08T23:42:08.326Z
+updated: 2024-09-09T23:42:08.326Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad3863dd1f8be14d01cc17569.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Scott Opitz Appointed as ABBYY's New Chief Technology & Product Officer
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY ernennt Scott Opitz zum Chief Technology and Product Officer
 
 16\. März 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Scottopitz 848X444](https://static4.abbyy.com/abbyycommedia/35308/scottopitz-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Das Unternehmen für intelligente Automatisierung ABBYY hat Scott Opitz zum Chief Technology and Product Officer (CTO und CPO) ernannt. Seine Aufgabe ist es, die Investitionen in Forschung und Entwicklung (F&E) im Jahr 2022 um 40 Prozent zu erhöhen. Zu Opitz‘ Verantwortlichkeiten gehören die Leitung der Strategie, der Entwicklung und der Umsetzung der Produkt- und Innovationsbestrebungen des Unternehmens in Europa und den USA. Darüber hinaus koordiniert er die kontinuierliche Weiterentwicklung der marktführenden Plattform für [intelligente Dokumentenverarbeitung](https://tools.techidaily.com/abbyy/products/) (IDP), [Vantage](https://tools.techidaily.com/abbyy/products/), und der [Prozessintelligenz](https://tools.techidaily.com/abbyy/products/)\-Lösung [Timeline.](https://tools.techidaily.com/abbyy/products/)
 
 ABBYYs auf eigenen Technologien basierende Lösungen für intelligente Prozessautomatisierung (IPA) nehmen bei unabhängigen Analystenbewertungen der führenden Analystenhäuser regelmäßig Spitzenpositionen ein. Analysten stufen das Unternehmen als führend im Bereich IDP und/oder Prozessintelligenz ein und positionieren ABBYY als erstklassigen Anbieter, um einen bedeutenden Anteil des IPA-Marktes zu erobern, der bis 2025 auf 42,4 Milliarden US-Dollar anwachsen wird \[1\].
@@ -33,6 +63,12 @@ Er hatte zahlreiche Führungspositionen in den Bereichen Technologie- und Gesch�
 
 \[1\] IDC, Worldwide Intelligent Process Automation Software Forecast, 2021–2025, Doc # US48015622, July 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -44,27 +80,15 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

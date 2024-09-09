@@ -1,22 +1,46 @@
 ---
 title: NeoML Von ABBYY Jetzt Mit Python Unterstützt - Erleben Sie Die 10X Schnellere Open-Source-Bibliothek
-date: 2024-09-03T22:48:34.851Z
-updated: 2024-09-04T22:48:34.851Z
+date: 2024-09-08T23:42:11.047Z
+updated: 2024-09-09T23:42:11.047Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a08727f11a7832f787474e1a64a135e87ab43cd2d3040a1084f509333c65c397.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## NeoML Von ABBYY Jetzt Mit Python Unterstützt - Erleben Sie Die 10X Schnellere Open-Source-Bibliothek
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYYs Open-Source-Bibliothek NeoML jetzt mit Python-Unterstützung und 10-facher Geschwindigkeitsverbesserung
 
 22\. Juni 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### NeoML bietet eine 50% schnellere Leistung als andere beliebte Open-Source-Bibliotheken für maschinelles Lernen.
 
 ABBYY, ein Unternehmen für Digital Intelligence, hat heute ein umfassendes Update für [NeoML](https://tools.techidaily.com/abbyy/products/), seine plattformübergreifende Open-Source-Bibliothek, bekannt gegeben, mit der Entwickler Modelle für maschinelles Lernen erstellen, trainieren und bereitstellen können. Das Update umfasst die Unterstützung der Programmiersprache Python, die beliebteste Sprache für maschinelles Lernen und künstliche Intelligenz. Das Framework bietet außerdem eine fünf bis zehn Mal höhere Geschwindigkeit sowie über 20 neue ML-Methoden, einschließlich zehn Netzwerkschichten und Optimierungsverfahren. Zusätzlich unterstützt NeoML jetzt Apple M1 Chips, Grafikprozessoren auf Linux-basierten Geräten und Intel GPUs. Dies erweitert die möglichen Anwendungsfälle und Szenarien für die Bibliothek erheblich und erlaubt mehr Entwicklern KI-basierte Anwendungen und Lösungen zu erstellen.
@@ -121,10 +145,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-hot.techidaily.com/yum-chinas-finance-department-soars-higher-using-abbyy-flexicapture-at-their-shared-services-hub/"><u>YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/44kk44oz44k144kk44oi5zcr5lik44gu44gf44kb44gu44k44k544kv44o744ox44ot44k744k544oe44kk44ol44oz44kw5oqa6kgt/"><u>インサイト向上のためのタスク・プロセスマイニング技術</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

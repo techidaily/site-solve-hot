@@ -1,7 +1,7 @@
 ---
 title: "Driven with Automated Bots: A Deep Dive Into Smart Marketing Technology"
-date: 2024-09-03T22:48:34.622Z
-updated: 2024-09-04T22:48:34.622Z
+date: 2024-09-08T23:42:10.812Z
+updated: 2024-09-09T23:42:10.812Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b5866ca0d81d1cb562971c20.jpg
@@ -13,11 +13,35 @@ thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b
 
 BPO/Service Providers | Document Processing
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## パーソルグループ名刺管理システムにABBYYのモバイル対応AI OCRソリューションを採用   
 名刺を４枚まとめて取り込める上、読み取り精度が向上
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/ja/160747.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
 ## パーソルグループ名刺管理システムにABBYYのモバイル対応AI OCRソリューションを採用   
@@ -31,6 +55,12 @@ BPO | 文書処理
 
 ![パーソルホールディングス株式会社](https://static4.abbyy.com/abbyycommedia/33438/06c3-persol-ja-logo-80x80.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | 氏名     | パーソルホールディングス株式会社                  |
 | ------ | --------------------------------- |
 | 本社     | 東京都港区南青山1-15-5                    |
@@ -117,14 +147,38 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ABBYY Mobile Web Capture](https://static4.abbyy.com/abbyycommedia/21986/12-mobile-capture-sdk.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Mobile Web Capture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static2.abbyy.com/abbyycommedia/33439/06d-persol-ja-cover-360x162.jpg)](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") [PDF版](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") 
 
 ###### SNSでフォロー
@@ -135,12 +189,6 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

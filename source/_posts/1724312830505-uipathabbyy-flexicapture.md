@@ -1,7 +1,7 @@
 ---
 title: 効率的な支払処理手法：UIPath・ABBYY FlexiCaptureのパワーコンビによる自動化アップ
-date: 2024-09-03T22:48:35.058Z
-updated: 2024-09-04T22:48:35.058Z
+date: 2024-09-08T23:42:11.216Z
+updated: 2024-09-09T23:42:11.216Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/246d0000b4a8f8f8e29a0c282b538c53c7dcabe9e936ddda4c95b0a712854944.jpg
@@ -18,6 +18,12 @@ Information & Communication | Accounts Payable Automation
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/ja/117866.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
 ## UiPathとABBYY FlexiCaptureを連携   
@@ -27,10 +33,22 @@ Information & Communication | Accounts Payable Automation
 
 ![](https://static1.abbyy.com/abbyycommedia/24929/06-main-jpcasestudyntt-556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### お客様の概要
 
 ![NTT コミュニケーションズ株式会社](https://static2.abbyy.com/abbyycommedia/24894/lgo-ntt-250.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | 氏名     | NTT コミュニケーションズ株式会社                            |
 | ------ | --------------------------------------------- |
 | 本社     | 東京都千代田区大手町2-3-1 大手町プレイス ウエストタワー               |
@@ -123,6 +141,12 @@ ABBYY FlexiCaptureを導入することによって、生産性向上施策（DX
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![請求書処理の自動化](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [請求書処理の自動化](https://tools.techidaily.com/abbyy/products/) 
@@ -131,6 +155,12 @@ ABBYY FlexiCaptureを導入することによって、生産性向上施策（DX
 
 [![PDF版](https://static5.abbyy.com/abbyycommedia/24928/06c-jpcasestudyntt-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/24892/customer-story-ntt-ja.pdf "PDF版") [PDF版](https://static4.abbyy.com/abbyycommedia/24892/customer-story-ntt-ja.pdf "PDF版") 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://static4.abbyy.com/abbyycommedia/24892/customer-story-ntt-ja.pdf "PDF版") 
 
 ###### SNSでフォロー
@@ -142,10 +172,10 @@ ABBYY FlexiCaptureを導入することによって、生産性向上施策（DX
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 

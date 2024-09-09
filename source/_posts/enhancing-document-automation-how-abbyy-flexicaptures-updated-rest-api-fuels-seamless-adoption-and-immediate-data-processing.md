@@ -1,22 +1,40 @@
 ---
 title: "Enhancing Document Automation: How ABBYY FlexiCapture's Updated REST API Fuels Seamless Adoption & Immediate Data Processing"
-date: 2024-09-03T22:48:34.737Z
-updated: 2024-09-04T22:48:34.737Z
+date: 2024-09-08T23:42:10.932Z
+updated: 2024-09-09T23:42:10.932Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de65b71eab7da2ab3371e3a0f.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhancing Document Automation: How ABBYY FlexiCapture's Updated REST API Fuels Seamless Adoption & Immediate Data Processing
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY FlexiCapture Cloud Accelerates Adoption and Processing with New REST API and Real-Time Capture
 
 May 16, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, a global leader in Content IQ technologies and solutions, today announced a series of innovations to ABBYY FlexiCapture, an AI-enabled enterprise platform to automate document processing workflows and convert unstructured content into structured data for better business outcomes. The updates include the launch of the ABBYY FlexiCapture Cloud REST API (Representational State Transfer Application Programming Interface) and the introduction of the new Real-Time Capture technology for real-time document processing in the cloud.
 
 As companies strive to execute their digital transformation strategies and look to automate processes through enablement and execution of their digital workforce, they are challenged by the need to deploy and support intelligent automation capabilities. Traditional on-premise models can often present challenges to agility as well as impact development, deployment, and support objectives. ABBYY has addressed this challenge by making the market-leading Content IQ platform FlexiCapture available in the cloud. Deployed on Microsoft Azure, FlexiCapture Cloud delivers all the benefits of its cloud services directly to customers, developers, and ISVs through REST API and web interfaces. This way, ABBYY offers advanced content classification, extraction, validation, and integration to customers supporting their customer onboarding, claims processing, new account opening, accounts payable, and mortgage origination challenges.
@@ -110,10 +128,3 @@ Connect with us
 <li><a href="https://solve-hot.techidaily.com/revolutionizing-medicine-with-the-cloud-how-digitalization-is-shaping-the-future-of-health-services/"><u>Revolutionizing Medicine with the Cloud: How Digitalization Is Shaping the Future of Health Services</u></a></li>
 <li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-selecting-pc-gaming-inputs/"><u>The Ultimate Guide to Selecting PC Gaming Inputs</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

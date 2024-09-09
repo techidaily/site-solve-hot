@@ -1,22 +1,46 @@
 ---
 title: Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY
-date: 2024-09-03T22:48:31.843Z
-updated: 2024-09-04T22:48:31.843Z
+date: 2024-09-08T23:42:08.148Z
+updated: 2024-09-09T23:42:08.148Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3371d97eae392c322e9b82d456ad7eef262a0a211072cf38379ccece2b069d93.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY optimiert FlexiCapture mit branchenführender Machine-Learning-Technologie
 
 12\. November 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Die umfassende Content-IQ-Plattform überzeugt mit deutlichen Verbesserungen bei der Genauigkeit_
 
 ABBYY, globaler Anbieter von Technologien und Lösungen für Digital IQ, gibt bekannt, dass FlexiCapture 12 dank neu integrierter Machine Learning-Technologien noch genauer und schneller bei der Verarbeitung von Unternehmensinhalten funktioniert. Die moderne intelligente Plattform zur Verarbeitung von Dokumenten (IDP = Intelligent Document Processing Platform) stellt eine Unternehmenslösung dar, die sowohl on-premise, in der Cloud als auch von Entwicklern über ein SDK oder RESTful APIs genutzt werden kann.
@@ -129,16 +153,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://buynow-tips.techidaily.com/unlocking-savings-with-every-new-iphone-release/"><u>Unlocking Savings with Every New iPhone Release</u></a></li>
 <li><a href="https://program-issues.techidaily.com/unraveling-infinity-the-philosophy-of-the-eternal-return-in-black-thrillers/"><u>Unraveling Infinity: The Philosophy of the 'Eternal Return' In Black Thrillers</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

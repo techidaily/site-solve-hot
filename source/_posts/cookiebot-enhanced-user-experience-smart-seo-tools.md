@@ -1,16 +1,28 @@
 ---
 title: "Cookiebot-Enhanced User Experience: Smart SEO Tools"
-date: 2024-09-03T22:48:33.777Z
-updated: 2024-09-04T22:48:33.777Z
+date: 2024-09-08T23:42:10.025Z
+updated: 2024-09-09T23:42:10.025Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/984f643c4b4f7bae0c2654dd17f8e46d49464b1fbd02ad27cef488f7c4915f8e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enhanced User Experience: Smart SEO Tools
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Software robots: The employees that never sleep
 
 ###### Dmitry Shushkin
@@ -19,6 +31,18 @@ May 31, 2018
 
 ![Software robots: The employees that never sleep | ABBYY Blog Post](https://static2.abbyy.com/abbyycommedia/25289/9234e_smm_shushkin-blogblog.png) 
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Intelligent technologies broaden every sphere of business opportunities, including the office work. The never-tiring digital employees - software robots – are entering into marketing, sales, accounting and HR. One reason for this is that the cost of human labor is rising in both developed and developing countries. Meanwhile, the human workers go on vacation, sometimes get sick, and they make an [average of 10 errors](https://www.eng.it/dotAsset/9c7c446a-3833-4297-ad61-d3057efc328e.pdf) while performing 100 monotonous actions, and even though a small oversight can result in huge losses. In April, a Samsung employee accidentally [transferred dividends](https://www.wsj.com/articles/a-105-billion-fat-finger-accident-is-samsungs-latest-headache-1523360228) worth $105 billion to colleagues. Pushing the wrong button led to a drop of 12% in the exchange value of Samsung. On the contrary, well-trained robots are not prone to mistakes; they need no lunch, tea or smoke break. Yet they can handle from 30% to 70% of a company’s routine work, depending on the industry.
 
 In 2017, the market for Robotic Process Automation (RPA) reached $443 million, according to [Horses for Sources](https://www.horsesforsources.com/RPA-marketsize-HfS%5F061017). This is not a lot when compared to the multibillion-dollar investments in unmanned vehicles or blockchain. Nevertheless, this represents 36% in annual growth, and could exceed $1 billion in total by 2020\. The capitalization of software robot developers, such as UiPath, increased tenfold over the past year, while the demand for Workfusion's RPA solutions spiraled up 850% in the same period. [Google](https://trends.google.com/trends/explore?cat=12&date=today%205-y&q=%2Fg%2F11c3p%5F5fs0) has also reported a tenfold growth in search queries about RPA related topics in recent years.
@@ -32,16 +56,10 @@ One of the main advantages of RPA is the relative ease of its implementation. It
 A good example is Siemens medical unit - Siemens Healthcare – which recently implemented the RPA system, which collects genetic data of clients for diagnosis of diseases. The solution automatically sets parameters for analysis using more than 90 different settings. The robot extracts the necessary data in 15 mouse clicks, after which the results are entered into Excel to compile various reports. In 2017 Ernst & Young [introduced 700 robots](http://www.google.ru/url?sa=t&rct=j&q=&esrc=s&source=web&cd=4&ved=0ahUKEwjbuvWv6pPaAhWDFSwKHXrICuQQFgg-MAM&url=https%3A%2F%2Fblogs.wsj.com%2Fcio%2F2018%2F03%2F22%2Fno-coffee-breaks-needed-companies-add-software-robots-to-workforce%2F&usg=AOvVaw3y9Aj5gtY8TTiatrlR36BT) that search for information in the knowledge base on personnel issues, collect data from resumes, and even remind employees about meetings and hotel reservations. The company plans to save more than 2 million hours on routine actions within a year and a half.
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Important considerations before implementing RPA**
 
@@ -56,18 +74,24 @@ Despite companies' interest in RPA, almost 30% of such projects end in failure. 
 ![Dmitry Shushkin ABBYY](https://static1.abbyy.com/abbyycommedia/25703/dmitryshushkin-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Dmitry Shushkin
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

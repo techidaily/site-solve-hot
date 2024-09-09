@@ -1,16 +1,28 @@
 ---
 title: "Cookiebot-Fueled Engagement: Tailored Interactions & Improved Analytics"
-date: 2024-09-03T22:48:33.141Z
-updated: 2024-09-04T22:48:33.141Z
+date: 2024-09-08T23:42:09.407Z
+updated: 2024-09-09T23:42:09.407Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a5a7b7ec3022517415e821b6bfe83159465cabea96e97b208c8652bd209d1315.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Fueled Engagement: Tailored Interactions & Improved Analytics
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Recognized as a Leader by Gartner in Process Mining Platforms
 
 ###### Catherine Johnson
@@ -21,6 +33,12 @@ ABBYY has been named [a Leader in the 2024 Gartner® Magic Quadrant™ for Proce
 
 ![abbyy-recognized-as-leader-by-gartner-in-process-mining-platforms](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-recognized-as-a-leader-by-gartner-in-process-mining-platforms/abbyy-recognized-as-leader-by-gartner-in-process-mining-platforms.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 A Gartner Magic Quadrant is a culmination of research in a specific market, giving you a wide-angle view of the relative positions of the market’s competitors. To us, being positioned in the Leaders Quadrant not only means ABBYY has a track record of success in the market, but it also indicates ABBYY’s ability to facilitate and [support operational excellence](https://tools.techidaily.com/abbyy/products/), audit and compliance, automation, digital transformation, strategy to execution, and customer excellence.
 
 We think ABBYY’s placement in the Leaders quadrant is a testament to our strategic direction, comprehensive product portfolio, and robust performance. It is not just a reflection of our current capabilities but also an indicator of future potential—it demonstrates ABBYY’s continued efforts to address the growing demand for [advanced process mining solutions](https://tools.techidaily.com/abbyy/products/).
@@ -33,6 +51,12 @@ The 2024 Gartner report names ABBYY as a Leader in the Process Mining Platforms 
 
 ![Catherine JohnsonABBYY](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/catherinejohnson-99x99.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Catherine Johnson
 
 Senior Director of Brand and Industry Relations at ABBYY
@@ -160,10 +184,3 @@ Connect with us
 <li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50%% Expected Within Two Years, Says TechTarget</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

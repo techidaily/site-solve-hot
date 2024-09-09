@@ -1,16 +1,34 @@
 ---
 title: "Cookiebot-Enabled: Enhancing Your Site with Smart Tracking Technology"
-date: 2024-09-03T22:48:30.943Z
-updated: 2024-09-04T22:48:30.943Z
+date: 2024-09-08T23:42:07.270Z
+updated: 2024-09-09T23:42:07.270Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/650f46c8db195bf984ecb592d4a15814bfd7afa085c1775706e382ffb2952424.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhancing Your Site with Smart Tracking Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Transforming Accounts Payable with Artificial Intelligence
 
 ###### Bruce Orcutt
@@ -19,6 +37,12 @@ March 15, 2018
 
 ![3 ways Accounts Payable is transformed with Artifical Intelligence | ABBYY Blog Post](https://static1.abbyy.com/abbyycommedia/25267/9062e_smm_accountingtoday_blog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 More than 20 million Amazon Alexa-powered devices were sold in 2017, and Google sold a Google Home device every second since the Mini started shipping in October, making voice-activated artificial intelligence more mainstream than ever before. The weather, a friendly joke or random trivia are easy for Alexa and Google to retrieve; and when stumped, the statement, “I can’t help you with that, but I’m always learning,” reassures us that...well, it's always learning.
 
 Wouldn’t this same capability be great within your accounts payable department? “Okay Google, which accounts are 30 days past due?”
@@ -34,20 +58,20 @@ Eliminating paper is the first step towards the digital transformation of AP. Ma
 The next generation of machine learning in AP includes the intelligent extraction of line and field data that incorporates the understanding of the overall structure of an invoice. Machine learning technology allows the system to recognize patterns, such as when a certain general ledger code is applied to a certain invoice; and learn overall structure of an invoice in order to extract all the meaningful data automatically. The system will learn these patterns and will suggest codes to the users coding them or find all the totals, amounts, and details contained within the invoice. AI recognizes the result and knows how to process, validate and recommend this data. This will reduce the amount of time AP spends on keying and correcting data.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 2\. Lean IT support
 
 A large IT staff that can code and implement time-consuming algorithms and workflows is not a luxury that most organizations can afford. This is where robotic process automation and AI expedite the process by enabling AP operators to train systems with user-friendly interfaces. Training allows the operator to act as a facilitator of intelligence back into the application, thus eliminating the need for IT resources.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. Smarter Decisions
 
@@ -64,10 +88,10 @@ Integrating AI within accounts payable (or in any part of the enterprise) is pos
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Bruce Orcutt
 
@@ -77,12 +101,6 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

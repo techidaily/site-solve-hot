@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot-Enhanced Sites: Boost Your Website's Performance"
-date: 2024-09-03T22:48:33.085Z
-updated: 2024-09-04T22:48:33.085Z
+date: 2024-09-08T23:42:09.354Z
+updated: 2024-09-09T23:42:09.354Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/26dcef27c207b8605e3fcf4585ee0822110eeb8a794c85ff8e27071c7786d452.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enhanced Sites: Boost Your Website's Performance
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Communication officielle sur le Covid-19 de Ulf Persson, CEO, ABBYY Group
 
 23 mars 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Chers partenaires et clients,
 
 Les dernières semaines ont apporté des développements sans précédent à nos communautés et au monde en général. Comme beaucoup d'entreprises dans le monde, l'une des mesures qu'ABBYY a décidé de mettre en œuvre est le travail à distance pour tous les employés. Soyez assurés qu'ABBYY poursuit ses activités comme si de rien n'était. Nous sommes bien équipés pour travailler à distance et sommes toujours accessibles par tous les canaux de communication normaux. Notre support technique, notre service clientèle, nos services professionnels et les autres équipes sur lesquelles vous comptez chaque jour restent disponibles pour éviter toute interruption de nos activités normales.
@@ -111,10 +129,3 @@ Connect with us
 <li><a href="https://article-files.techidaily.com/unleash-your-potential-top-6-head-mounted-cameras-by-gopro/"><u>Unleash Your Potential  Top 6 Head-Mounted Cameras by GoPro</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/unlocking-cost-reduction-with-process-mining-a-case-study-on-saving-millions-from-the-customer-angle/"><u>Unlocking Cost Reduction with Process Mining: A Case Study on Saving Millions From the Customer Angle</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

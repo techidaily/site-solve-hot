@@ -1,7 +1,7 @@
 ---
 title: "Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders"
-date: 2024-09-03T22:48:34.201Z
-updated: 2024-09-04T22:48:34.201Z
+date: 2024-09-08T23:42:10.411Z
+updated: 2024-09-09T23:42:10.411Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07877b725aebcc26ce626860ff1aa31b598ca62f4a725eae923eeb25fe929021.jpg
@@ -11,6 +11,18 @@ thumbnail: https://thmb.techidaily.com/07877b725aebcc26ce626860ff1aa31b598ca62f4
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Reimagine Your KYC Strategy
 
 ###### Cheryl Chiodi
@@ -19,6 +31,12 @@ February 11, 2021
 
 ![reimagine your kyc strategy | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/33495/business-continuity-new.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Fraudsters spent much of 2020 focused on intercepting government stimulus programs and upping their game to make illicit gains from enhanced unemployment benefits. There was also an increased focus on phishing attacks targeting “digital newbies, those who were previously inexperienced with online digital services and who were compelled to go online for services that were previously carried out in person.
 
 With the attention now turned from the “shiny metal objects” that the pandemic presented fraudsters with, financial institutions must turn their attention to ensuring that 2021 doesn’t reach new record highs for fraud while simultaneously creating proactive communication strategies to educate their new digital client base on strengthening security hygiene practices. However, the very same technology that is supposed to alleviate strained resources and reduce friction for these “digital newbies” may be the catalyst for allowing opportunistic criminals to carry out thousands of under-the-radar attacks.
@@ -29,13 +47,19 @@ Financial institutions are under pressure to deliver a seamless [KYC compliance 
 
 ![woman in yellow sweater with credit card and tablet](https://static1.abbyy.com/abbyycommedia/31751/contactless-business.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Onboarding](https://tools.techidaily.com/abbyy/products/) can often be the gateway to money laundering and other fraud because customer-facing workers are conducting transactions with people they’ve never seen and with documents they never physically handled, all while working from their computers at home. There may be gaps in the process that can create vulnerabilities for attacks because it involves many human touches. Also, fraudsters go through pains to ensure they know transaction limits and thresholds so that they can stay under the radar.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Know Your Customer (KYC) and tech strategy need to evolve
 
@@ -43,25 +67,13 @@ Chief information security officers (CISOs) and risk and compliance officers nee
 
 ![kyc compliance for customer onboarding](https://static1.abbyy.com/abbyycommedia/31778/10_gettyimages-669887462.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Another area that can cause a great deal of friction is manual document review. Not only is it cumbersome and error-prone, it is expensive, with some estimates saying each document can cost as much as $1.25 to handle. And document scans are no obstacle for fraudsters, as there is an abundance of photoshopping services that easily create a document scan, and even offer to combine them with a real selfie picture.
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Respond with intelligent process automation
 
@@ -69,12 +81,6 @@ To address the challenge of complying with anti-money Laundering (AML) regulatio
 
 ![financial institution working professionals](https://static1.abbyy.com/abbyycommedia/31781/2_gettyimages-498323251.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Intelligent automation is a new approach to KYC/AML, using the latest [Intelligent Document Processin�g](https://tools.techidaily.com/abbyy/products/) technologies to deliver key capabilities that provide banks with the tools they need:
 
 * Validation of customer onboarding documents—both structured and unstructured—and their content at the point of entry
@@ -90,19 +96,13 @@ When applied to fraud prevention, Digital Intelligence offers financial institut
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Cheryl Chiodi
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

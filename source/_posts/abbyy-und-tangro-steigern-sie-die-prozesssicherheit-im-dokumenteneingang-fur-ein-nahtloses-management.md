@@ -1,22 +1,40 @@
 ---
 title: "ABBYY Und Tangro®: Steigern Sie Die Prozesssicherheit Im Dokumenteneingang Für Ein Nahtloses Management"
-date: 2024-09-03T22:48:33.562Z
-updated: 2024-09-04T22:48:33.562Z
+date: 2024-09-08T23:42:09.818Z
+updated: 2024-09-09T23:42:09.818Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/99216a5fd24020f4e914206166919d3aff0939ed370c089abccf39caae51dc78.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Und Tangro®: Steigern Sie Die Prozesssicherheit Im Dokumenteneingang Für Ein Nahtloses Management
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## tangro® erhöht Prozess-Sicherheit im Dokumenteneingang dank ABBYY
 
 10\. Mai 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, erhöht die Ausfallsicherheit von Lösungen der tangro software components GmbH weiter. Der Hersteller von embedded SAP-Lösungen setzt bei seiner Software zur automatisierten Dokumentenverarbeitung schon lange auf die OCR-Technologie von ABBYY für die Dokumentendigitalisierung und Texterkennung (OCR). Diese ist die Basis für die Datenextraktion und die darauf folgende Verarbeitung in SAP. Dank der neuen Funktion ‚redundanter Netzwerk-Lizenz-Manager‘ im integrierten ABBYY OCR-Toolkit können Applikationen von tangro nun einen durchgängigen, ausfallsicheren Betrieb bei der Texterkennung im Dokumenteneingang sichern. Kunden von tangro gewinnen dadurch eine höhere Prozess- und Investitionssicherheit.
 
 Die tangro software components GmbH ist ausgewiesener Experte für die automatisierte Verarbeitung eingehender Dokumente in SAP. Mit der tangro Inbound Suite bietet der Software-Hersteller eine Komplettlösung für die automatisierte Dokumenteneingangsverarbeitung, die SAP-embedded ist. tangro nutzt seit Jahren das Software Development Kit ABBYY FineReader Engine erfolgreich für die OCR-Komponente in der hauseigenen Lösung für die Belegverarbeitung. Je nach Kundenprojekt werden damit bis zu mehreren Tausend Dokumente pro Tag verarbeitet. Die integrierte ABBYY OCR-Technologie konvertiert Text in eingescannten Dokumenten in weiterverarbeitbare und strukturierte Daten, die dann an die entsprechenden SAP-Workflows übergeben werden. Dieser Arbeitsschritt ist wesentlich für die automatisierte Dokumenteneingangsverarbeitung. Ein Ausfall des Systems würde alle Folgeprozesse beeinträchtigen, zusätzliche Kosten für die Wiederherstellung des Systems verursachen und das Risiko von Datenverlusten erhöhen – vor allem bei hohen Dokumentenvolumen.
@@ -116,16 +134,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-hot.techidaily.com/tout-sur-lintegration-de-la-gestion-numerisation-et-traitement-automatisee-de-documents-methodologie-en-5-etapes-par-abbyy/"><u>Tout Sur L'Intégration De La Gestion Numérisation Et Traitement Automatisée De Documents - Méthodologie en 5 Étapes Par ABBYY</u></a></li>
 <li><a href="https://solve-luxury.techidaily.com/transform-your-mobi-books-into-epub-format-at-no-cost-a-simple-guide/"><u>Transform Your MOBI Books Into EPUB Format at No Cost: A Simple Guide</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

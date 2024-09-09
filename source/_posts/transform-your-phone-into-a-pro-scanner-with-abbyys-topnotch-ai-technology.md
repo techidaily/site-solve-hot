@@ -1,12 +1,18 @@
 ---
 title: Transform Your Phone Into a Pro Scanner with ABBYY's Topnotch AI Technology!
-date: 2024-09-03T22:48:33.424Z
-updated: 2024-09-04T22:48:33.424Z
+date: 2024-09-08T23:42:09.678Z
+updated: 2024-09-09T23:42:09.678Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/716b773a3a0bbb4238a628ab28cfde8731d3dd391169cbf818a66e733201ea5d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Transform Your Phone Into a Pro Scanner with ABBYY's Topnotch AI Technology!
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -23,6 +29,12 @@ _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for And
 
 We are proud to present the newest generation of mobile scanners from ABBYY Mobile – FineScanner AI 8\. Now, FineScanner will not only scan and store your documents but will also become your personal smartphone archivist. FineScanner can now automatically sort all of your photos into seven different document types, help you find specific photos using the search feature, and precisely measure your documents’ size using augmented reality.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A new generation of smart galleries
 
 Our [first-generation AI](https://tools.techidaily.com/abbyy/products/) gallery automatically scanned your smartphone’s photo archive for documents with text. This meant that [FineScanner](https://go.onelink.me/0oMB/2b084a0a) could quickly single out your most important documents among a mix of your photos of cats and sunsets, letting you concentrate on your work without any distractions. However, this was only the beginning, and now the time has come for the biggest [FineScanner](https://go.onelink.me/0oMB/2b084a0a) update yet.
@@ -45,48 +57,24 @@ Sections for the various document formats will be displayed at the top of the Ga
 
 ![classification_search_fs_8](https://static1.abbyy.com/abbyycommedia/31422/classification_search_fs_8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 “Training” our neural network involved studying tens of thousands of photographs provided by a multitude of ABBYY employees. Artificial intelligence, like any diligent student, requires a wealth of knowledge to learn from. As part of this process, ABBYY developers meticulously marked out each provided photo by hand. This was how the AI was “taught” the difference between books and A4 documents, business cards and ID’s, and so on. We decided to implement seven distinct sections for the most popular document types uploaded to [FineScanner](https://go.onelink.me/0oMB/2b084a0a). This data was obtained by means of a questionnaire answered by our users.
 
 According to testing results, the accuracy of classification is approximately 90 – 95%. But it depends on the quality of photos in your gallery.
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="120" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Find photos using text search
 
 Moreover, we want you to be able to find the photos that you need even quicker than you are able to at present. To accomplish this, we have implemented a unique text search feature. Now, all you have to do is input some text from the appropriate photo into the search bar and [FineScanner](https://go.onelink.me/0oMB/2b084a0a) will find that photo. This means that as long as you remember the text on your photo, you won’t even have to scroll through your gallery — simply enter the text into the search bar and [FineScanner](https://go.onelink.me/0oMB/2b084a0a) will display the search results and highlight the detected keywords.
 
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Simply begin typing your search phrase into the bar at the top of the Gallery screen. You can also search through documents from a specific category (e.g. A4) by navigating to the appropriate document category folder and searching there. Doing so will restrict your search to that specific document type.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Activating the new smart gallery and the search feature
 
 And now for some technical details – let’s have a look at how it all actually works. Once you have updated [FineScanner](https://go.onelink.me/0oMB/2b084a0a), you need to activate the smart gallery and text search features.
@@ -106,6 +94,12 @@ It is imperative that you select the correct recognition languages in order for 
 
 We have good news for you regardless of your device platform — [FineScanner 8.0 is available on both iOS and Android](https://go.onelink.me/0oMB/2b084a0a) on the same day.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Measuring document size using augmented reality on iOS devices
 
 We also have a little surprise for our Apple users. According to our research, more than half of all [FineScanner](https://go.onelink.me/0oMB/2b084a0a) users send the documents they create to their e-mail or messenger apps, which they do by either saving the documents on their PC or by printing them out. In previous [FineScanner](https://go.onelink.me/0oMB/2b084a0a) versions, printing a document straight from the app would stretch out the image over the entire page, which was just not good enough. In the new iOS version of [FineScanner](https://go.onelink.me/0oMB/2b084a0a), we’ve added a feature that allows you to measure the size of your documents using augmented reality. This tool will let you determine the size of your particular document (e.g. passport, driver’s license, business card) in order to correctly scale the document onto your printing paper. Now you won’t have any distortion issues when printing your documents directly from [FineScanner](https://go.onelink.me/0oMB/2b084a0a).
@@ -119,12 +113,6 @@ To measure your document using augmented reality, do the following:
 
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If the size of your document corresponds to one of the standard sizes (e.g. A4 or driver’s license), [FineScanner](https://go.onelink.me/0oMB/2b084a0a) will ask you whether you want to set the document to be treated as a document of that particular size. For documents of non-standard size, you can choose to save the detected size for later use. To do so, tap the detected document measurements and switch “Save to list” to “On”. Once that is done, specify a name for your new format, for example, “Flyer”.
 
 The sooner [you update your FineScanner app](https://go.onelink.me/0oMB/2b084a0a), the sooner you’ll be able to try out all of these new features! We look forward to reading your feedback and requests on the application page in both the App Store and Google Play.
@@ -139,6 +127,18 @@ To learn more about key updates for other ABBYY mobile apps that have been imple
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -191,6 +191,12 @@ Connect with us
 
 ![](https://static4.abbyy.com/abbyycommedia/31472/fs-8-blog-main-no-sign.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for Android, and Text Grabber for Android & iOS have been discontinued since September 2023\. You can learn more about that [here](https://tools.techidaily.com/abbyy/products/)._
 
 ---
@@ -219,6 +225,18 @@ Sections for the various document formats will be displayed at the top of the Ga
 
 ![classification_search_fs_8](https://static1.abbyy.com/abbyycommedia/31422/classification_search_fs_8.png)
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 “Training” our neural network involved studying tens of thousands of photographs provided by a multitude of ABBYY employees. Artificial intelligence, like any diligent student, requires a wealth of knowledge to learn from. As part of this process, ABBYY developers meticulously marked out each provided photo by hand. This was how the AI was “taught” the difference between books and A4 documents, business cards and ID’s, and so on. We decided to implement seven distinct sections for the most popular document types uploaded to [FineScanner](https://go.onelink.me/0oMB/2b084a0a). This data was obtained by means of a questionnaire answered by our users.
 
 According to testing results, the accuracy of classification is approximately 90 – 95%. But it depends on the quality of photos in your gallery.
@@ -230,10 +248,16 @@ Moreover, we want you to be able to find the photos that you need even quicker t
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Simply begin typing your search phrase into the bar at the top of the Gallery screen. You can also search through documents from a specific category (e.g. A4) by navigating to the appropriate document category folder and searching there. Doing so will restrict your search to that specific document type.
 
@@ -256,6 +280,18 @@ It is imperative that you select the correct recognition languages in order for 
 
 We have good news for you regardless of your device platform — [FineScanner 8.0 is available on both iOS and Android](https://go.onelink.me/0oMB/2b084a0a) on the same day.
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Measuring document size using augmented reality on iOS devices
 
 We also have a little surprise for our Apple users. According to our research, more than half of all [FineScanner](https://go.onelink.me/0oMB/2b084a0a) users send the documents they create to their e-mail or messenger apps, which they do by either saving the documents on their PC or by printing them out. In previous [FineScanner](https://go.onelink.me/0oMB/2b084a0a) versions, printing a document straight from the app would stretch out the image over the entire page, which was just not good enough. In the new iOS version of [FineScanner](https://go.onelink.me/0oMB/2b084a0a), we’ve added a feature that allows you to measure the size of your documents using augmented reality. This tool will let you determine the size of your particular document (e.g. passport, driver’s license, business card) in order to correctly scale the document onto your printing paper. Now you won’t have any distortion issues when printing your documents directly from [FineScanner](https://go.onelink.me/0oMB/2b084a0a).
@@ -269,12 +305,6 @@ To measure your document using augmented reality, do the following:
 
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If the size of your document corresponds to one of the standard sizes (e.g. A4 or driver’s license), [FineScanner](https://go.onelink.me/0oMB/2b084a0a) will ask you whether you want to set the document to be treated as a document of that particular size. For documents of non-standard size, you can choose to save the detected size for later use. To do so, tap the detected document measurements and switch “Save to list” to “On”. Once that is done, specify a name for your new format, for example, “Flyer”.
 
 The sooner [you update your FineScanner app](https://go.onelink.me/0oMB/2b084a0a), the sooner you’ll be able to try out all of these new features! We look forward to reading your feedback and requests on the application page in both the App Store and Google Play.
@@ -290,10 +320,10 @@ To learn more about key updates for other ABBYY mobile apps that have been imple
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

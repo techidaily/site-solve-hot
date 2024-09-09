@@ -1,22 +1,40 @@
 ---
 title: AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle
-date: 2024-09-03T22:48:33.594Z
-updated: 2024-09-04T22:48:33.594Z
+date: 2024-09-08T23:42:09.852Z
+updated: 2024-09-09T23:42:09.852Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/24b37b578836fc3f2918ab32d25a44b0c1a08b2ac44a3b64d442e286082e5edf.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unravelling the mysteries of medical billing with artificial intelligence
 
 May 25, 2017
 
 ![Unravelling the mysteries of medical billing with artificial intelligence | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25196/unravelling-the-mysteries-of-medical-billing-with-artificial-intelligence.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Medical bills are difficult to decipher. In most cases, they contain “test codes” and “CPT codes” which makes spotting an error very difficult. Reviewing medical records is both expensive and time consuming because they are usually provided in an unstructured textual form such as a Word document or PDF. Up to 90 percent of hospital bills contain errors totaling some $750 billion annually, according to a recent study. A person trying to recover funds associated with overcharging requires requesting the relevant patient medical records and having them reviewed by a clinician. Today, [intelligent text recognition](https://tools.techidaily.com/abbyy/products/) and AI can analyze the unstructured textual data contained in medical records, which can be used by clinicians to accurately extract entities, events, and facts. AI technologies also provide capabilities to automatically cross-reference the information contained within the medical records such as CPT Codes, ICD Codes, Drugs, Dosages and Medical Tests.
 
 Read the full article here: [Health IT Outcome](https://www.healthitoutcomes.com/doc/unravelling-the-mysteries-of-medical-billing-with-artificial-intelligence-0001).
@@ -25,6 +43,18 @@ _By David Bayer, Vice President, Compreno Group at ABBYY_
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -137,10 +167,3 @@ Connect with us
 <li><a href="https://snapchat-videos.techidaily.com/snapchat-recordings-techniques-for-your-phone-for-2024/"><u>Snapchat Recordings  Techniques for Your Phone for 2024</u></a></li>
 <li><a href="https://windows11.techidaily.com/swift-ways-to-elude-windows-11-screensaver/"><u>Swift Ways to Elude Windows 11 Screensaver</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

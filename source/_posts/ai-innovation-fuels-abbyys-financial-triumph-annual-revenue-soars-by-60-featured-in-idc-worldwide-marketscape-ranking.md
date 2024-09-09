@@ -1,12 +1,18 @@
 ---
 title: AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60%% - Featured in IDC Worldwide MarketScape Ranking
-date: 2024-09-03T22:48:34.307Z
-updated: 2024-09-04T22:48:34.307Z
+date: 2024-09-08T23:42:10.516Z
+updated: 2024-09-09T23:42:10.516Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9737c06562bbb999378e5773.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60% - Featured in IDC Worldwide MarketScape Ranking
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
@@ -17,6 +23,12 @@ Février 13, 2024
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### L'adoption croissante de l'intelligence artificielle - dont les grands modèles de langage et l'IA générative - par les multinationales, reflète une reconnaissance de la valeur de ces technologies pour améliorer l'efficacité opérationnelle et prendre des décisions plus éclairées. Les grandes entreprises sont de plus en plus nombreuses à exploiter leurs données en utilisant des modèles d'IA spécialisés pour des applications spécifiques.
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), multinationale spécialisée dans l’Intelligent Process Automation, annonce une croissance significative de + 60 % de son revenu annuel récurrent (ARR) en 2023 pour sa plateforme d’IA dédiée au traitement intelligent des documents (IDP), baptisée [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/). Cette croissance soutenue résulte d'une demande accrue de la part d'entreprises cherchant à profiter des grands modèles de langage (LLM) sans pâtir des imprécisions de l'IA générative. Le choix de ces entreprises exprime un besoin d'IA conçue sur mesure, afin de valoriser leurs données et d'alimenter les modèles avec des informations pertinentes.
@@ -31,6 +43,18 @@ Ulf Persson, CEO d’ABBYY
 
 ![IDC IDP MarketScape 2023-2024](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/content-images/idc-idp-marketscape-2023-2024.png?h=704&w=800)
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Par ailleurs, la division [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) affiche une croissance exceptionnelle de 100 % de ses revenus annuels récurrents (ARR). Les entreprises en pointe sur l'innovation reconnaissent les bénéfices de l'intelligence des processus pour optimiser les opérations commerciales, tendre vers l'excellence opérationnelle, et ce, tout en réduisant les coûts liés à l'inefficacité des processus et des ressources. Des organisations évoluant dans des domaines aussi variés que la fabrication d'articles de sport ou encore les services financiers ont économisé un temps précieux et généré des millions de dollars en intégrant ABBYY Timeline avec IDP et des plateformes d'automatisation de workflow.
 
 ABBYY est reconnu pour son savoir-faire dans la classification et l'extraction de documents, tant structurés que semi-structurés. L'approche étendue et multicouche de l'entreprise, son écosystème mondial de partenaires et fournisseurs de solutions, ainsi que son expertise éprouvée dans le traitement de documents en font un fournisseur de prédilection pour toute entreprise cherchant à expérimenter, à apprendre ou à étendre son utilisation de l'Intelligent Document Processing à une échelle plus importante.
@@ -45,6 +69,12 @@ Bruce Orcutt, Chief Marketing Officer d'ABBYY
 
 ![bruce orcutt ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/content-images/bruce-orcutt-rgb.jpg?h=540&w=800)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Après avoir nommé récemment Bruce Orcutt au poste de CMO, ABBYY intensifie ses efforts de R&D grâce à l'intégration d'une nouvelle équipe composée d'ingénieurs expérimentés. Sous la direction de Patrick Jean, CTO/CPO d'ABBYY, l'équipe comprend Sanju Nair, VP des opérations produits et PMO, ainsi que les VP ingénierie Morgan Logue et Andy Wahrenberger.
 
 ### À PROPOS D’ABBYY
@@ -52,20 +82,26 @@ Après avoir nommé récemment Bruce Orcutt au poste de CMO, ABBYY intensifie se
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Contact presse
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Gina Ray
 

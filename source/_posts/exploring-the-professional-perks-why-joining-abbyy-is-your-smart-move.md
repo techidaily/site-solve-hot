@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Professional Perks: Why Joining ABBYY Is Your Smart Move"
-date: 2024-09-03T22:48:30.519Z
-updated: 2024-09-04T22:48:30.519Z
+date: 2024-09-08T23:42:06.855Z
+updated: 2024-09-09T23:42:06.855Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0e4e69a266c0e21cfaa72121cb274553aaa959ab8154e71b42e7a2317f1338de.png
@@ -19,6 +19,12 @@ This is what Life at ABBYY looks like
 
 ![Careers-visual-abbyy](https://content.abbyy.com/-/media/feature/basecomponents/visuals/careers-visual-abbyy.jpg?h=1000&iar=0&w=5120)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Our Values
 
 At ABBYY, our success is built upon a foundation of shared values that define who we are and how we operate as a team. Our commitment to these values is not just a statement; it's a way of life within our organization. These values serve as the compass that guides our actions, decisions, and interactions every day.
@@ -31,12 +37,30 @@ Aspire to make things simple, there's beauty in being able to explain and unders
 
 ![Heart](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_heart-128.svg?h=128&iar=0&w=128)
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Transparency
 
 We trust our colleagues with knowledge and information. We know that leading with transparency drives team effort and engagement.
 
 ![People_Employee](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_people_employee-1-128.svg?h=128&iar=0&w=128)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Respect
 
 Above all, we show respect. We are kind to our teammates, respect others' opinions, and we listen.
@@ -51,6 +75,12 @@ Ulf Persson, CEO of ABBYY Group and Board Director
 
 ![Abbyy](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/life-at-abbyy/drawer-1.jpg?h=389&iar=0&w=750)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Our Guiding Principles
 
 Our commitment to excellence goes beyond our team values; it extends to the principles that guide our everyday actions and decisions. These principles are the compass that directs us towards achieving our goals while upholding the highest standards of integrity, collaboration, and customer-centricity
@@ -99,15 +129,27 @@ Over the past years, we have consistently received above industry-average scores
 
 ![DrawerImage-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/careers/drawer-image-2.jpg?h=389&iar=0&w=750)
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 There is richness in variety of our collective experiences, history, backgrounds, abilities, and perspectives – those can all thrive within one community, even if that community is organized around a business purpose.
 
 As most successful businesses, we strive to build our product in a way such that we can differentiate it and better serve our customers; in order to do that, we need to be able to innovate – innovation is a function of challenge and non-linear thinking, which is in turn enabled by individuals who represent different perspectives. To hire and retain diverse talent, we need to offer an inclusive environment – a community where differences are celebrated, and where we can all feel like we belong. That’s our aspiration and vision for ABBYY.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Environmental and Social Responsibility
 
@@ -115,24 +157,12 @@ At ABBYY, environmental and social responsibility initiatives have been of vital
 
 ![Checkmark](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_checkmark-64.svg?h=64&iar=0&w=64)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### A tree planted for every deal closed
 
 For each new customer deal, we donate a tree via One Tree Planted, planting over 2,000 trees in 2021.
 
 ![People_Employee](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_people_employee-1-64.svg?h=64&iar=0&w=64)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Paid time off, for a worthy cause
 
 Everyone gets two paid days annually to support causes they care about, contributing to over 40 causes last year.
@@ -140,10 +170,10 @@ Everyone gets two paid days annually to support causes they care about, contribu
 ![Mountain](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_mountain-64.svg?h=64&iar=0&w=64)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### On our path to becoming carbon-neutral
 
@@ -152,27 +182,21 @@ Starting 2023, we measure our travel carbon footprint, investing in offset progr
 ![Heart](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_heart-64.svg?h=64&iar=0&w=64)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Our ABBYY Summer Challenge
 
 Annually, we host a global sports competition with charity donations for every kilometer our colleagues run, cycle, walk, or swim.
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Learn more about ABBYY
 
 The leading AI-driven intelligent automation company

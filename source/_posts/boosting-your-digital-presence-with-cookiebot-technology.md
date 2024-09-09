@@ -1,12 +1,18 @@
 ---
 title: Boosting Your Digital Presence with Cookiebot Technology
-date: 2024-09-03T22:48:30.302Z
-updated: 2024-09-04T22:48:30.302Z
+date: 2024-09-08T23:42:06.678Z
+updated: 2024-09-09T23:42:06.678Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364beb1c1710fc99d1f9d71ae26e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Boosting Your Digital Presence with Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
@@ -17,8 +23,26 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Gabriela Lukianchuck](https://static1.abbyy.com/abbyycommedia/35915/gabriela-lukianchuck.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Zum Ausbau der Markenbekanntheit und Marktpräsenz hat ABBYY Gabrielle Lukianchuk zur Chief Marketing Officer berufen. In ihrer 25-jährigen Karriere war Lukianchuk eine Vorreiterin bei der Entwicklung neuer Marketingansätze, die den Kunden in den Mittelpunkt stellen. Ihr Ansatz des gezielten Storytellings auf globaler Ebene hat Go-To-Market-Strategien mit messbarem Geschäftserfolg bei Technologieunternehmen wie ConvergeOne, Fiserv, ACI Worldwide und CA Technologies/Broadcom ermöglicht. Als Mitglied des Management-Teams von ABBYY wird Gabrielle Lukianchuk das globale Marketing leiten, um das Wachstum der Führungsrolle des Unternehmens auf dem Markt für intelligente Prozessautomatisierung (IPA) zu beschleunigen.
 
 Gabrielle und ihr Team werden bei ABBYYs finaler Positionierung auf dem IPA-Markt eine entscheidende Rolle spielen. Unser Bestreben, Marktführer zu werden, erfordert eine effektive Markenkommunikation, die ABBYYs Innovationsgeist und qualitativ hochwertige Produkte widerspiegelt. Gabrielle wird sich vor allem darauf konzentrieren, die Zusammenarbeit mit unseren Kunden weiter zu intensivieren, um diese bei ihren Zielen im Bereich der intelligenten Automatisierung zu unterstützen.  
@@ -33,6 +57,12 @@ _Gabrielle Lukianchuk, Chief Marketing Officer bei ABBYY._
 
 Lukianchuk hat einen Master in Betriebswirtschaftslehre mit Schwerpunkt Marketing von der California Lutheran University und einen Bachelor of Arts in Musik von der California State University, Los Angeles. Sie setzt sich leidenschaftlich für Diversität in Unternehmen und weibliche Führungskräfte im Technologiebereich ein.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -44,20 +74,26 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

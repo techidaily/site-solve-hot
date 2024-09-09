@@ -1,22 +1,46 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization"
-date: 2024-09-03T22:48:34.483Z
-updated: 2024-09-04T22:48:34.483Z
+date: 2024-09-08T23:42:10.673Z
+updated: 2024-09-09T23:42:10.673Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023c6f698c9064238804be4852.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Introduces FineReader Engine 12, Comprehensive OCR SDK Suitable for Virtual and Cloud Environments
 
 May 17, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _The new version of the software development kit allows integrating text recognition, PDF conversion, and data capture into applications running in virtual and cloud environments, along with those running on premises_
 
 ABBYY®, a global provider of content intelligence solutions and services, today announced the launch of ABBYY FineReader Engine 12, a next-generation software development kit (SDK) that allows businesses to integrate text recognition, PDF conversion, and data capture functionalities into software applications running in the cloud, on premises or virtual machines.
@@ -117,10 +141,3 @@ Connect with us
 <li><a href="https://common-error.techidaily.com/troubleshooting-success-how-to-restore-steam-server-connections/"><u>Troubleshooting Success: How to Restore Steam Server Connections</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/unlocking-cost-reduction-with-process-mining-a-case-study-on-saving-millions-from-the-customer-angle/"><u>Unlocking Cost Reduction with Process Mining: A Case Study on Saving Millions From the Customer Angle</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

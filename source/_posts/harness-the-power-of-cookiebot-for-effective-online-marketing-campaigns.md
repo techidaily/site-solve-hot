@@ -1,7 +1,7 @@
 ---
 title: Harness the Power of Cookiebot for Effective Online Marketing Campaigns
-date: 2024-09-03T22:48:33.997Z
-updated: 2024-09-04T22:48:33.997Z
+date: 2024-09-08T23:42:10.240Z
+updated: 2024-09-09T23:42:10.240Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/90c049846794e5aed031591412d4826aac7c7bd6532c5bd0d695b676cbba88c9.jpg
@@ -11,6 +11,12 @@ thumbnail: https://thmb.techidaily.com/90c049846794e5aed031591412d4826aac7c7bd65
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is Process Intelligence?
 
 ###### Scott Opitz
@@ -19,6 +25,12 @@ October 06, 2023
 
 ![](https://static1.abbyy.com/abbyycommedia/37862/5-pillars-cover-photo_d_848x444-3.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In the current competitive business environment, streamlining and optimizing business processes is crucial for an organization's success and long-term advantage. However, as the landscape is inundated with promises of digital transformation, many process mining and task mining tools alone fall short of their promise to solve all process-related challenges. These limitations in the first-generation offerings have led to the emergence of comprehensive process intelligence platforms designed to fully meet these demands and go beyond surface-level issues. A true [process intelligence solution](https://tools.techidaily.com/abbyy/products/) must fully support five key pillars, which are essential for a holistic approach to process transformation.
 
 Jump to:
@@ -29,16 +41,22 @@ Jump to:
 [Pairing process intelligence with IPA](https://tools.techidaily.com/abbyy/products/)  
 [Frequently asked questions](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is process intelligence?
 
 **Process intelligence is a combination of data-driven capabilities dedicated to the analysis and enhancement of business operations.** It uses the data from a business’ own information systems to uncover patterns and insights that point the way to new operational efficiencies. **The five essential pillars for sustainable process intelligence are process discovery, process analysis, process monitoring, process prediction, and process simulation.** Organizations can use these insights to discover, understand, and manage execution of their processes more effectively.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The five pillars of process intelligence
 
 #### 1\. Process Discovery
@@ -64,10 +82,10 @@ Process prediction uses historical execution patterns to train an artificial int
 Process simulation provides a mechanism for utilizing process histories to automatically configure a simulation. This model can then be adjusted to reflect any proposed changes to the process or resource allocation, with the goal of understanding the impact of those changes before they are implemented. For example, a bank may use this approach to understand the impact of changing staffing levels in its loan approval department. This helps leaders make informed decisions regarding resource allocation and process changes, ultimately leading to optimized operational efficiency and customer satisfaction.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## What are the benefits of process intelligence?
 
@@ -90,10 +108,16 @@ By leveraging process intelligence, organizations can realize a broad range of b
 In any industry, incorporating [process intelligence in a digital transformation strategy](https://tools.techidaily.com/abbyy/products/) enables organizations to assess the future impact of proposed changes, manage the transition more effectively, ensure the performance of the implemented automation steps, and provide a feedback loop for continuous improvement. Businesses across industries are using process intelligence to drive results in a variety of use cases.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Healthcare
 
@@ -103,21 +127,15 @@ Hospitals and other healthcare providers can leverage process intelligence to im
 
 Process intelligence enables banks and other financial institutions to drive digital transformation and support risk and regulatory compliance priorities. They can analyze transaction data in near-real time to improve customer service, increase reporting accuracy, and reduce the risk of costly errors. Process monitoring helps them ensure that SLAs, compliance mandates, and legislative requirements are maintained, reducing the risk of costly mistakes that might otherwise be overlooked.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Insurance
 
 Insurance companies can use predictive analytics to drive risk evaluation, risk selection, and underwriting decisions. They can improve compliance with automated monitoring and remediation while also realizing productivity gains by enabling straight-through data processing. Process analytics deliver business value for internal staff, contract adjusters, third-party support organizations, and other partners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Pairing process intelligence with intelligent process automation
 
@@ -143,6 +161,18 @@ Organizations worldwide are automating time-consuming, routine business processe
 
 [Request trial](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Frequently asked questions
 
 [What is process intelligence strategy?](https://tools.techidaily.com/abbyy/products/)
@@ -165,18 +195,6 @@ For a process to be automated successfully, it must first be understood and stre
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Scott Opitz
 
 Chief Technology Officer at ABBYY

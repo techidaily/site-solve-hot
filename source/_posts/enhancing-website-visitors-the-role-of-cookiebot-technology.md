@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Website Visitors: The Role of Cookiebot Technology"
-date: 2024-09-03T22:48:31.795Z
-updated: 2024-09-04T22:48:31.795Z
+date: 2024-09-08T23:42:08.094Z
+updated: 2024-09-09T23:42:08.094Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8ea49d46a7efdbdbce7ce2f715d9bd1879477faba848022dab03800aadbcadb1.jpg
@@ -19,12 +19,36 @@ December 11, 2018
 
 There are thousands of photos in phones, but most of us don’t know about useful features in standard Galleries. Today we’ll unleash their potential. We’ll also show how you can export CSV to Excel, and have fun with optical illusions.
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iOS Tips: Managing Your Photos and Videos
 
 The Photos app on your iPhone is capable of much more than just displaying your snapshots. At the bottom of the screen, there sits a very useful pop-up menu.
 
 ![photos on iphone](https://static1.abbyy.com/abbyycommedia/26631/img_3875.png) ![share photos on iphone](https://static1.abbyy.com/abbyycommedia/26632/img_3874.png) ![manage pictures on ios](https://static1.abbyy.com/abbyycommedia/26633/img_3873.png) Let’s take a closer look at each of the tools.
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Copy**
 
 The selected photo will be copied to the [clipboard](https://en.wikipedia.org/wiki/Clipboard%5F%28computing%29), from where you can paste it into Messages or Notes. Alas, not all apps support pasting pictures from the clipboard (the best way to find out is just try and paste a picture).
@@ -49,6 +73,12 @@ You can play small videos created from your photos or video clips, all accompani
 
 ![slideshow](https://static1.abbyy.com/abbyycommedia/26635/img_3877.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Create Watch Face**
 
 If you have an Apple Watch, you can select any photo to be used as the watch face (or as your iPhone’s Home screen, for that matter). If you also have a lovely pet, the choice is obvious :)
@@ -69,6 +99,12 @@ As an example, we will take the standard Gallery app pre-installed on popular Sa
 
 ![samsung gallery](https://static1.abbyy.com/abbyycommedia/26637/samsung1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Share**
 
 Just like in iOS, you can easily share links to media content with your friends, who will be able to view and download the respective files.
@@ -82,10 +118,16 @@ Select photos or videos that you want to share with someone, say, with your fami
 The handy Smart View feature allows owners of Samsung Smart TVs to cast photos, videos or music directly to their TVs.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: Opening CSV Files in Excel**
 
@@ -102,45 +144,21 @@ The handy Smart View feature allows owners of Samsung Smart TVs to cast photos, 
 
 Please don’t be put off by so many steps. These are just consecutive steps of the wizard, and they are quite logical. When you’re done, you will have acquired yet another useful data management skill :)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of the Week: Kubic**
 
 If you like toying with optical illusions, you’ll like this app. Meet Kubic, a game topping the Puzzle Game charts in more than 20 countries. There’s an old adage saying that genius lies in simplicity. This game is very simple, with uncluttered design and beautifully drawn cube compositions. But the puzzles are quite fiendish.
 
 ![kubic app](https://static1.abbyy.com/abbyycommedia/26638/img_3879.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Kubic provides a good workout for your brain and encourages abstract thinking. The app includes a big collection of visual tricks to deceive your eyes. The impossible geometrical shapes may seem realistic enough, but just when you expect everything to fall into place, you realize that it’s just an optical illusion.
 
 ![creativity](https://static1.abbyy.com/abbyycommedia/26639/img_3881.png)
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Available on [iOS](https://itunes.apple.com/br/app/kubic/id1115010672?l=en) and [Android](https://play.google.com/store/apps/details?id=com.appsolutegames.kubic&hl=ru).
 
@@ -151,10 +169,10 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

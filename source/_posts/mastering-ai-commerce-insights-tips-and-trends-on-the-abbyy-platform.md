@@ -1,12 +1,24 @@
 ---
 title: Mastering AI Commerce Insights - Tips & Trends on the ABBYY Platform
-date: 2024-09-03T22:48:34.820Z
-updated: 2024-09-04T22:48:34.820Z
+date: 2024-09-08T23:42:11.015Z
+updated: 2024-09-09T23:42:11.015Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef75e54c89ead83bf0af102804bf50f616e622b6f296003a4995fda9891371fd.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Mastering AI Commerce Insights - Tips & Trends on the ABBYY Platform
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -21,58 +33,46 @@ For centuries, people have been dreaming of a machine that could be a kind of re
 
 The possibilities are limitless. New AI-based solutions can transform streams of disparate data into information necessary for strategic decision-making and business development. AI-based solutions can prevent emergencies at enterprises, protect businesses and customers from fraud, respond to customer support requests, read and understand millions of pages of laws and regulations to help companies bring business into compliance with legal norms. Based on ABBYY’s experience, here are five key areas where AI will profoundly transform business:
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Customer Service Industry
 
 AI is fueling a seismic shift in customer expectations. Customers now want to interact with companies 'here and now' in a way that minimizes their efforts and want services are available to them regardless of office hours. New AI tools are popping up daily in the support space that can address high-urgency situations quickly. These days, virtual assistants like Alexa, Cortana and Siri are the core of online services such as internet search or online shopping where they provide helpful responses. Companies are increasingly using chat-bots to communicate with their customers without requiring staff to be available.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 2\. Healthcare Services
 
 The need for more evidence-based medicine, for access to more diverse types of data to solve chronic conditions, the increasing workloads of healthcare professionals and a drive to improve the quality of healthcare services have opened up opportunities for AI in healthcare services. According to [CBInsights](https://www.cbinsights.com/research/artificial-intelligence-startups-healthcare/), by 2025, AI systems could be involved in everything from population health management, to digital avatars capable of answering specific patient queries. AI's medical applications include oncology, drug discovery, remote patient monitoring, patient risk scoring, and imaging & diagnostics.
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. Transportation & Logistics
 
 AI can deliver enormous benefits to supply chain and logistics operations, including cost reductions through reduced redundancies and risk mitigation, improved forecasting, faster deliveries through more optimized routes, improved customer service, and more. AI's ability to streamline so many supply chain and logistics functions is already delivering a competitive advantage for early adopters by cutting shipping times and costs. A cross-industry study on AI adoption conducted in early 2017 by [McKinsey](https://www.mckinsey.com/business-functions/mckinsey-analytics/our-insights/how-artificial-intelligence-can-deliver-real-value-to-companies) found that early adopters with a proactive AI strategy in the transportation and logistics sector enjoyed profit margins greater than 5%. Meanwhile, respondents in the sector that had not adopted AI were in the red.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 4\. Manufacturing Sector
 
 AI-powered robots are already being used in the manufacturing companies to assemble products and package them for shipment. The next robotic revolution will take things to the next level by being able to assemble more complicated items, such as electronics, cars, and even some homes. Newer smart sensors will be used to track, analyze production quotas, and aggregate control rooms, or help to create models for predictive maintenance. Robotic automation will help the manufacturing industry reach a high level of accuracy and productivity, a level that is even beyond human ability.
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="960" height="540" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Financial Services
 
 Like in other industries, AI has made significant inroads in financial services with banks and fintechs launching pilots across the front, middle and back offices, with applications for customer service, credit scoring, and fraud management, among others. In 2018, firms will likely move toward more advanced “augmented intelligence,” with tools that help humans make decisions and learn from the interactions. In the [2017 Global Digital IQ Survey](https://www.pwc.ru/ru/assets/pdf/2017-global-digital-iq-survey-pharmaceutical-en.pdf) by PwC, 52% of those in the financial services industry said they’re currently making “substantial investments” in AI, and 66% said they expect to do the same in three years. Almost three out of four (72%) business decision makers believe that AI will be the business advantage of the future.
@@ -80,10 +80,16 @@ Like in other industries, AI has made significant inroads in financial services 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

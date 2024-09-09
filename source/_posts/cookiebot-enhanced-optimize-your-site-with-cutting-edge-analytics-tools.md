@@ -1,12 +1,18 @@
 ---
 title: "Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Analytics Tools"
-date: 2024-09-03T22:48:32.345Z
-updated: 2024-09-04T22:48:32.345Z
+date: 2024-09-08T23:42:08.661Z
+updated: 2024-09-09T23:42:08.661Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/98f34ca3fe8cce60e4b7bdc2a18ea2c36cd4a116d1b350a14d170a43db0a71bd.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Analytics Tools
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -23,12 +29,30 @@ _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for And
 
 In one earlier newsletters, we offered tips on [using smartphone while driving](https://tools.techidaily.com/abbyy/products/). Today we’re talking about wearable gadgets, which have lots of uses and can greatly improve driving experience. Also reveal our latest technology, Real-Time Translation, and review cloud storages.
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **iOS Tip: The Smart Way to Use Your Smartwatch**
 
 Smartwatches can receive and display some information from smartphones, such as notifications and incoming calls, allowing users to answer phone calls without even taking out their phones from their pockets and generally stay connected 24/7.
 
 ![iOS Smartwatch how to use](https://static1.abbyy.com/abbyycommedia/26326/apple-watch.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The [Apple Watch Series 3](https://www.apple.com/apple-watch-series-3/) has been voted the [most popular watch](https://www.techradar.com/news/wearables/best-smart-watches-what-s-the-best-wearable-tech-for-you-1154074) of 2018\. What really makes this model stand out from the crowd is its SIM card, which lets you make calls and use iMessage even when you don’t have your iPhone to hand. Unfortunately, this functionality will not be available to users in Russia because Russian law does not allow SIM card cloning.
 
 To use an Apple Watch Series 3, you need an iPhone 5s or later [with the latest iOS](https://support.apple.com/en-us/ht204204).
@@ -41,6 +65,18 @@ To use an Apple Watch Series 3, you need an iPhone 5s or later [with the latest 
 4. On your iPhone, open the Apple Watch app and tap **Start Pairing**.
 5. Point your iPhone camera to the watch so that the watch face appears in the centre of the viewfinder. Wait until a message appears saying that the two devices are now paired.![pair up Apple Watch iPhone](https://static1.abbyy.com/abbyycommedia/26327/watchos4-iphone-setup-put-on-watch-pair-animation.jpg)
 6. Now you can set your preferences on the Apple Watch.
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Click [here](https://support.apple.com/en-us/ht204505) for detailed instructions on how to set up your watch.
 
@@ -66,6 +102,12 @@ Your watch comes with a very useful app called Activity, which tracks your movem
 
 ![activity app apple watch tracker](https://static1.abbyy.com/abbyycommedia/26328/activity-app-iphone-three-screens-tips-1024x582.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 For the sporty types among you, there is an app called Workout, where you can select various kinds of exercise, see how many calories you’ve burned, and monitor your progress.
 
 ![activity app iphone smartwatch](https://static1.abbyy.com/abbyycommedia/26329/workout-app-summary-1024x306.png)
@@ -82,22 +124,22 @@ Of course, you can also use your Apple Watch to talk to [Siri.](https://tools.te
 
 All Apple Watches require iOS and will not work with Android devices.
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Android Tip: The Smart Way to Use Your Smartwatch**
 
 ![Android Use Smartwatch functions sony](https://static1.abbyy.com/abbyycommedia/26331/gear-1024x727.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Unlike iOS, there are lots of different smartwatch models available for Android. Big vendors like [Xiaomi](https://xiaomi-mi.com/mitu-watches/), [Huawei](https://consumer.huawei.com/en/wearables/watch2/), [LG](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=http%3A%2F%2Fwww.lg.com%2Fus%2Fsmart-watches), and [Sony](https://www.sonymobile.com/global-en/products/smart-products/smartwatch-3-swr50/) all have something to offer. Additionally, there are manufacturers that specialize exclusively in wearable tech, such as [Garmin](https://www.garmin.com/en-US/), [Amazfit](https://us.amazfit.com/), [Casio](https://www.casio.com/home/), and [Polar](https://www.polar.com/de).
 
 Today we will tell you about the [Samsung Gear S3](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Fmobile%2Fwearables%2Fsmartwatches%2Fsamsung-gear-s3-frontier-sm-r760ndaaxar%2F), which has been ranked among the [three best](https://10beasts.com/best-smartwatches/) smartwatches in 2018\. This model supports both Android and iOS smartphones.
@@ -110,10 +152,10 @@ Today we will tell you about the [Samsung Gear S3](https://shop-links.co/link/?e
 ![pair up Gear S3 Android smartphone](https://static1.abbyy.com/abbyycommedia/26332/gear-smartphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Connecting via** **Bluetooth:**
 
@@ -144,29 +186,23 @@ You can perform lots of tasks by simply speaking into your Samsung Gear watch. T
 
 ![Samsung Gear watch S Voice app command](https://static1.abbyy.com/abbyycommedia/26335/gear-hand-1024x768.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 S Health is a fitness app that automatically tracks your activity 24/7\. The statistics gathered by the app include the number of steps you’ve walked and the stairs you’ve mounted, your heart rate, and sleep times. There’s also an exercise mode. You can then review the gathered data either directly on your watch or in a dedicated app on your smartphone.
 
 ![Samsung watch S Health app](https://static1.abbyy.com/abbyycommedia/26336/samsung-s-health-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![application S Health Samsung Gear](https://static1.abbyy.com/abbyycommedia/26337/training2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The built-in GPS sensor enables you to find out your location, plan routes, calculate distances to desired destinations, and even find the best cafés and restaurants nearby (this is something not available on the Apple Watch).
 
@@ -176,6 +212,18 @@ In an emergency, you can send out an SOS message by pressing the **Home** key th
 
 ![sos signal emergency Samsung Gear](https://static1.abbyy.com/abbyycommedia/26339/sos.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Real-Time Translation in TextGrabber iOS**
 
 Recently we announced our new real-time translation technology for [TextGrabber iOS](https://tools.techidaily.com/abbyy/products/). This new tech allows you to translate text printed on any surface on any background almost instantly, and you don’t even need to take a photo of the text! The feature works for 100+ languages if you have an active Internet connection and for 10 languages if you’re offline.
@@ -211,10 +259,10 @@ Today we’re going to compare three cloud storage services, each offering some 
 ![dropbox App Cloud Storage Services](https://static1.abbyy.com/abbyycommedia/26340/dropbox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Dropbox initially offers you 2 GB of storage free of charge, but you can pump up your quota to 16 GB if you log in with your social media account and share a link to Dropbox with your friends. Or you can take out a monthly subscription, which will entitle you to 15 TB of storage space for $15.
 
@@ -224,24 +272,18 @@ A business account offers some additional features, such as the ability to resto
 
 ![Google Disk (drive) Cloud Service](https://static1.abbyy.com/abbyycommedia/26341/googledisk.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Google Disk is the [most commonly used cloud storage service](https://www.techradar.com/news/the-best-cloud-storage). Its popularity is largely due to the fact that it comes preinstalled on all Android devices and thus is the first choice for many users. Initially, you get 15 GB of disk space, but $2 per month will buy you 100 GB. Google lets you store up to 30 different types of files. Google Disk shares your data with Gmail and Google Photo. Click [here](https://www.google.com/drive/pricing/) for detailed pricing information.
 
 [**Mega**](https://mega.nz/)
 
 ![mega app keep files cloud](https://static1.abbyy.com/abbyycommedia/26342/mega-1024x576.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="540" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Mega is one of the lesser known file-sharing services. What makes it stand out in the crowd is its ability to encrypt content on the fly in your browser window and share files between trusted users using a Friend-to-Friend network.
 
 As a starter, you get 50 GB of space, which is more than Google Disk or Dropbox. €4.99 will buy you 200 GB a month, and for €10 you will get 1 TB. Click [here](https://mega.nz/pro) to find out more about the available plans and capabilities.
@@ -252,12 +294,6 @@ _By Janna Markova, Internal Communications and Corporate Social Responsibility S
 
 ![abbyy advice trash sorting waste](https://static1.abbyy.com/abbyycommedia/26343/janna-769x1024.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 I take every opportunity to proselytize green living and zero waste lifestyle. Once, my family even played host to a delegation from Sweden who wanted to see how I organized the separate collection of waste in my household. At the time, my husband, myself, our two kids, and our dog all lived in a small bedsit. Here are my tips for sustainable living at home.
 
 1. Start with small things. For example, keep food waste separate from all other rubbish. This doesn’t look like much effort, but even this small step goes a long way, because it makes the sorting and recycling of waste easier.
@@ -284,10 +320,10 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

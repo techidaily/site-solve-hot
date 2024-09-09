@@ -1,18 +1,30 @@
 ---
 title: ABBYY FineReader Serverで過去50年間の文書検索能力向上
-date: 2024-09-03T22:48:30.745Z
-updated: 2024-09-04T22:48:30.745Z
+date: 2024-09-08T23:42:07.069Z
+updated: 2024-09-09T23:42:07.069Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fa466aca4e0117af9ede098ff5beff07b4b780680a77e468de6afed425dad313.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY FineReader Serverで過去50年間の文書検索能力向上
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
 Construction | Engineering & Manufacturing | Digital Archiving | Document Management
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 過去50年分のドキュメントの検索性を高めるため ABBYY FineReader Serverを導入
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/ja/94713.png?h=40&iar=0&w=120)
@@ -29,6 +41,12 @@ Construction | Engineering & Manufacturing | Digital Archiving | Document Manage
 
 ![千代田化工建設](https://static4.abbyy.com/abbyycommedia/23841/logo-chiyoda-small.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | 氏名     | 千代田化工建設                                             |
 | ------ | --------------------------------------------------- |
 | 本社     | 神奈川県横浜市西区みなとみらい四丁目 6番2号みなとみらいグランドセントラルタワー           |
@@ -105,14 +123,32 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 
 [![ABBYY FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Server](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ドキュメントアーカイブ <small>ENG</small>](https://static1.abbyy.com/abbyycommedia/14355/5-document-archiving.jpg)](https://tools.techidaily.com/abbyy/products/) [ドキュメントアーカイブ ENG](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static4.abbyy.com/abbyycommedia/23844/chiyoda-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/23839/customer-story-chiyoda-ja.pdf "PDF版") [PDF版](https://static4.abbyy.com/abbyycommedia/23839/customer-story-chiyoda-ja.pdf "PDF版") 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [詳細を読む](https://static4.abbyy.com/abbyycommedia/23839/customer-story-chiyoda-ja.pdf "PDF版") 
 
 ###### SNSでフォロー
@@ -123,12 +159,6 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

@@ -1,12 +1,18 @@
 ---
 title: "Harnessing the Power of Cookiebot: Elevate SEO and User Experience on Your Website"
-date: 2024-09-03T22:48:31.230Z
-updated: 2024-09-04T22:48:31.230Z
+date: 2024-09-08T23:42:07.529Z
+updated: 2024-09-09T23:42:07.529Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1ecbe0134963fa333301ade42400de327d03477a104e3a0eb43938f94bc26b2e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Harnessing the Power of Cookiebot: Elevate SEO and User Experience on Your Website
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,14 +23,38 @@ January 15, 2015
 
 ![abbyy cloud ocr sdk | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/28766/ocrsdk-visual-default.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 McDonald’s in Germany launched a special promotion during the FIFA World Cup in Brazil: By sending the unique code, which was printed on his cup or food packaging, each McDonald’s customer had the opportunity to win a valuable prize. To make the data entry more convenient for the participants the company offered a possibility to photograph the code with a mobile phone instead of entering it manually. To enable this, the McDonald’s creative agency Razorfish developed a special app that used the ABBYY Cloud OCR SDK for reading out the individual codes and sending it directly to the database for the lottery.
 
 ![screenshot-90-mcdonalds_450px](https://static1.abbyy.com/abbyycommedia/25807/screenshot-90-mcdonalds_450px-300x201.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![140512_08_worldcup_ios_wf_09_submit_code_50_240px](https://static1.abbyy.com/abbyycommedia/25808/140512_08_worldcup_ios_wf_09_submit_code_50_240px-169x300.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Customer Experience](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -136,10 +166,3 @@ Connect with us
 <li><a href="https://ios-unlock.techidaily.com/unlock-your-disabled-iphone-6s-plus-without-itunes-in-5-ways-by-drfone-ios/"><u>Unlock Your Disabled iPhone 6s Plus Without iTunes in 5 Ways</u></a></li>
 <li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-make-a-movie-on-your-mac-a-comprehensive-guide/"><u>Updated 2024 Approved Make a Movie on Your Mac A Comprehensive Guide</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

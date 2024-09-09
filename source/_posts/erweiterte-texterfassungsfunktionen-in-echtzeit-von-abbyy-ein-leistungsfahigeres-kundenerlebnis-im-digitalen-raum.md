@@ -1,22 +1,46 @@
 ---
 title: "Erweiterte Texterfassungsfunktionen in Echtzeit Von ABBYY: Ein Leistungsfähigeres Kundenerlebnis Im Digitalen Raum"
-date: 2024-09-03T22:48:31.196Z
-updated: 2024-09-04T22:48:31.196Z
+date: 2024-09-08T23:42:07.494Z
+updated: 2024-09-09T23:42:07.494Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aca7466ead46101c525a65c4ba2c61065f452c93cdf56e9e8e63cd78fa3eee10.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Erweiterte Texterfassungsfunktionen in Echtzeit Von ABBYY: Ein Leistungsfähigeres Kundenerlebnis Im Digitalen Raum
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Neue ‚Real-Time‘ Texterkennung von ABBYY verspricht gesteigertes digitales Kundenerlebnis
 
 11\. April 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _„Point and Capture“- Toolkit ermöglicht sofortige Verwendung von Textinformationen, die direkt vom Vorschaubild von Smartphone- und Tablet-Kameras erfasst werden_
 
 ABBYY Europe, ein führender globaler Anbieter von Technologien und Lösungen zur Informationsverarbeitung, kündigt heute die Verfügbarkeit seiner neuen Real-Time Recognition Technologie an. Diese ermöglicht eine sofortige Extraktion von Text aus Dokumenten und Objekten, die im Live-Videostream von Smartphones und anderen Mobilgeräten betrachtet werden. Die Echtzeit-Texterkennung von ABBYY bietet eine einfache und unmittelbare Verwendung des erfassten Textes in einer Vielzahl von Mobilanwendungen – von reaktionsschnellen Kundenservice-Apps über automatisierte Unternehmensprozesse bis hin zu komfortablen Verbraucheranwendungen.
@@ -142,16 +166,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-fcpx-glitch-busters-quick-fixes-for-common-problems/"><u>Updated In 2024, FCPX Glitch Busters Quick Fixes for Common Problems</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

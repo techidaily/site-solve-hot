@@ -1,12 +1,18 @@
 ---
 title: Harness the Power of Automated Tracking with Cookiebot Technology
-date: 2024-09-03T22:48:33.972Z
-updated: 2024-09-04T22:48:33.973Z
+date: 2024-09-08T23:42:10.215Z
+updated: 2024-09-09T23:42:10.215Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e4f1f7a9a67dc80aa935e243.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Harness the Power of Automated Tracking with Cookiebot Technology
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
@@ -17,6 +23,12 @@ Wholesale & Retail Trade | Invoice Processing
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/de/183288.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 ## ABBYY beschleunigt den Zahlungsverkehr der METRO AG Gesellschaften mit Großhandelskunden um bis zu 90% 
@@ -29,6 +41,12 @@ Groß- und Einzelhandel | Rechnungsverarbeitung
 
 ![METRO Digital](https://static5.abbyy.com/abbyycommedia/36404/logo_metrodigital.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | Name    | METRO Digital                           |
 | ------- | --------------------------------------- |
 | Branche | Wholesale                               |
@@ -76,10 +94,28 @@ Zudem liefert die Lösung von ABBYY deutlich mehr der benötigten Zusatzinformat
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Vantage](https://static4.abbyy.com/abbyycommedia/35821/vantage_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static2.abbyy.com/abbyycommedia/29440/10c-ecclesia-cover3-360x162.jpg)](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") [PDF-Version](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") 
@@ -87,16 +123,10 @@ Zudem liefert die Lösung von ABBYY deutlich mehr der benötigten Zusatzinformat
 [Zum Dokument](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") 
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ready to talk to an expert?
 

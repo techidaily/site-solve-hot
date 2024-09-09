@@ -1,22 +1,40 @@
 ---
 title: "Authentification Des ID Avec TrustID Et ABYEOCR : Un Passage Au Cloud Pour La Validation Sécurisée"
-date: 2024-09-03T22:48:31.473Z
-updated: 2024-09-04T22:48:31.473Z
+date: 2024-09-08T23:42:07.807Z
+updated: 2024-09-09T23:42:07.807Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c350e0ba60cc8399b6967ad03.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Authentification Des ID Avec TrustID Et ABYEOCR : Un Passage Au Cloud Pour La Validation Sécurisée
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## TrustID migre vers le cloud pour valider les pièces d’identité à l’aide de la technologie OCR d’ABBYY
 
 16 mai 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _L’entreprise qui fournit des services de vérification de pièces d’identité déploie la technologie de reconnaissance de texte d’ABBYY_
 
 [](https://tools.techidaily.com/abbyy/products/)ABBYY, fournisseur leader de technologies et de solutions de reconnaissance de documents, de capture de données et linguistiques, annonce que [TrustID](https://www.trustid.co.uk/ "TrustID"), fournisseur de solutions informatiques spécialisé dans la validation des pièces d’identité, a choisi la technologie OCR d’ABBYY pour son nouveau service cloud. Les clients des secteurs privé et public peuvent utiliser ce service afin de valider les pièces d’identité qui leur sont présentées et détecter toute fraude.
@@ -142,10 +160,3 @@ Connect with us
 <li><a href="https://solve-hot.techidaily.com/yum-chinas-finance-department-soars-higher-using-abbyy-flexicapture-at-their-shared-services-hub/"><u>YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/44kk44oz44k144kk44oi5zcr5lik44gu44gf44kb44gu44k44k544kv44o744ox44ot44k744k544oe44kk44ol44oz44kw5oqa6kgt/"><u>インサイト向上のためのタスク・プロセスマイニング技術</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

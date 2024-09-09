@@ -1,22 +1,46 @@
 ---
 title: "Introducing ABBYY's Innovative No-Code Solution: Vantage Ⅱ & Exclusive AI Tools Collection"
-date: 2024-09-03T22:48:32.641Z
-updated: 2024-09-04T22:48:32.641Z
+date: 2024-09-08T23:42:08.971Z
+updated: 2024-09-09T23:42:08.971Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07e687f8419c4806cb630c22e1fb9dad31142326727645ceb99c557de0c60728.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Introducing ABBYY's Innovative No-Code Solution: Vantage Ⅱ & Exclusive AI Tools Collection
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Launches No-Code Platform Vantage 2 and AI Marketplace to Reimagine Digital Transformation
 
 March 23, 2021
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Vantage 2 delivers ready-to-use AI skills for intelligent automation. The ABBYY Marketplace allows users to try cognitive skills to accelerate their automation initiatives._ 
 
 ABBYY, a Digital Intelligence company, announced today, during its [Reimagine](https://tools.techidaily.com/abbyy/products/) virtual conference, the launch of Vantage 2, a low-code/no-code platform that delivers cognitive skills for RPA robots, automation systems, chatbots, and mobile solutions, enabling organizations to gain insights from documents and content. The company also launched ABBYY Marketplace, the first open marketplace where organizations can discover, try, and purchase reusable AI skills to accelerate their automation initiatives, while partners can build and publish skills to automate all types of content-centric processes.
@@ -119,10 +143,3 @@ Connect with us
 <li><a href="https://hardware-reviews.techidaily.com/score-the-ultimate-bargain-279-32-dell-s322dmg-monitor-perfect-for-gamers-this-memorial-day/"><u>Score the Ultimate Bargain: $279 32” Dell S322DMG Monitor, Perfect for Gamers This Memorial Day!</u></a></li>
 <li><a href="https://win-solutions.techidaily.com/streamline-your-shooter-experience-innovative-solutions-to-boost-fps-on-valorant-updated-gaming-trends/"><u>Streamline Your Shooter Experience: Innovative Solutions to Boost FPS on Valorant (Updated Gaming Trends)</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030391/7443" target="_top" id="2030391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

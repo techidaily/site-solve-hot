@@ -1,22 +1,40 @@
 ---
 title: "Nouvelle Version Du Logiciel De Reconnaissance OCR ABBYY : FineReader Server Est Maintenant Disponible"
-date: 2024-09-03T22:48:31.942Z
-updated: 2024-09-04T22:48:31.942Z
+date: 2024-09-08T23:42:08.251Z
+updated: 2024-09-09T23:42:08.251Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/227bd0353ed763348ef514468bae7b22e2b22e0109d88910437782328b50ad10.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Nouvelle Version Du Logiciel De Reconnaissance OCR ABBYY : FineReader Server Est Maintenant Disponible
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY dévoile une nouvelle version de FineReader Server, anciennement nommé ABBYY Recognition Server
 
 26 novembre 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Le service d'OCR basé sur serveur rejoint la gamme FineReader pour réunir l’offre de capture de documents et de conversion PDF haut de gamme d'ABBYY dans une même solution_
 
 ABBYY®, fournisseur mondial de solutions et de services de traitement intelligent du contenu, a annoncé aujourd'hui le renommage de son plus puissant service de reconnaissance optique de caractères, basé sur serveur, ABBYY Recognition Server en ABBYY FineReader Server. L'objectif de cette mise à jour est de consolider l'ensemble de l'offre de conversion ABBYY OCR et PDF sous la marque FineReader afin de permettre aux clients et partenaires de trouver plus facilement une solution adaptée dans la gamme.
@@ -133,10 +151,3 @@ Connect with us
 <li><a href="https://ai-vdieo-software.techidaily.com/updated-top-10plus-slow-motion-video-editing-software/"><u>Updated Top 10+ Slow Motion Video Editing Software</u></a></li>
 <li><a href="https://techidaily.com/your-complete-guide-to-reset-tecno-spark-20-pro-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Tecno Spark 20 Pro | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030370/7443" target="_top" id="2030370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

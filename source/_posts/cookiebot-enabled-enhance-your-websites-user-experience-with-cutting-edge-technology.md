@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Website's User Experience with Cutting-Edge Technology"
-date: 2024-09-03T22:48:32.287Z
-updated: 2024-09-04T22:48:32.287Z
+date: 2024-09-08T23:42:08.602Z
+updated: 2024-09-09T23:42:08.602Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/14ec252872982da41ad9f63f459b4e43e487f639283132cbb2c57561289fd670.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhance Your Website's User Experience with Cutting-Edge Technology
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Neue Impulse für die Kreditorenbuchhaltung mit ABBYY auf den StrategieTagen Finance 2017
 
 30\. März 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, ein führender und globaler Anbieter von Technologien und Lösungen für den effektiven Einsatz von Informationen in Organisationen, zeigt Finanzvorständen vom 4\. – 5\. April 2017 auf Schloß Bensberg, wie sie ihre Kreditorenbuchhaltung durch Automatisierung optimieren können und worauf sie bei der Umsetzung neuer, digitaler Prozesse achten müssen. Die StrategieTage Finance sind ein wichtiges Forum, um sich über Trends, Herausforderungen und Lösungen für die Finanzbranche auszutauschen. CFOs namhafter Unternehmen sprechen mit Politikern und Lösungsanbietern über zukunftsweisende Themen: unter anderem Machine Learning, intelligente Erfassung und Robotic Process Automation (RPA).
 
 „Die digitale Transformation eröffnet vor allem für die Kreditorenbuchhaltung große Optimierungs- und Einsparpotenziale. Die Erfahrung aus unseren Kunden-Projekten zeigt, dass sich durch die Automatisierung die Kosten für die Verarbeitung einer Rechnung sogar halbieren lassen“, sagt Markus Pichler, Director Business Unit Solutions bei ABBYY Europe. „Aber das ist nicht der einzige Vorteil. Die Automatisierung hilft Unternehmen auch, Prozesse und Transaktionen in Echtzeit zu überwachen und so SLAs, Richtlinien leichter einzuhalten und Audits zu begegnen. Auf den StrategieTagen Finance können wir Unternehmen ganz gezielt und konzentriert zu ihren individuellen Anforderungen und Projekten beraten und Impulse für eine bessere Rechnungsverarbeitung geben.“
@@ -124,10 +142,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-hot.techidaily.com/transform-your-medical-practice-enhancing-patient-care-through-abbyy-paperless-data-solutions/"><u>Transform Your Medical Practice: Enhancing Patient Care Through ABBYY Paperless Data Solutions</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/transforming-doc-mastery-with-abbyy-marketplace-advanced-llm-and-rag-technology-unleashed/"><u>Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

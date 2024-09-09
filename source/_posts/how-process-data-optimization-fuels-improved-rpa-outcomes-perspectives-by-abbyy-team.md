@@ -1,22 +1,40 @@
 ---
 title: How Process Data Optimization Fuels Improved RPA Outcomes - Perspectives by ABBYY Team
-date: 2024-09-03T22:48:31.249Z
-updated: 2024-09-04T22:48:31.249Z
+date: 2024-09-08T23:42:07.547Z
+updated: 2024-09-09T23:42:07.547Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/936d10b629420455d4c3cd43378416c6e205e5dc73cdd968038b275d13e490d5.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Process Data Optimization Fuels Improved RPA Outcomes - Perspectives by ABBYY Team
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Process Intelligence Bolsters RPA Performance
 
 September 30, 2020
 
 ![Process Intelligence Bolsters RPA Performance Cover | ABBYY Blog Post](https://static3.abbyy.com/abbyycommedia/29657/process-intelligence-bolsters-rpa-performance-cover.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 “After you deploy a bot, the reality is you want to know if it’s doing what you thought it would. That’s why we think end-users should be focusing on Process Intelligence.” In an exclusive interview with RPA Today, **Scott Opitz, Chief Marketing Officer at ABBYY**, reveals how Process Intelligence is helping drive success in Robotic Process Automation (RPA) initiatives and paving the way for integrated, [end-to-end enterprise automation](https://tools.techidaily.com/abbyy/products/).
 
 In discussing the relationship between task mining and process mining, Opitz notes that “the reality is that we are only at the very beginning of anything that even begins to look like enterprise-level process automation... The analysis of the desktop is, ‘what are the tedious steps in a small portion of a process?’ **The analysis of the overall process is where the big opportunities are to improve your overall operation**."
@@ -27,6 +45,12 @@ Read the full interview to **uncover what truly sets Process Intelligence apart 
 
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -141,10 +165,3 @@ Connect with us
 <li><a href="https://ai-vdieo-software.techidaily.com/updated-face-blur-mastery-a-step-by-step-guide-to-free-video-editing-tools/"><u>Updated Face Blur Mastery A Step-by-Step Guide to Free Video Editing Tools</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/verstehen-sie-den-wechsel-von-etl-zu-elt-und-seinen-einfluss-fur-datenmanagement-strategien/"><u>Verstehen Sie Den Wechsel Von ETL Zu ELT Und Seinen Einfluss Für Datenmanagement-Strategien</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

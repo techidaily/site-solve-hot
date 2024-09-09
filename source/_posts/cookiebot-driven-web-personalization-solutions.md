@@ -1,22 +1,40 @@
 ---
 title: Cookiebot-Driven Web Personalization Solutions
-date: 2024-09-03T22:48:31.538Z
-updated: 2024-09-04T22:48:31.538Z
+date: 2024-09-08T23:42:07.879Z
+updated: 2024-09-09T23:42:07.879Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8581bfa31a5d038a1f8f5ee676586f0437981f1b9f6527b07717a27989fe2446.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Driven Web Personalization Solutions
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY は画像ベースの文字認識を NTT ドコモの多言語翻訳アプリに提供
 
 4月12日, 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Hanashite-Honyaku™ （はなして翻訳）アプリのユーザーは、様々な言語のテキストをより正確に翻訳できるようになりました 。_
 
 情報を有効活用するテクノロジーとソリューションで業界をリードする ABBYY® は本日、ABBYY FineReader エンジンが画像ベースの翻訳機能を日本最大のモバイルキャリア NTT ドコモが提供する「はなして翻訳」モバイルアプリに提供を開始することを発表しました。 「はなして翻訳」は英語、フランス語、ドイツ語、インドネシア語、イタリア語、ポルトガル語、スペイン語、タイ語を含む最大10言語を正確に日本語に翻訳する必要がある日本語使用者に人気のツールとなっている他、日本に滞在する外国人が日本語を別の言語に翻訳する場合にも愛用されています。 ABBYY の受賞歴のある文字認識テクノロジーを利用した「はなして翻訳」アプリのユーザーは、話し言葉や、メニュー、新聞、標識などの印刷されたテキストを翻訳することができます。
@@ -129,10 +147,3 @@ Connect with us
 <li><a href="https://hardware-help.techidaily.com/troubleshooting-guide-linksys-wusb6300-drivers-finding-and-installing-them-correctly/"><u>Troubleshooting Guide: Linksys WUSB6300 Drivers - Finding and Installing Them Correctly</u></a></li>
 <li><a href="https://change-location.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Samsung Galaxy M34 5G? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030385/7443" target="_top" id="2030385">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030385" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030385/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

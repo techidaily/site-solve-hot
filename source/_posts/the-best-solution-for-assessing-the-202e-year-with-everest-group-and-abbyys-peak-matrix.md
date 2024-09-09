@@ -1,22 +1,52 @@
 ---
 title: The Best Solution for Assessing the 202E Year with Everest Group and ABBYY's PEAK Matrix
-date: 2024-09-03T22:48:33.398Z
-updated: 2024-09-04T22:48:33.398Z
+date: 2024-09-08T23:42:09.653Z
+updated: 2024-09-09T23:42:09.653Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/73bc1d0c3856a7a211513ecf3ce0b7d7e8f0b9c63de7c46849c7b8605b7802d4.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Best Solution for Assessing the 202E Year with Everest Group and ABBYY's PEAK Matrix
 
 Rapport
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6ème année consécutive : dans son PEAK Matrix®, Everest Group désigne ABBYY parmi les leaders des produits de traitement intelligent des documents (IDP)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Une nouvelle fois, ABBYY a été reconnu comme l’un des leaders des produits de traitement intelligent des documents (IDP) par Everest Group, dans son évaluation PEAK Matrix® 2024\. 
 
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY est très bien positionné pour son efficacité en termes de Vision & de Capacités, ainsi que pour son impact sur le marché avec ABBYY Vantage. Vantage est la seule plateforme IDP low-code / no-code pouvant s’intégrer à n’importe quelle plateforme d’automatisation intelligente. Vantage offre aux entreprises la possibilité de traiter les documents structurés et non-structurés grâce à des modèles d’IA préconçus, accessibles sur ABBYY Marketplace. Ils sont prêts à l’emploi en quelques minutes, avec un très grand degré de précision. 
 
 Les entreprises du monde entier s’appuient sur les classements PEAK Matrix® d’Everest Group pour trouver les meilleures solutions d’IDP, celles qui utilisent le mieux l’IA, les fonctionnalités cognitives et l’IA générative pour tirer le plus de valeur et de sens des données contenues dans les documents de l’entreprise. Ceux qui arrivent en tête de l’évaluation se distinguent par leur investissement et leur innovation continus dans les fonctionnalités d’IDP, y compris l’expansion de modèles préconçus et de solutions intégrées prêtes à l’emploi, en particulier pour des utilisations dans des secteurs d’activité ou avec des types de documents spécifiques. 
@@ -28,16 +58,10 @@ La vision d’ABBYY de l’IA sur mesure est de permettre aux entreprises d’ex
 _**Vaibhav Bansal, Vice President, Everest Group**_ 
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="120" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Merci de votre intérêt pour ABBYY. 
 

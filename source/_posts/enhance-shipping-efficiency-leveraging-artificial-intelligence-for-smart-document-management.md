@@ -1,16 +1,28 @@
 ---
 title: "Enhance Shipping Efficiency: Leveraging Artificial Intelligence for Smart Document Management"
-date: 2024-09-03T22:48:34.656Z
-updated: 2024-09-04T22:48:34.656Z
+date: 2024-09-08T23:42:10.848Z
+updated: 2024-09-09T23:42:10.848Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1945857397ebd75b26ddd988969514bcfe07be7bef56803fb658a77091d094a7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhance Shipping Efficiency: Leveraging Artificial Intelligence for Smart Document Management
 
 [Back to The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## For Logistics Providers, the Time to Act on Artificial Intelligence Is Now
 
 ###### by Slavena Hristova, Director of Product Marketing 
@@ -27,6 +39,12 @@ Manual processing of paper-based shipping documentation is notoriously slow and 
 
 They can leverage intelligent document processing and intelligent automation today to seize unprecedented opportunities, achieve remarkable outcomes, and secure a competitive edge in a swiftly evolving landscape.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How intelligent document processing (IDP) contributes to operational resilience
 
 By automating the extraction, processing, and analysis of shipping documents, this technology ushers in a new era of operational resilience. It eradicates manual errors, reduces processing times, and ensures consistent and accurate data handling. In an industry where time is of the essence, the speed and precision of AI-driven IDP elevate efficiency to new heights, ensuring a robust operational backbone.
@@ -168,10 +186,3 @@ Connect with us
 <li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-your-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning your drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
 <li><a href="https://extra-resources.techidaily.com/winning-windows-wisdom-quick-photo-mastery/"><u>Winning Window's Wisdom  Quick Photo Mastery</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,46 @@
 ---
 title: Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test
-date: 2024-09-03T22:48:34.045Z
-updated: 2024-09-04T22:48:34.045Z
+date: 2024-09-08T23:42:10.272Z
+updated: 2024-09-09T23:42:10.272Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee536102fa45e6319038a39015f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test
 
 Bericht 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Im 6\. Jahr in Folge: Everest Group zählt ABBYY in ihrem „Intelligent Document Processing Products PEAK Matrix™ Assessment“ erneut zu den Marktführern
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYY wurde im Intelligent Document Processing (IDP) Products PEAK Matrix® Assessment 2024 der Everest Group erneut als als führender Anbieter genannt. 
 
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY ist mit ABBYY Vantage, der branchenweit einzigen Low-Code/No-Code-IDP-Plattform, die sich in jede intelligente Automatisierungsplattform integrieren lässt, aufgrund der Stärken in den Kategorien Vision & Capability und Market Impact hervorragend positioniert. Vantage bietet Unternehmen die Möglichkeit, strukturierte und unstrukturierte Dokumente mithilfe vorgefertigter KI-Modelle zu verarbeiten, die auf dem ABBYY Marketplace angeboten werden und innerhalb weniger Minuten mit einem hohen Maß an Genauigkeit einsatzbereit sind. 
 
 Unternehmen in aller Welt verlassen sich auf das IDP PEAK Matrix® Assessment der Everest Group, wenn sie die besten IDP-Lösungen finden wollen, die KI, kognitive Fähigkeiten und generative KI nutzen, um den größten Wert und Sinngehalt aus den in Geschäftsdokumenten enthaltenen Daten zu ziehen. Unternehmen, die bei der Bewertung besonders gut abschneiden, zeichnen sich durch kontinuierliche Investitionen und Innovationen auf dem Feld von IDP-Funktionen aus, beispielsweise bei der Erweiterung von vorgefertigten Modellen und OOTB-Paketlösungen, insbesondere für branchenspezifische Anwendungsfälle und Dokumenttypen. 
@@ -28,10 +52,10 @@ ABBYYs Vision von zweckgebundener KI ermöglicht es Unternehmen, die besten KI-M
 _**\-Vaibhav Bansal, Vice President, Everest Group**_ 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY. 
 

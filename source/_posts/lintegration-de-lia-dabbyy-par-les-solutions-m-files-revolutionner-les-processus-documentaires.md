@@ -1,22 +1,40 @@
 ---
 title: "L'intégration De L'IA D'Abbyy Par Les Solutions M-Files : Révolutionner Les Processus Documentaires"
-date: 2024-09-03T22:48:35.373Z
-updated: 2024-09-04T22:48:35.373Z
+date: 2024-09-08T23:42:11.513Z
+updated: 2024-09-09T23:42:11.513Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b77287d835797fe2caec0c18f95.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## L'intégration De L'IA D'Abbyy Par Les Solutions M-Files : Révolutionner Les Processus Documentaires
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Les solutions M-Files intègrent la technologie d’intelligence artificielle d’ABBYY pour automatiser la gestion de l’information
 
 20 juin 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _M-Files, acteur majeur dans la conception de solutions intelligentes enrichit sa plateforme avec la technologie d’intelligence artificielle ABBYY pour la classification automatique des documents et autres supports d’information_
 
 [M-Files](http://www.m-files.com/ "m-files"), un fournisseur de nouvelles solutions intelligentes de gestion de l’information permettant aux organisations d’améliorer de manière spectaculaire les processus de gestion de leurs documents et autres supports d’information, a annoncé aujourd’hui un partenariat avec ABBYY, un fournisseur mondial dans le domaine des technologies innovantes de reconnaissance optique de caractères, basées sur la langue et l’intelligence artificielle. M-Files intègre la technologie ABBYY dans sa plateforme de gestion intelligente de l’information afin de simplifier et d’améliorer la façon dont les informations sont organisées et classées. Cette décision présente bien des avantages pour les utilisateurs qui pourront profiter d’une plateforme intelligente et simplifiée pour la gestion de l’information, et qui assure avec cohérence la façon dont le contenu est classé. Celle-ci est également intelligemment liée aux autres données, contenus et processus pertinents pour fournir un aperçu global et détaillé des données structurées et du contenu non structuré dans différents systèmes d’entreprise.
@@ -121,10 +139,3 @@ Connect with us
 <li><a href="https://solve-hot.techidaily.com/unlocking-cost-reduction-with-process-mining-a-case-study-on-saving-millions-from-the-customer-angle/"><u>Unlocking Cost Reduction with Process Mining: A Case Study on Saving Millions From the Customer Angle</u></a></li>
 <li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Vivo V30? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

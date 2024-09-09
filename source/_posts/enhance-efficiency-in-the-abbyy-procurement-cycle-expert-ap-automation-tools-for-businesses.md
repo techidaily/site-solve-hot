@@ -1,12 +1,18 @@
 ---
 title: "Enhance Efficiency in the ABBYY Procurement Cycle: Expert AP Automation Tools for Businesses"
-date: 2024-09-03T22:48:33.197Z
-updated: 2024-09-04T22:48:33.197Z
+date: 2024-09-08T23:42:09.458Z
+updated: 2024-09-09T23:42:09.458Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6404644d3e1ec95170f598da6ea66bbff597c34cc3f9580cc8d7755b3643dcab.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhance Efficiency in the ABBYY Procurement Cycle: Expert AP Automation Tools for Businesses
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,6 +25,18 @@ December 27, 2021
 
 ![](https://static2.abbyy.com/abbyycommedia/34800/skills-for-ap-cover-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Procure-to-Pay (P2P) has become the Holy Grail of Accounts Payable (AP) automation, whose ultimate value is in delivering the AP department from a cost center to a strategic source of cashflow and profits. All too often, unfortunately, the path to P2P is paved with data-driven approaches, where elegant data architectures with metadata tagging of required content are sold as sufficient to the task. And these approaches typically fail. According to recent research on Supply Chain automation, over 60 percent of data-based automation approaches, including artificial intelligence (AI), business intelligence (BI), Intelligent Document Processing (IDP), optical character recognition (OCR), and process mining fail to deliver on expectations.i
 
 [See the infographic: Taking the Pulse on Digital Transformation in Supply Chain](https://www.abbyy.com/media/34942/infographic-transportation-digitaltransformationsurvey-en.pdf?itm%5Fsource=corpblog-en)
@@ -37,6 +55,12 @@ And AP operations need to be integrated with goods receipts in order to have the
 
 ![woman meeting to discuss procure-to-pay software](https://static1.abbyy.com/abbyycommedia/33543/woman-with-clients-new.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Now there are skills for that..._
 
 Now, there are document skills that are modern, containerized low-code / no-code (LCNC) pluggable AI solutions that are pre-trained, adapt on the fly, and are ready to go within minutes. With Vantage, ABBYY introduced the industry’s first containerized document skills, taking IDP to the next level, beyond just better OCR, to add intelligence to document processing. This intelligence augments the way it understands the document, the processes, and the people who rely on them for real-time cashflow management.
@@ -46,10 +70,10 @@ There now are [ABBYY Vantage Document Skills](https://tools.techidaily.com/abbyy
 [Related content: Clearing the Document Bottlenecks in Your Supply Chain Operations with a “Skills” Approach](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Skill up to procure-to-pay
 
@@ -57,12 +81,6 @@ Why do so many attempts at P2P fail despite having modern technologies like RPA,
 
 Containerized low-code / no-code skills allow you to add Intelligent Document Processing without laying down its own infrastructure and custom integration to run it. Procure-to-pay is a real-time control of cashflow that always knows all outstanding invoices, receipts, receivables, terms, and opportunities. Understanding cash flow as document-driven events and processes is the first step. Adding [Vantage skills](https://tools.techidaily.com/abbyy/products/) for [invoices](https://tools.techidaily.com/abbyy/products/), [receipts](https://tools.techidaily.com/abbyy/products/), [commercial invoices](https://tools.techidaily.com/abbyy/products/), [customs declarations and more](https://tools.techidaily.com/abbyy/products/)—all using your existing infrastructure—completes the foundation for real-time cashflow control. Now, P2P can become reality.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Want to optimize your AP operations for rapid change?
 
 We have a skill for that.
@@ -70,10 +88,10 @@ We have a skill for that.
 [Visit ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## A marketplace approach
 
@@ -97,19 +115,13 @@ For more information, [read the press release](https://tools.techidaily.com/abby
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Reginald J. Twigg
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

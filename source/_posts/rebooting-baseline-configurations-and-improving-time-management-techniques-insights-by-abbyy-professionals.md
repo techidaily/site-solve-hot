@@ -1,12 +1,18 @@
 ---
 title: Rebooting Baseline Configurations & Improving Time Management Techniques - Insights by ABBYY Professionals
-date: 2024-09-03T22:48:34.174Z
-updated: 2024-09-04T22:48:34.174Z
+date: 2024-09-08T23:42:10.393Z
+updated: 2024-09-09T23:42:10.393Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c5b0ebae4367079e280b487ce588fc466a9ede57f33408103ebb2dc34b6570fb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Rebooting Baseline Configurations & Improving Time Management Techniques - Insights by ABBYY Professionals
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,6 +25,12 @@ April 09, 2018
 
 On very rare occasions, you may need to factory-reset your phone. We provide instructions on how to do it safely and not lose any data. We also show how you can send files from FineScanner to your Mac via iTunes.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **iOS Tip: How to Reset Your iPhone**
 
 There may be many reasons why you may want to reset your iPhone—you are selling your device, the phone has become cluttered with unnecessary software, or you have made some changes that you want to undo. Whatever the reason, we strongly recommend that you [back up all of your data](https://tools.techidaily.com/abbyy/products/) before proceeding with the steps below.
@@ -41,21 +53,33 @@ First, you’ll need to decide which settings you want to be reverted to their f
 
 Here are some additional facts you should know before you begin to reset your phone. Firstly, depending on the number of installed apps, the process may take quite some time. Secondly, a reset is a reset, and all of the data will be erased, including your Apple ID info, so be sure to write down all of your usernames and passwords. Finally, you will need to activate your device anew, which requires a Wi-Fi connection or a desktop computer with iTunes.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Android Tip: How to Reset Your Android Phone**
 
 There are several ways to reset an Android device. Perhaps the easiest way to revert to the factory settings is by selecting the corresponding item in the settings of your device.
 
 1. Go to the **Settings** menu and tap **Backup & reset**.![Android backup Reset Android Phone](https://static1.abbyy.com/abbyycommedia/26224/mm29-2-e1523368881923.png)
 1. Tap **Factory data reset** \> **Reset phone**.
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Factory data reset phone android](https://static1.abbyy.com/abbyycommedia/26225/mm29-3-e1523369706325.png)The phone will inform you that all of your personal information, settings, apps, and data will be erased. Confirm by tapping **Erase everything**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 An alternative method to factory-reset your phone is to press a combination of hardware buttons on your device. First, touch and hold the power button until the phone is completely turned off. Now you need to turn on your phone in Recovery mode. This is done by pressing the combination of buttons designated by the manufacturer (these are different for each model):
 
 **Huawei**
@@ -87,19 +111,13 @@ Sometimes the **Recovery menu** may not respond to your taps. In this case, use 
 ![Recovery menu restoring factory defaults](https://static1.abbyy.com/abbyycommedia/26227/00fc1e1195ef1696637680957c2a05cc-e1521460674814.png)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The phone will start erasing all of your data and restoring the factory defaults. When the process completes, select the **Reboot System** item. Once the reboot is finished, you will be holding a pristine device in exactly the same state when you just unboxed it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ABBYY Tip: How to Send Documents From FineScanner to Your Computer Via iTunes**
 
 Many [FineScanner iOS](http://qrs.ly/pl4x25p) users want to be able to read their documents not just on their phones but also on their desktop or laptop computers. We couldn’t agree more: some materials are best viewed on big computer screens. And today we’re going to tell you how you can easily transfer your documents from your iPhone to your Mac or PC without any hassle or cloud maneuvering.
@@ -119,10 +137,10 @@ Many [FineScanner iOS](http://qrs.ly/pl4x25p) users want to be able to read thei
 That’s it! Now your documents are stored both on your phone and on your computer.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **App of the Week: Tempra**
 
@@ -132,34 +150,22 @@ Our inner sense of time is very subjective and is affected by our local culture,
 
 ![App Tempra develop sense of time](https://static1.abbyy.com/abbyycommedia/26229/tumblr_nlnamno0d61rrnrzjo1_500-e1521462461686.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Tempra](http://blog.cwandt.com/post/114375488090/httpbitlytempra-app-im-finally-getting) is also a research tool. It collects user data (upon your consent, of course) to help its creators with their research into how we sense time, whether our sense of time can be trained, and how this kind of exercise affects our brain.
 
 Available on[iOS](https://itunes.apple.com/us/app/tempra/id928533123).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Anna Koltsova, Head of Mobile Product Marketing_
 
 ![abbyy advice antistress relaxation spinner](https://static1.abbyy.com/abbyycommedia/26230/ak-blog.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 I guess most of you, like myself, have read numerous articles about time management, ranging from methods like [Pomodoro](https://lifehacker.ru/2015/05/28/all-about-pomodoro/) to simple advice not to open your social network page every time you have a spare moment, disable all the pop-up notifications, and possibly, switch the screen of your device to [monochrome](https://tools.techidaily.com/abbyy/products/) to make it less alluring. If all this good-intentioned advice hasn’t weaned you off your phone, why not try a couple of tricks that have worked for me? Here’s what I do to make the most of my short breaks from work without losing myself in social media.
 
 Exhibit number 1: a small 25-liter fish tank that I’ve had on my desk for about seven years now. It’s not much of a burden really. I just change the water and clean the filter once a month. But when I want to take a break, I can always look from the computer screen to my small aquarium, where the fishes are leading their normal and eventful aquatic lives—feeding, playing, and talking in complete silence. It’s very comforting both for the eyes and for the mind.
@@ -170,6 +176,12 @@ That’s all we wanted to tell you today. See you next Monday! P.S. You can find
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

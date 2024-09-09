@@ -1,22 +1,40 @@
 ---
 title: ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing
-date: 2024-09-03T22:48:31.458Z
-updated: 2024-09-04T22:48:31.458Z
+date: 2024-09-08T23:42:07.790Z
+updated: 2024-09-09T23:42:07.790Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c477119574c19e1fe1c1e24c760eca970cf6d9df63cc3bc93f37a86e27d2e105.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Real-Time Recognition SDK Adds Instant Data Capture Functionality
 
 November 30, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _The new point and capture functionality automates data entry on mobile devices for fast and effortless transactions_
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), a global provider of intelligent capture solutions to improve business outcomes, today announced the release of the new version of the ABBYY Real-Time Recognition Software Development Kit (RTR SDK) with added data capture functionality on iOS and Android mobile platforms. The Real-Time Recognition technology is capable of pulling text information from on-screen objects and automatically converting it into digital data on the mobile device.
@@ -113,10 +131,3 @@ Connect with us
 <li><a href="https://solve-hot.techidaily.com/utilizing-cookiebot-technology-for-tailored-user-experience-on-websites/"><u>Utilizing Cookiebot Technology for Tailored User Experience on Websites</u></a></li>
 <li><a href="https://games-able.techidaily.com/virtual-sleuths-and-artificial-intelligence-adventures/"><u>Virtual Sleuths and Artificial Intelligence Adventures</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

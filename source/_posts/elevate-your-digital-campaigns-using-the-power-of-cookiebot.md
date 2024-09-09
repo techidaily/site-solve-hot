@@ -1,12 +1,18 @@
 ---
 title: Elevate Your Digital Campaigns Using the Power of Cookiebot
-date: 2024-09-03T22:48:31.681Z
-updated: 2024-09-04T22:48:31.681Z
+date: 2024-09-08T23:42:08.008Z
+updated: 2024-09-09T23:42:08.008Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/da588ad139882f359e01e1480116ed64f1f64c7e5500ad5bb32d29ff957df078.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Elevate Your Digital Campaigns Using the Power of Cookiebot
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -25,19 +31,31 @@ thumbnail: https://thmb.techidaily.com/da588ad139882f359e01e1480116ed64f1f64c7e5
 
 **[物流の自動化を阻む非構造化コンテンツを克服する。](https://static3.abbyy.com/abbyycommedia/34906/checklist-transportation-documentskillsmarketplace-ja.pdf?itm%5Fsource=corpblog-ja)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 文書の理解から始める
 
 文書は、サプライチェーンのオペレーションにとって、重要な情報の入った箱のようなものです。 例えば、サプライヤーの調達やオンボーディングでは、サプライヤー契約書、信用状、身分証明書や支払能力証明書、証明書など、さまざまな書類をやり取りする必要があります。 出荷の際には、[船荷証券](https://tools.techidaily.com/abbyy/products/)、[海上貨物運送状](https://tools.techidaily.com/abbyy/products/)・[航空貨物運送状](https://tools.techidaily.com/abbyy/products/)、税関申告書、[コマーシャルインボイス](https://tools.techidaily.com/abbyy/products/),を含む請求書、税金、場合によっては[危険物申告書](https://tools.techidaily.com/abbyy/products/)などが必要になります。 文書は、サプライチェーンのアクションを促進するものであると同時に、そのプロセスにおいて重要な審査機能を果たしていると言っても過言ではありません。
 
 ![supply chain workers using AI skills](https://static1.abbyy.com/abbyycommedia/34763/skills-for-transportation-2-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 多くの場合、テクノロジープロバイダーや企業は、文書を記録システムのデータ問題にしがち、このような仮定のしかたは、混乱や競争に対して脆弱性をもたらすものです。 文書には貴重なデータとコンテンツの両方が含まれています。ただし後者には熟練した読解力と文脈に基づいた解釈が必要であり、迅速な意思決定が求められます。 熟練したスタッフは、この明確な目的のために文書やコンテンツに接しています。なぜなら、データは、日々、貨物を動かしたり、材料やサービスを調達したりする重要な意思決定に必要な情報の一部を提供するだけだからです。 人工知能 （AI） は、経験とデータの間のミッシングリンクを埋めて、熟練した読解力を文書に加えることができますが、サプライチェーンはまだその可能性を認識しておらず、オペレーションを変革することができていません。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## オペレーションにドキュメント「スキル」を加える
 
@@ -47,18 +65,6 @@ thumbnail: https://thmb.techidaily.com/da588ad139882f359e01e1480116ed64f1f64c7e5
 
 もはや、ドキュメントスキルの運用メリットを得るために、大きなキャプチャープラットフォームやフレームワークは必要ありません。 事前学習済みのコンテナ化されたドキュメント「スキル」（データだけでなく、文書に対して必要なアクションを理解する、事前に学習されたアクション）を持つAIの助けを借りれば、サプライチェーンはついに一般的なボトルネックを取り除き、輸送・物流から買掛金（AP）の支払い処理まで、あらゆるレベルのビジネスオペレーションが依存する文書主導のプロセスをコントロールできるようになります。
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 急速な変化に対応して輸送・物流業務を最適化したいとお考えですか？
 
 当社にはそのためのスキルがあります。
@@ -66,10 +72,16 @@ thumbnail: https://thmb.techidaily.com/da588ad139882f359e01e1480116ed64f1f64c7e5
 [ABBYY MarketplaceにアクセスするENG](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## ABBYY Marketplaceのアプローチ方法
 
@@ -84,19 +96,19 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Reginald J. Twigg
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
