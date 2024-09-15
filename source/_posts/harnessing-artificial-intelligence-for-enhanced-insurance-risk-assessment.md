@@ -1,18 +1,12 @@
 ---
 title: Harnessing Artificial Intelligence for Enhanced Insurance Risk Assessment
-date: 2024-09-08T23:42:08.902Z
-updated: 2024-09-09T23:42:08.902Z
+date: 2024-09-10T00:13:43.140Z
+updated: 2024-09-14T18:41:36.477Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/df0051150a59f2be7546002ebadac6c91a67abcc0cae700de7b83f4b7dc74cf2.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Harnessing Artificial Intelligence for Enhanced Insurance Risk Assessment
 
 [Back to Webinars](https://tools.techidaily.com/abbyy/products/)
@@ -27,66 +21,38 @@ English
 
 ![Bruce Orcutt](https://static2.abbyy.com/abbyycommedia/31954/bruceorcutt-198x198.png)
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Bruce Orcutt
 
 Vice President - Head of Product Marketing, **ABBYY**
 
 ![Kathy Mahaney](https://static2.abbyy.com/abbyycommedia/35578/proctergamble-forspeakers-56x56.png) 
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Kathy Mahaney](https://static1.abbyy.com/abbyycommedia/32334/kathymahaney-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Kathy Mahaney
 
 IT Director - SPPO Smart Automation, **Procter & Gamble**
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Increase New Business and Improve Renewal Retention
 
 The hardening market has made underwriting efficiency – and profitability – top of mind for insurers. No longer able to rely on investment income to balance disappointing outcomes, the industry is now looking to new technologies to save the day.
 
 But, improving your underwriting processes is not a once and done project. There are a lot of moving parts to consider, new data will continue to accumulate, and hence processes need to be monitored and optimised on an ongoing basis.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Watch it now!
 
 Join Neil Ward Dutton from IDC, Dermot McCauley from Lithe, and ABBYY’s Process Mining and Insurance Solutions Leaders for this webinar to learn more about not only “what to do”, but also “how to do it”:
@@ -97,19 +63,14 @@ Join Neil Ward Dutton from IDC, Dermot McCauley from Lithe, and ABBYY’s Proces
 * How to leverage AI to analyse your processes in real time, identify bottlenecks, and predict future outcomes
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Watch now
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -177,8 +138,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -188,51 +147,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-perfect-your-wedding-countdown-experience-with-these-top-apps-androidios/"><u>[New] Perfect Your Wedding Countdown Experience with These Top Apps (Android/iOS)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-first-steps-in-camera-selection-a-2023-starters-packet/"><u>[Updated] 2024 Approved  First Steps in Camera Selection  A 2023 Starter's Packet</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-tweeting-treasures-the-10-highest-viewed-tweets/"><u>[Updated] 2024 Approved  Tweeting Treasures  The 10 Highest-Viewed Tweets</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-flawless-pixel-processor-windowsmac-for-2024/"><u>[Updated] Flawless Pixel Processor (Windows/Mac) for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-changing-photo-colors-with-ease/"><u>[Updated] In 2024, Changing Photo Colors with Ease</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-elevate-snapchat-snaps-with-customizable-user-voices/"><u>[Updated] In 2024, Elevate Snapchat Snaps with Customizable User Voices</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-vlog-basics-unveiled-simplified-video-concepts/"><u>[Updated] Vlog Basics Unveiled  Simplified Video Concepts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-innovates-at-tech-summit-unveiling-the-top-7-smart-scanning-breakthroughs/"><u>ABBYY Innovates at Tech Summit: Unveiling the Top 7 Smart Scanning Breakthroughs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-upgrades-sdk-to-offer-immediate-capture-capabilities-for-faster-data-processing/"><u>ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/authentification-des-id-avec-trustid-et-abyeocr-un-passage-au-cloud-pour-la-validation-securisee/"><u>Authentification Des ID Avec TrustID Et ABYEOCR : Un Passage Au Cloud Pour La Validation Sécurisée</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-analytics-with-our-cookiebot-integration-solutions/"><u>Boost Analytics with Our Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-website-traffic-with-cutting-edge-cookiebot-technology/"><u>Boost Your Website Traffic with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-lintelligence-artificielle-renforce-la-motivation-des-collaborateurs-gain-dacces-a-linformation-dans-les-rapports/"><u>Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-web-personalization-solutions/"><u>Cookiebot-Driven Web Personalization Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-features-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Features: Enhancing User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-marketing-automation-solutions/"><u>Cookiebot-Enabled Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-solutions-optimize-your-online-experience/"><u>Cookiebot-Enabled Solutions: Optimize Your Online Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Enhancing User Experience with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-with-expertly-managed-cookies/"><u>Cookiebot-Enhanced: Boost Your Site's Performance with Expertly Managed Cookies</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Google Pixel 7a? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/efficient-lead-generation-using-the-cookiebot-platform/"><u>Efficient Lead Generation Using the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-user-engagement-using-the-innovative-power-of-cookiebot-analytics-solutions/"><u>Elevate User Engagement Using the Innovative Power of Cookiebot Analytics Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-digital-campaigns-using-the-power-of-cookiebot/"><u>Elevate Your Digital Campaigns Using the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/empower-your-site-with-cookiebot-advanced-analytics-and-custom-user-experience-features/"><u>Empower Your Site with Cookiebot: Advanced Analytics & Custom User Experience Features</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-document-management-efficiency-the-new-wave-of-sharp-mfps-featuring-abbyy-ocr-technology-as-showcased-on-abbyys-expert-blog/"><u>Enhance Document Management Efficiency: The New Wave of Sharp MFPs Featuring ABBYY OCR Technology, as Showcased on ABBYY's Expert Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-cookiebots-advanced-tracking-technology/"><u>Enhance User Experience with Cookiebot's Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-accessibility-how-texthelp-software-and-abbyy-assist-individuals-with-dyslexia/"><u>Enhancing Accessibility: How Texthelp Software & ABBYY Assist Individuals with Dyslexia</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-website-visitors-the-role-of-cookiebot-technology/"><u>Enhancing Website Visitors: The Role of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/expert-guide-to-implementing-advanced-ai-in-abbyy-software-fusing-machine-learning-and-natural-language-processing-techniques-for-superior-results/"><u>Expert Guide to Implementing Advanced AI in ABBYY Software: Fusing Machine Learning and Natural Language Processing Techniques for Superior Results</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploiter-au-mieux-le-potentiel-dune-entreprise-double-numerique-et-modelisation-procedurale/"><u>Exploiter Au Mieux Le Potentiel D'une Entreprise : Double Numérique Et Modélisation Procédurale</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fortschrittliche-texterfassung-mit-machine-learning-aktuelle-innovationen-von-abbyy/"><u>Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-predictions-for-ai-how-focused-ml-techniques-will-transform-industry-specific-business-problems-in-224/"><u>Future Predictions for AI: How Focused ML Techniques Will Transform Industry-Specific Business Problems in 2#24</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-elevate-your-websites-seo-and-conversion-rates/"><u>Harness the Power of Cookiebot: Elevate Your Website's SEO & Conversion Rates!</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-honor-90-pro-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Honor 90 Pro | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-disabled-iphone-6-plusipad-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Disabled iPhone 6 Plus/iPad Without Computer | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-oneplus-nord-n30-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone OnePlus Nord N30 5G Phone? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-infinix-note-30i-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Infinix Note 30i Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-hush-harmony-techniques-for-taming-unwanted-voices-on-gchat/"><u>In 2024, Hush Harmony  Techniques for Taming Unwanted Voices on GChat</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-realme-note-50-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Realme Note 50 FRP Bypass</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-vivavideo-uncovered-user-perspectives-and-features/"><u>In 2024, VivaVideo Uncovered  User Perspectives and Features</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/kddiabbyy-ocr/"><u>KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/latest-update-abbyy-releases-enhanced-abbyy-flexicapture-v122/"><u>Latest Update: ABBYY Releases Enhanced ABBYY FlexiCapture V12.2</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/model-b-1913-27-adjustable-rear-sight-two-settings-optional-safety-first-firing-pin-block-lever-between-trigger-and-slide-unfluted-grip/"><u>Model B - 1913-27, Adjustable Rear Sight (Two Settings), Optional Safety First Firing Pin Block Lever Between Trigger and Slide, Unfluted Grip</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-digital-change-in-insurance-your-ultimate-checklist-featuring-abbyy-solutions/"><u>Navigating Digital Change in Insurance: Your Ultimate Checklist Featuring ABBYY Solutions</u></a></li>
-<li><a href="https://fox-that.techidaily.com/navigating-iphone-troubleshooting-with-ease-using-the-apple-support-app/"><u>Navigating iPhone Troubleshooting with Ease Using the Apple Support App</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-youtube-inversion-creative-tactics-to-watch-videos-backwards-for-2024/"><u>The Youtube Inversion  Creative Tactics to Watch Videos Backwards for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-from-green-to-glamour-enhancing-your-footage-with-fcp-x-chroma-key-for-2024/"><u>Updated From Green to Glamour Enhancing Your Footage with FCP X Chroma Key for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlock-your-youtube-potential-idea-generation-guide/"><u>[New] Unlock Your YouTube Potential Idea Generation Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-pioneering-maker-tools-for-your-next-ios-or-android-video/"><u>[Updated] In 2024, Pioneering Maker Tools For Your Next iOS or Android Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-prime-8-converters-seamless-sub-and-srt-transition/"><u>2024 Approved Prime 8 Converters Seamless Sub and SRT Transition</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-oppo-a78-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Oppo A78 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elevating-your-visual-storytelling-with-advanced-drone-edits/"><u>Elevating Your Visual Storytelling with Advanced Drone Edits</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-website-traffic-with-advanced-cookiebot-seo-solutions/"><u>Enhance Website Traffic with Advanced Cookiebot SEO Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-website-personalization-with-cookiebot-technology/"><u>Enhanced Website Personalization with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-creditor-management-with-shared-service-centers-integration-of-madsack-mediengruppe-sap-and-abbyy/"><u>Enhancing Creditor Management with Shared Service Centers - Integration of MADSACK Mediengruppe, SAP, and ABBYY</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-user-privacy-with-cookiebots-advanced-tracking-solutions/"><u>Enhancing User Privacy with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/gagnez-un-avantage-decisif-en-finance-grace-a-notre-checklist-abbyy-les-cles-pour-reussir-sur-les-marches-financiers/"><u>Gagnez Un Avantage Décisif en Finance Grâce À Notre Checklist ABBYY - Les Clés Pour Réussir Sur Les Marchés Financiers</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-automated-tracking-with-cookiebot-technology/"><u>Harness the Power of Automated Tracking with Cookiebot Technology</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Change/Add Location Filters on Snapchat For your Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/top-8-economical-video-call-applications-cross-system-compatibility/"><u>Top 8 Economical Video Call Applications Cross-System Compatibility</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-elevate-your-video-experience-free-online-quality-enhancement-tools/"><u>Updated Elevate Your Video Experience Free Online Quality Enhancement Tools</u></a></li>
 </ul></div>
+

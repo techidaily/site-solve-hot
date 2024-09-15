@@ -1,46 +1,22 @@
 ---
 title: "ABBYY Lance 5 : Amélioration Avec La Fonctionnalité Intégrée De Mining Des Tâches"
-date: 2024-09-08T23:42:06.642Z
-updated: 2024-09-09T23:42:06.642Z
+date: 2024-09-08T23:35:11.939Z
+updated: 2024-09-14T22:56:45.396Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5a73949d0daa87913e6d1945410f959f7280334c927e2831d11c0ea0a5297262.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Lance 5 : Amélioration Avec La Fonctionnalité Intégrée De Mining Des Tâches
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY lance Timeline 5.0 qui intègre désormais le Task Mining
 
 13 octobre 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Les technologies de Task Mining, désormais intégrées dans la nouvelle version d’ABBYY Timeline, permettent l’analyse des données d'interaction des utilisateurs. Les entreprises peuvent ainsi avoir une vue d’ensemble sur leurs opérations pour optimiser la performance de leurs processus et faciliter la prise de décision reposant sur des données concrètes._
 
 ABBYY, le spécialiste de l’intelligence digitale, annonce aujourd’hui la disponibilité de Timeline 5.0\. Ce faisant, ABBYY Timeline devient la seule plateforme de Process Intelligence permettant l’analyse des opérations de bout en bout : données utilisateurs, processus et contenus. Cette amélioration s’inscrit pleinement dans l’objectif de proposer aux entreprises une solution clef en main pour améliorer leur efficacité opérationnelle, l’expérience de leurs clients et la pertinence de leur prise de décision stratégique.
@@ -82,8 +58,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -93,36 +67,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-discovering-ideal-hashtags-for-your-youtube-videos/"><u>[New] Discovering Ideal Hashtags for Your YouTube Videos</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-safeguard-your-videos-in-the-age-of-youtube-for-2024/"><u>[New] How to Safeguard Your Videos in the Age of YouTube for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-basics-of-online-videos-the-easiest-10-ideas-for-beginners-on-youtube/"><u>[New] In 2024, Basics of Online Videos  The Easiest 10 Ideas for Beginners on YouTube</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-poco-f5-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-solution-optimiser-les-services-de-traduction-pour-le-droit-et-la-finance/"><u>ABBYY Solution - Optimiser Les Services De Traduction Pour Le Droit Et La Finance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-und-tangro-steigern-sie-die-prozesssicherheit-im-dokumenteneingang-fur-ein-nahtloses-management/"><u>ABBYY Und Tangro®: Steigern Sie Die Prozesssicherheit Im Dokumenteneingang Für Ein Nahtloses Management</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/adaptieren-zum-new-normal-wie-fraunhofer-und-abbyy-die-prozessdigitalisierung-revolutionieren/"><u>Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ai-driven-insights-into-decoding-medical-billing-complexities-the-abbyy-healthcare-chronicle/"><u>AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/blue-prism-la-technologie-de-lintelligence-des-processus-pour-ameliorer-et-perfectionner-la-performance-dautomatisation/"><u>Blue Prism : La Technologie De L'Intelligence Des Processus Pour Améliorer Et Perfectionner La Performance D'Automatisation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-engagement-through-ai-discover-the-power-of-cookiebot-for-dynamic-content-delivery/"><u>Boosting Engagement Through AI: Discover the Power of Cookiebot for Dynamic Content Delivery</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-process-intelligence-collaborating-with-alteryx-and-abbyy-in-tandem/"><u>Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/carlsberg-beschleunigung-zur-weltweiten-bierbraukronung-durch-abbyy/"><u>Carlsberg: Beschleunigung Zur Weltweiten Bierbraukrönung Durch ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-document-automation-how-abbyy-flexicaptures-updated-rest-api-fuels-seamless-adoption-and-immediate-data-processing/"><u>Enhancing Document Automation: How ABBYY FlexiCapture's Updated REST API Fuels Seamless Adoption & Immediate Data Processing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-brazils-surge-in-intelligent-tech-solutions-during-infoshow-2nv-2018-expert-analysis-by-abbyy-blog-team/"><u>Exploring Brazil's Surge in Intelligent Tech Solutions During InfoShow 2Nv 2018 | Expert Analysis by ABBYY Blog Team</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-innovative-tech-smartwatch-capabilities-real-time-language-conversion-and-secure-cloud-storage-solutions-on-the-abbyy-platform/"><u>Exploring Innovative Tech: Smartwatch Capabilities, Real-Time Language Conversion & Secure Cloud Storage Solutions on the ABBYY Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/get-your-free-abyy-alteryx-bridge-tool-now/"><u>Get Your Free ABYY Alteryx Bridge Tool Now!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-can-we-unlock-our-oneplus-nord-n30-se-phone-screen-by-drfone-android/"><u>How Can We Unlock Our OnePlus Nord N30 SE Phone Screen?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-honor-90-gt-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Honor 90 GT Phone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-best-free-mp4-editor-for-windows-8-edit-videos-like-a-pro/"><u>In 2024, Best Free MP4 Editor for Windows 8 Edit Videos Like a Pro</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-money-making-guide-on-social-media/"><u>In 2024, The Ultimate Money-Making Guide on Social Media</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-ai-commerce-insights-tips-and-trends-on-the-abbyy-platform/"><u>Mastering AI Commerce Insights - Tips & Trends on the ABBYY Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-process-insight-with-abbyys-advanced-neat-analysis-solutions-by-nelsonhallcom/"><u>Mastering Process Insight with ABBYY's Advanced Neat Analysis Solutions by Nelsonhall.com</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/metaverse-versus-multimeva-defining-their-differences-clearly-for-2024/"><u>Metaverse Versus Multimeva  Defining Their Differences Clearly for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/neoml-von-abbyy-jetzt-mit-python-unterstutzt-erleben-sie-die-10x-schnellere-open-source-bibliothek/"><u>NeoML Von ABBYY Jetzt Mit Python Unterstützt - Erleben Sie Die 10X Schnellere Open-Source-Bibliothek</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-recruitment-the-impact-of-ai-on-human-resources/"><u>Revolutionizing Recruitment: The Impact of AI on Human Resources</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/swiftly-survey-your-windows-documentation-for-2024/"><u>Swiftly Survey Your Windows Documentation for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/the-smart-approach-to-customer-onboarding-insights-into-automation-driving-factors-and-obstacles/"><u>The Smart Approach to Customer Onboarding: Insights Into Automation Driving Factors & Obstacles</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-10-insights-into-shaping-tomorrows-workplace-visionary-perspectives-from-the-abbyy-blog/"><u>Top 10 Insights Into Shaping Tomorrow's Workplace: Visionary Perspectives From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-photos-to-searchable-pdfs-on-iphone-utilizing-optical-character-recognition-ocr-in-finereader-app/"><u>Transform Your Photos to Searchable PDFs on iPhone: Utilizing Optical Character Recognition (OCR) in FINEREADER App</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transforming-the-industry-the-secrets-behind-thriving-modern-insurers-embracing-change/"><u>Transforming the Industry: The Secrets Behind Thriving Modern Insurers Embracing Change</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-end-user-license-agreement-warnings/"><u>Understanding End-User License Agreement Warnings</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/verstehen-sie-den-wechsel-von-etl-zu-elt-und-seinen-einfluss-fur-datenmanagement-strategien/"><u>Verstehen Sie Den Wechsel Von ETL Zu ELT Und Seinen Einfluss Für Datenmanagement-Strategien</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-eliminating-robotic-ratings-to-grow-views-for-2024/"><u>[Updated] Eliminating Robotic Ratings to Grow Views for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlocking-fcp-a-guide-to-obtaining-copy-without-cost/"><u>[Updated] Unlocking FCP A Guide to Obtaining Copy Without Cost</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-personalized-experiences/"><u>Cookiebot-Enabled Personalized Experiences</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-web-optimization-enhance-user-engagement-and-analytics-effortlessly/"><u>Cookiebot-Enabled Web Optimization: Enhance User Engagement & Analytics Effortlessly</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience-with-seamless-personalization/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience with Seamless Personalization</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/creating-cost-effective-youtube-closure-elements/"><u>Creating Cost-Effective YouTube Closure Elements</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fix-hidden-youtube-comment-problems-comprehensive-troubleshooting-techniques/"><u>Fix Hidden YouTube Comment Problems - Comprehensive Troubleshooting Techniques</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Realme 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/ideal-vlogging-gear-the-best-15-cameras-ranked/"><u>Ideal Vlogging Gear The Best 15 Cameras Ranked</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/key-missteps-to-prevent-for-effective-generative-ai-implementation/"><u>Key Missteps to Prevent for Effective Generative AI Implementation</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-motorola-moto-g04-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Motorola Moto G04 Device</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-apple-iphone-13-mini-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On Apple iPhone 13 mini?</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

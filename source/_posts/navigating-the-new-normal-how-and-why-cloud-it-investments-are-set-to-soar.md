@@ -1,7 +1,7 @@
 ---
 title: "Navigating the 'New Normal': How and Why Cloud IT Investments Are Set to Soar"
-date: 2024-09-08T23:42:10.316Z
-updated: 2024-09-09T23:42:10.317Z
+date: 2024-09-12T19:10:36.472Z
+updated: 2024-09-14T20:24:40.333Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/819ca37a79eec3bdd5aa4e06aa1b76048f3e0307801a786c71f9bbf8a10f29d0.jpg
@@ -19,50 +19,20 @@ September 16, 2020
 
 ![Cloud IT Spending Forecast Cover | ABBYY Blog Post](https://static3.abbyy.com/abbyycommedia/29601/cloud-it-spending-forecast-cover.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 After many years of continuous growth, IT investments are predicted to [drop by 7.3% in 2020](https://www.gartner.com/en/newsroom/press-releases/2020-07-13-gartner-says-worldwide-it-spending-to-decline-7-point-3-percent-in-2020), according to Gartner, with the largest gaps expected in spending for hardware such as IT devices and data center infrastructure. At the same time, this renowned market research company predicts worldwide revenues that relate to public cloud IT services [to increase by 6.3% in 2020](https://www.gartner.com/en/newsroom/press-releases/2020-07-13-gartner-says-worldwide-it-spending-to-decline-7-point-3-percent-in-2020). At first glance, the reports deliver contradictory messages; but in reality, they underpin the fact that the cloud computing will continue to surge during the months ahead.
 
 ### Fast adoption of cloud computing IT within a slow IT market
 
 ![pursue cloud IT strategies](https://static1.abbyy.com/abbyycommedia/29600/cloud-it-spending-forecast-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 In the beginning of 2020, the COVID-19 pandemic reached the world quickly and caught enterprise companies by surprise. Very strict lock-down regulations in many countries cut off supply chains, made customer meetings impossible, banned employees from offices, and caused an atmosphere of uncertainty. This led to shrinking revenue, investment cut-offs, and reductions in spending (including IT) in many companies.
 
 As economies gradually re-open during the post-pandemic phase, the need to conduct postponed IT projects will lead to new IT spending—but in a changed world. In the ‘new normal’ post-pandemic times, companies will re-evaluate their IT plans, and very likely pursue cloud IT strategies.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Why will enterprises move their IT into the cloud faster than ever?
 
 ![cloud-based IT systems](https://static1.abbyy.com/abbyycommedia/29598/cloud-it-spending-forecast-2.png)
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The following trends will underpin the pursuits of enterprises to move their IT infrastructure into the cloud:
 
 * Enterprises that were concentrating on ways to enable employees with home office workspaces and remote access to enterprise IT resources found an excellent solution in cloud IT systems, with their natural remote access architecture. Even once the danger of COVID-19 ceases, many companies will continue to leverage remote working environments for their staff, benefiting from the reduced cost for real estate and the HR ability to attract new talents from distant areas.
@@ -77,26 +47,15 @@ As enterprise customers will be increasing their spending for cloud-based IT sys
 
 ![Eva Weber ABBYY](https://static2.abbyy.com/abbyycommedia/25705/evaweber-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Eva Weber
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -151,8 +110,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -162,45 +119,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitter-vids-deep-dive-a-comprehensive-handbook/"><u>[New] 2024 Approved  Twitter Vids Deep Dive  A Comprehensive Handbook</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-achieving-perfect-picture-quality-on-zoom/"><u>[New] Achieving Perfect Picture Quality on Zoom</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-from-lurker-to-leader-the-roadmap-to-higher-fb-page-rankings/"><u>[New] In 2024, From Lurker to Leader  The Roadmap to Higher FB Page Rankings</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-innovating-your-reality-essential-vr-peripherals-guide/"><u>[New] Innovating Your Reality  Essential VR Peripherals Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-harness-the-power-of-storyremix-elevate-video-quality-for-windows-11-users-for-2024/"><u>[Updated] Harness the Power of StoryRemix  Elevate Video Quality for Windows 11 Users for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-apple-iphone-se-by-name-drfone-by-drfone-virtual-ios/"><u>4 Most-Known Ways to Find Someone on Tinder For Apple iPhone SE by Name | Dr.fone</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/badvideokillers-restoration-solutions/"><u>BadVideoKillers: Restoration Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/blue-prism-la-technologie-de-lintelligence-des-processus-pour-ameliorer-et-perfectionner-la-performance-dautomatisation/"><u>Blue Prism : La Technologie De L'Intelligence Des Processus Pour Améliorer Et Perfectionner La Performance D'Automatisation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-engagement-through-ai-discover-the-power-of-cookiebot-for-dynamic-content-delivery/"><u>Boosting Engagement Through AI: Discover the Power of Cookiebot for Dynamic Content Delivery</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-process-intelligence-collaborating-with-alteryx-and-abbyy-in-tandem/"><u>Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/carlsberg-beschleunigung-zur-weltweiten-bierbraukronung-durch-abbyy/"><u>Carlsberg: Beschleunigung Zur Weltweiten Bierbraukrönung Durch ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comprehensive-guide-on-eula-notification-policies/"><u>Comprehensive Guide on EULA Notification Policies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-customization-enhancing-user-experience/"><u>Cookiebot-Driven Customization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-personalization-enhance-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhance Your Website's User Experience</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-enabled-personalized-experience/"><u>Cookiebot-Enabled Personalized Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-boost-your-sites-potential/"><u>Cookiebot-Enhanced User Experience: Boost Your Site's Potential</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-smart-seo-tools/"><u>Cookiebot-Enhanced User Experience: Smart SEO Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-key-ingredient-in-your-seo-recipe/"><u>Cookiebot: The Key Ingredient in Your SEO Recipe</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customize-with-cookiebot-boost-engagement-and-growth-on-your-site/"><u>Customize with Cookiebot: Boost Engagement and Growth on Your Site</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-ad-targeting-with-the-advanced-technology-of-cookiebot/"><u>Customized Ad Targeting with the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/digital-preservation-with-abbyy-tools-at-the-core-of-south-koreas-archival-project/"><u>Digital Preservation with ABBYY Tools at the Core of South Korea's Archival Project</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-web-personalization-using-the-power-of-cookiebot-technology/"><u>Elevate Web Personalization Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-website-traffic-with-advanced-cookiebot-seo-solutions/"><u>Enhance Website Traffic with Advanced Cookiebot SEO Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-website-personalization-with-cookiebot-technology/"><u>Enhanced Website Personalization with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-creditor-management-with-shared-service-centers-integration-of-madsack-mediengruppe-sap-and-abbyy/"><u>Enhancing Creditor Management with Shared Service Centers - Integration of MADSACK Mediengruppe, SAP, and ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-user-privacy-with-cookiebots-advanced-tracking-solutions/"><u>Enhancing User Privacy with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/gagnez-un-avantage-decisif-en-finance-grace-a-notre-checklist-abbyy-les-cles-pour-reussir-sur-les-marches-financiers/"><u>Gagnez Un Avantage Décisif en Finance Grâce À Notre Checklist ABBYY - Les Clés Pour Réussir Sur Les Marchés Financiers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-automated-tracking-with-cookiebot-technology/"><u>Harness the Power of Automated Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-for-effective-online-marketing-campaigns/"><u>Harness the Power of Cookiebot for Effective Online Marketing Campaigns</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-zte-nubia-flip-5g-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-realme-gt-neo-5-by-drfone-android/"><u>In 2024, How to Bypass FRP from Realme GT Neo 5?</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-professional-tips-to-perfect-igtv-thumbnails/"><u>In 2024, Professional Tips to Perfect IGTV Thumbnails</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-trailblazing-the-mobile-app-landscape/"><u>In 2024, Trailblazing the Mobile App Landscape</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-depth-look-at-inshot-video-editing-powerhouse/"><u>In-Depth Look at InShot  Video Editing Powerhouse?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/insightful-strategies-on-customer-knowledge-by-abbyy-presented-at-the-2017-aiim-conference/"><u>Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-samsung-galaxy-f15-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Samsung Galaxy F15 5G? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-troubleshooting-overcoming-black-ops-n-death-glitches/"><u>Step-by-Step Troubleshooting: Overcoming Black Ops N' Death Glitches</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Itel P55T | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-earning-excellence-mastering-youtube-monetization-anywhere-for-2024/"><u>Video Earning Excellence  Mastering YouTube Monetization Anywhere for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/winning-the-battle-against-sluggish-keys-on-your-pcs-os-fixes-and-tips-for-windows-10/"><u>Winning the Battle Against Sluggish Keys on Your PC's OS: Fixes & Tips for Windows 10</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-proficiently-upload-impressive-elongated-youtube-content/"><u>[New] 2024 Approved How to Proficiently Upload Impressive, Elongated YouTube Content</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-elite-15-high-definition-action-recorders/"><u>[New] In 2024, Elite 15 High-Definition Action Recorders</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-elite-nintendo-switch-fighters-showdown-max-156/"><u>[Updated] In 2024, Elite Nintendo Switch Fighters Showdown (Max 156)</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1724313529513-nsdabbyy/"><u>市場のリーダー、株式会社NSD及びABBYY 日本合同銀行が認定パートナー契約を成立:関係者コメントと展望</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbeyy-software-entdeckung-im-kunsthaus-von-rotterdam/"><u>ABBEYY-Software-Entdeckung Im Kunsthaus Von Rotterdam</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-announces-smart-data-entry-solution-on-uipath-go-platform/"><u>ABBYY Announces Smart Data Entry Solution on UiPath GO Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-finereader-server50/"><u>ABBYY FineReader Serverで過去50年間の文書検索能力向上</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-treibt-carlsberg-auf-globalen-spitzenplatz-schnelle-expansion-und-marktreife/"><u>ABBYY Treibt Carlsberg Auf Globalen Spitzenplatz - Schnelle Expansion Und Marktreife</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/behind-the-scenes-navigating-multiple-viewpoints-on-facebook-live-for-2024/"><u>Behind the Scenes Navigating Multiple Viewpoints on Facebook Live for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-traffic-and-engagement-with-cookiebot-integration-the-ultimate-seo-solution/"><u>Boost Traffic and Engagement with Cookiebot Integration: The Ultimate SEO Solution</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/building-lasting-relationships-with-saas-users-5-key-techniques/"><u>Building Lasting Relationships with SaaS Users: 5 Key Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hidden-treasures-the-undisclosed-window-11-tricks-youve-overlooked-for-2024/"><u>Hidden Treasures The Undisclosed WINDOW 11 Tricks You've Overlooked for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-emotionally-enhanced-youtube-commentary/"><u>In 2024, Emotionally-Enhanced YouTube Commentary</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-the-refunds-fortnite-purchase-fiasco/"><u>Navigating the Refunds: Fortnite Purchase Fiasco</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/unveiling-the-best-perian-replacements-must-try-applications-for-both-macos-and-windows-users/"><u>Unveiling the Best Perian Replacements: Must-Try Applications for Both macOS and Windows Users</u></a></li>
 </ul></div>
+

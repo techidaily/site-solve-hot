@@ -1,40 +1,22 @@
 ---
 title: ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing
-date: 2024-09-08T23:42:07.790Z
-updated: 2024-09-09T23:42:07.790Z
+date: 2024-09-12T00:15:39.163Z
+updated: 2024-09-14T22:52:16.551Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c477119574c19e1fe1c1e24c760eca970cf6d9df63cc3bc93f37a86e27d2e105.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Real-Time Recognition SDK Adds Instant Data Capture Functionality
 
 November 30, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _The new point and capture functionality automates data entry on mobile devices for fast and effortless transactions_
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), a global provider of intelligent capture solutions to improve business outcomes, today announced the release of the new version of the ABBYY Real-Time Recognition Software Development Kit (RTR SDK) with added data capture functionality on iOS and Android mobile platforms. The Real-Time Recognition technology is capable of pulling text information from on-screen objects and automatically converting it into digital data on the mobile device.
@@ -77,8 +59,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,46 +68,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-choosing-the-finest-webcams-our-expert-guide/"><u>[New] Choosing the Finest Webcams - Our Expert Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-frame-rates-for-video-recorders/"><u>[New] In 2024, The Ultimate Guide to Frame Rates for Video Recorders</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-six-best-cinematography-tools-in-uhd-space/"><u>[New] Six Best Cinematography Tools in UHD Space</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-capture-the-light-filmographys-five-essential-camera-techniques-of-24/"><u>[Updated] Capture the Light  Filmography's Five Essential Camera Techniques of '24</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-quick-start-engaging-with-friends-on-insta-chat/"><u>[Updated] In 2024, Quick Start  Engaging with Friends on Insta Chat</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-boosting-skypes-performance-with-advanced-zoom-functionalities/"><u>2024 Approved  Boosting Skype's Performance with Advanced Zoom Functionalities</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-art-of-effective-online-engagement-on-fb/"><u>2024 Approved  The Art of Effective Online Engagement on FB</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-fueled-engagement-tailored-interactions-and-improved-analytics/"><u>Cookiebot-Fueled Engagement: Tailored Interactions & Improved Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-optimize-your-websites-seo-with-advanced-tracking-technology/"><u>Cookiebot: Optimize Your Website's SEO with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/deloitte-und-abbey-zusammenarbeit-beendet-innovatives-losungsportfolio-fur-die-optimierung-von-geschaftsprozessen/"><u>Deloitte Und ABBEY Zusammenarbeit Beendet - Innovatives Lösungsportfolio Für Die Optimierung Von Geschäftsprozessen</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/demystifying-chromecast-for-effortless-broadcasting-for-2024/"><u>Demystifying Chromecast for Effortless Broadcasting for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-efficiency-in-the-abbyy-procurement-cycle-expert-ap-automation-tools-for-businesses/"><u>Enhance Efficiency in the ABBYY Procurement Cycle: Expert AP Automation Tools for Businesses</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-marketing-insights-with-the-cookiebot-platform/"><u>Enhanced Marketing Insights with the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-web-analytics-with-automated-cookie-technology-discover-the-power-of-your-productservice/"><u>Enhanced Web Analytics with Automated Cookie Technology: Discover the Power of [Your Product/Service]</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-analytics-through-cookiebot-enabled-sites/"><u>Enhancing Analytics Through Cookiebot-Enabled Sites</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/erweiterte-moglichkeiten-der-dokumentbearbeitung-mit-neuem-update-in-finereader-14-abbyy-software/"><u>Erweiterte Möglichkeiten Der Dokumentbearbeitung Mit Neuem Update in FineReader 14, ABBYY Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-tailored-content-with-our-cookiebot-integration-technology/"><u>Experience Tailored Content with Our Cookiebot Integration Technology</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-meizu-21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-nokia-c32-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Nokia C32 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-tecno-pop-8-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Tecno Pop 8 Quickly? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-nokia-xr21-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Nokia XR21 FRP</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-x100-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo X100</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-vivo-g2-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Vivo G2 Phone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/introducing-abbyy-one-the-cutting-edge-tool-revolutionizing-smart-business-process-automation/"><u>Introducing ABBYY One: The Cutting-Edge Tool Revolutionizing Smart Business Process Automation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-cookiebot-power-boost-personalization-and-engagement-in-digital-campaigns/"><u>Leverage Cookiebot Power: Boost Personalization & Engagement in Digital Campaigns</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-cookiebot-technology-for-dynamic-user-experiences-online/"><u>Leverage Cookiebot Technology for Dynamic User Experiences Online</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/nutzung-von-ki-und-ml-zur-verhutung-digitaler-straftaten-und-erfullung-gesetzlicher-anforderungen-einblicke-durch-abbyy/"><u>Nutzung Von KI Und ML Zur Verhütung Digitaler Straftaten Und Erfüllung Gesetzlicher Anforderungen – Einblicke Durch ABBYY</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/online-oasis-secure-re-entry-to-social-networks-for-2024/"><u>Online Oasis  Secure Re-Entry to Social Networks for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/perfect-focus-in-teams-meetings-mastering-background-blur-for-2024/"><u>Perfect Focus in Teams Meetings  Mastering Background Blur for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/ranking-the-most-reliable-youtube-mp3-converters-for-2024/"><u>Ranking the Most Reliable YouTube Mp3 Converters for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-sites-user-experience-using-the-advanced-features-of-cookiebot/"><u>Revolutionize Your Site's User Experience Using the Advanced Features of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-patient-payments-master-the-revenue-cycle-with-abbyys-ebook-on-healthcare-finance/"><u>Revolutionizing Patient Payments: Master the Revenue Cycle with ABBYY's eBook on Healthcare Finance</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/ripple-effects-top-mobile-music-disruptors-for-2024/"><u>Ripple Effects  Top Mobile Music Disruptors for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-converting-your-dvds-into-digital-files-on-windows-10/"><u>Step-by-Step Guide: Converting Your DVDs Into Digital Files on Windows 10</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/the-best-solution-for-assessing-the-202e-year-with-everest-group-and-abbyys-peak-matrix/"><u>The Best Solution for Assessing the 202E Year with Everest Group and ABBYY's PEAK Matrix</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-phone-into-a-pro-scanner-with-abbyys-topnotch-ai-technology/"><u>Transform Your Phone Into a Pro Scanner with ABBYY's Topnotch AI Technology!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transformative-mobile-tools-discovering-the-top-game-changers-on-your-smartphone/"><u>Transformative Mobile Tools: Discovering the Top Game-Changers on Your Smartphone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-to-solve-80n-errors-in-both-vpn-client-and-server-configurations/"><u>Ultimate Guide to Solve 80N Errors in Both VPN Client and Server Configurations</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-intelligent-process-automation-an-overview/"><u>Understanding Intelligent Process Automation: An Overview</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unlocking-successful-ad-campaigns-through-smart-technology-insights-into-cookiebot-solutions/"><u>Unlocking Successful Ad Campaigns Through Smart Technology: Insights Into Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/utilizing-cookiebot-technology-for-tailored-user-experience-on-websites/"><u>Utilizing Cookiebot Technology for Tailored User Experience on Websites</u></a></li>
-<li><a href="https://games-able.techidaily.com/virtual-sleuths-and-artificial-intelligence-adventures/"><u>Virtual Sleuths and Artificial Intelligence Adventures</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-ideal-selection-of-top-9-mobile-video-collaboration-tools-ios-android-for-2024/"><u>[New] Ideal Selection of Top 9 Mobile Video Collaboration Tools (iOS, Android) for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-arena-of-achievements-a-million-gaming-milestones/"><u>[Updated] 2024 Approved Arena of Achievements A Million Gaming Milestones</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-8-techniques-for-high-quality-pc-audio-documentation/"><u>[Updated] In 2024, 8 Techniques for High-Quality PC Audio Documentation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-pioneering-playgrounds-of-action-adventure-classics-top-10/"><u>[Updated] Pioneering Playgrounds of Action-Adventure Classics (Top 10)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sharp-as-day-the-top10-clearer-photo-editors-list/"><u>2024 Approved Sharp as Day The #Top10 Clearer Photo Editors List</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-unlockingluxurycameratech-post-mycam/"><u>2024 Approved UnlockingLuxuryCameraTech Post-MyCam</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-solution-optimiser-les-services-de-traduction-pour-le-droit-et-la-finance/"><u>ABBYY Solution - Optimiser Les Services De Traduction Pour Le Droit Et La Finance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-und-tangro-steigern-sie-die-prozesssicherheit-im-dokumenteneingang-fur-ein-nahtloses-management/"><u>ABBYY Und Tangro®: Steigern Sie Die Prozesssicherheit Im Dokumenteneingang Für Ein Nahtloses Management</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/adaptieren-zum-new-normal-wie-fraunhofer-und-abbyy-die-prozessdigitalisierung-revolutionieren/"><u>Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ai-driven-insights-into-decoding-medical-billing-complexities-the-abbyy-healthcare-chronicle/"><u>AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-slow-motion-cameras/"><u>Best Slow-Motion Cameras</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/revolutionize-sessions-with-pro-zoom-conversion-hacks/"><u>Revolutionize Sessions with Pro-Zoom Conversion Hacks</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-end-user-license-agreement-warnings/"><u>Understanding End-User License Agreement Warnings</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/verstehen-sie-den-wechsel-von-etl-zu-elt-und-seinen-einfluss-fur-datenmanagement-strategien/"><u>Verstehen Sie Den Wechsel Von ETL Zu ELT Und Seinen Einfluss Für Datenmanagement-Strategien</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,18 +1,12 @@
 ---
 title: "In-Depth Analysis & Interview: Decoding Process Intelligence Through The Lens of the Automation Fabric - A Conversation With Forrester Experts"
-date: 2024-09-08T23:42:11.499Z
-updated: 2024-09-09T23:42:11.499Z
+date: 2024-09-09T17:11:46.228Z
+updated: 2024-09-14T17:38:46.954Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0b667ebcfe4598116d4b6654429dec8091fa0451fb3d4865d8f30f7e5a361bf.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## In-Depth Analysis & Interview: Decoding Process Intelligence Through The Lens of the Automation Fabric - A Conversation With Forrester Experts
 
 12/ 2100%实际尺寸适合宽度适合高度适合页面自动介绍杂志连续的
@@ -20,8 +14,6 @@ thumbnail: https://thmb.techidaily.com/f0b667ebcfe4598116d4b6654429dec8091fa0451
 Following a webcast featuring guest speaker Bernhard Schaffrik of Forrester Research, ABBYY asked Forrester to share a bit more on the automation fabric and how process intelligence can support it. Which business processes/areas would benefit the most from insights yielded through process and task mining? There are no limitations! The more complex a process regarding the number of tasks and variations to complete, variety of human contributors, IT systems involved, and data types created and processed, the higher the benefits of mining the process! For practical reasons, the majority of process mining projects is limited to processes supported by one ERP system, which will only deliver small value adds. The true value of process mining will show only with increasing complexity of processes mined, which cross IT-system borders. Similarly, with task mining: Continuously mining the behavior of a lot of users, not just one or a few, will uncover precious insights for process improvement. What capabilities should organizations look for to differentiate the various process mining vendor offerings? The product’s time to value is an important differentiator: how fast can IT systems be connected that run a to-be-mined process? Is there a broad set of out-of-the-box connectors to all sorts of IT systems available, or do they have to be built? Once process data have been mined, are analytics generated, or do they have to be manually configured? Which skills are required to analyze process data? Another differentiator is the breadth of available tools to improve processes before implementing them; e.g., by comparing them with reference process models; process simulation allowing to run what-if scenarios; or conducting impact analyses of process changes. How can other technologies be unified with process optimization tools to enhance the stability of the automation fabric? The automation fabric represents the set of connected automation tools that support the automation of an organization’s operational processes. Therefore, transparent processes on an operational level are the centerpiece and starting point of any automation, and any automation fabric. Uncovering, visualizing, and improving processes before automating them is top priority. Process optimization tools such as process mining, task mining, process modeling, and process analytics are key enablers for process transparency, automation decisions, and continuous monitoring of an organization’s automation fabric—on an operational level. Q&A on Process Intelligence and the Automation Fabric Featuring Bernhard Schaffrik Principal Analyst ANALYST Q&A Q: Q: Q: A: A: A: 
 
 © ABBYY 2023\. ABBYY is a registered trademark or a trademark of ABBYY Development Inc. and/or its affiliates. This designation can also be logo, product, or company name (or part of any of the above) of ABBYY Development Inc. and/or its affiliates and may not be used without consent of their respective owners. All other product names and trademarks mentioned herein are the property of their respective owners.. #15306 WWW.ABBYY.COM What are the most common pitfalls of organizations seeking to optimize their processes, and how can they be avoided? 1\. Often, SMEs from the functions that a process is running through are not included in a process optimization project, and it is purely driven from an IT or a project management function. Involve those who run the processes day in and day out both in the project setup and process analysis to leverage their knowledge and provide tangible areas for process improvement. 2\. Processes are not considered end-to-end, but end at departmental boundaries; hence, the mined process data are not representative of the whole process, and improvement ideas might optimize individual parts of a process, but not the whole process. Therefore, cross-functional, end-to-end processes must be the scope of any process optimization project. 3\. There is no target state or vision for a process regarding improvement areas as processes are not in scope of organizational improvement, just functions. Process improvement can mean higher quality, lower cost, shorter cycle time, and ultimately better employee and customer experience. Process vision must be derived from organizational or company strategy. If not feasible, detected process weak points can be prioritized according to value add and worked through accordingly. 4\. Removing identified process weak points would require disruptive organizational and IT-system changes, which appear non-affordable or too major from a change point of view. However, in the long run, improving a process always pays off for employees and customers in contrast to sticking to inefficient or ineffective operations. What can organizations do to facilitate the natural upskilling of employees into citizen process experts? They should encourage everything that is deemed appropriate to democratize process improvement. It starts with providing short trainings about business process improvement basics, such as how to detect process weak points. These trainings can be provided through video tutorials, lunch-and-learn sessions, or similar formats. Employees should get access to process optimization tools to leverage them for mining, analyzing, and improving the process(es) they are working in. Therefore, process optimization tool trainings are essential, too. Ideally, training offerings are accompanied by in-depth support on process optimization methods and tools, provided by a COE or similar. ChatGPT and other natural-language based human- computer interfaces will enable more employees to make sense out of mined process data than in the past as data science skills will at least partially be provided by the AI. Q: Q: A: A: Access the full webinar, “The Four Drivers Reshaping the Future of Process Optimization” [here](https://tools.techidaily.com/abbyy/products/). 
-
-
 
 0/0
 
@@ -35,19 +27,11 @@ Following a webcast featuring guest speaker Bernhard Schaffrik of Forrester Rese
 
 [![Created with BuildVu](https://www.abbyy.com/buildvu-logo.png)](https://www.idrsolutions.com/online-pdf-to-html-converter)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -58,52 +42,26 @@ Following a webcast featuring guest speaker Bernhard Schaffrik of Forrester Rese
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-files.techidaily.com/new-from-ordinary-to-extraordinary-your-pathway-with-tiktok-templates-for-2024/"><u>[New] From Ordinary to Extraordinary  Your Pathway with TikTok Templates for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-proactive-measures-for-managing-comments-on-educational-videos/"><u>[New] Proactive Measures for Managing Comments on Educational Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-quick-youtube-comment-removal-techniques/"><u>[Updated] Mastering Quick YouTube Comment Removal Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2023-techniques-for-harvesting-fb-status-video-content/"><u>2023 Techniques for Harvesting FB Status Video Content</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-right-way-to-pick-spiritual-phone-tunes/"><u>2024 Approved  The Right Way to Pick Spiritual Phone Tunes</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-solution-optimiser-les-services-de-traduction-pour-le-droit-et-la-finance/"><u>ABBYY Solution - Optimiser Les Services De Traduction Pour Le Droit Et La Finance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-und-tangro-steigern-sie-die-prozesssicherheit-im-dokumenteneingang-fur-ein-nahtloses-management/"><u>ABBYY Und Tangro®: Steigern Sie Die Prozesssicherheit Im Dokumenteneingang Für Ein Nahtloses Management</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/adaptieren-zum-new-normal-wie-fraunhofer-und-abbyy-die-prozessdigitalisierung-revolutionieren/"><u>Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ai-driven-insights-into-decoding-medical-billing-complexities-the-abbyy-healthcare-chronicle/"><u>AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/blue-prism-la-technologie-de-lintelligence-des-processus-pour-ameliorer-et-perfectionner-la-performance-dautomatisation/"><u>Blue Prism : La Technologie De L'Intelligence Des Processus Pour Améliorer Et Perfectionner La Performance D'Automatisation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-engagement-through-ai-discover-the-power-of-cookiebot-for-dynamic-content-delivery/"><u>Boosting Engagement Through AI: Discover the Power of Cookiebot for Dynamic Content Delivery</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-process-intelligence-collaborating-with-alteryx-and-abbyy-in-tandem/"><u>Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/carlsberg-beschleunigung-zur-weltweiten-bierbraukronung-durch-abbyy/"><u>Carlsberg: Beschleunigung Zur Weltweiten Bierbraukrönung Durch ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comprehensive-guide-on-eula-notification-policies/"><u>Comprehensive Guide on EULA Notification Policies</u></a></li>
-<li><a href="https://facebook.techidaily.com/confront-the-click-strategies-for-quitting-facebook/"><u>Confront the Click: Strategies for Quitting Facebook</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-customization-enhancing-user-experience/"><u>Cookiebot-Driven Customization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-personalization-enhance-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhance Your Website's User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-boost-your-sites-potential/"><u>Cookiebot-Enhanced User Experience: Boost Your Site's Potential</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-smart-seo-tools/"><u>Cookiebot-Enhanced User Experience: Smart SEO Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-key-ingredient-in-your-seo-recipe/"><u>Cookiebot: The Key Ingredient in Your SEO Recipe</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customize-with-cookiebot-boost-engagement-and-growth-on-your-site/"><u>Customize with Cookiebot: Boost Engagement and Growth on Your Site</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-ad-targeting-with-the-advanced-technology-of-cookiebot/"><u>Customized Ad Targeting with the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/digital-preservation-with-abbyy-tools-at-the-core-of-south-koreas-archival-project/"><u>Digital Preservation with ABBYY Tools at the Core of South Korea's Archival Project</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-web-personalization-using-the-power-of-cookiebot-technology/"><u>Elevate Web Personalization Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/enhance-video-tracking-with-our-top-rated-time-stamp-tips-for-youtube/"><u>Enhance Video Tracking with Our Top-Rated Time Stamp Tips for YouTube</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-website-traffic-with-advanced-cookiebot-seo-solutions/"><u>Enhance Website Traffic with Advanced Cookiebot SEO Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-website-personalization-with-cookiebot-technology/"><u>Enhanced Website Personalization with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-creditor-management-with-shared-service-centers-integration-of-madsack-mediengruppe-sap-and-abbyy/"><u>Enhancing Creditor Management with Shared Service Centers - Integration of MADSACK Mediengruppe, SAP, and ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-user-privacy-with-cookiebots-advanced-tracking-solutions/"><u>Enhancing User Privacy with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/gagnez-un-avantage-decisif-en-finance-grace-a-notre-checklist-abbyy-les-cles-pour-reussir-sur-les-marches-financiers/"><u>Gagnez Un Avantage Décisif en Finance Grâce À Notre Checklist ABBYY - Les Clés Pour Réussir Sur Les Marchés Financiers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-automated-tracking-with-cookiebot-technology/"><u>Harness the Power of Automated Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-for-effective-online-marketing-campaigns/"><u>Harness the Power of Cookiebot for Effective Online Marketing Campaigns</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-tecno-pova-5-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Tecno Pova 5 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-apple-iphone-12-pro-prevention-and-solution-drfone-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of Apple iPhone 12 Pro Prevention & Solution | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/neoml-von-abbyy-jetzt-mit-python-unterstutzt-erleben-sie-die-10x-schnellere-open-source-bibliothek/"><u>NeoML Von ABBYY Jetzt Mit Python Unterstützt - Erleben Sie Die 10X Schnellere Open-Source-Bibliothek</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-blender-is-an-open-source-cross-platform-3d-graphics-program-but-this-doesnt-mean-its-a-low-rent-option-for-2024/"><u>New Blender Is an Open-Source Cross-Platform 3D Graphics Program, but This Doesnt Mean Its a Low-Rent Option for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-iphone-8-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 8 Data From iTunes | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-recruitment-the-impact-of-ai-on-human-resources/"><u>Revolutionizing Recruitment: The Impact of AI on Human Resources</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/the-smart-approach-to-customer-onboarding-insights-into-automation-driving-factors-and-obstacles/"><u>The Smart Approach to Customer Onboarding: Insights Into Automation Driving Factors & Obstacles</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-how-to-for-your-youtube-music-collection/"><u>The Ultimate How-To for Your YouTube Music Collection</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-10-insights-into-shaping-tomorrows-workplace-visionary-perspectives-from-the-abbyy-blog/"><u>Top 10 Insights Into Shaping Tomorrow's Workplace: Visionary Perspectives From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-photos-to-searchable-pdfs-on-iphone-utilizing-optical-character-recognition-ocr-in-finereader-app/"><u>Transform Your Photos to Searchable PDFs on iPhone: Utilizing Optical Character Recognition (OCR) in FINEREADER App</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transforming-the-industry-the-secrets-behind-thriving-modern-insurers-embracing-change/"><u>Transforming the Industry: The Secrets Behind Thriving Modern Insurers Embracing Change</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitter-video-requirements-how-to-upload-a-video-on-twitter/"><u>Twitter Video Requirements | How to Upload a Video on Twitter?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-end-user-license-agreement-warnings/"><u>Understanding End-User License Agreement Warnings</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/verstehen-sie-den-wechsel-von-etl-zu-elt-und-seinen-einfluss-fur-datenmanagement-strategien/"><u>Verstehen Sie Den Wechsel Von ETL Zu ELT Und Seinen Einfluss Für Datenmanagement-Strategien</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-rising-tide-of-infographics-for-social-insights/"><u>[New] 2024 Approved The Rising Tide of Infographics for Social Insights</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-top-artisans-in-sound-and-video-craftsminas-online/"><u>[New] 2024 Approved The Top Artisans in Sound and Video Craftsminas Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-4k-visual-excellence-selecting-between-screen-types/"><u>[New] In 2024, 4K Visual Excellence Selecting Between Screen Types</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-pinnacle-ai-editor-with-advanced-features/"><u>[Updated] In 2024, Pinnacle AI Editor with Advanced Features</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-empowerment-elevate-your-websites-functionality-today/"><u>Cookiebot Empowerment: Elevate Your Website's Functionality Today</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-data-collection-enhance-your-websites-analytics/"><u>Cookiebot-Driven Data Collection: Enhance Your Website's Analytics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-visitor-tracking-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-seo-and-user-engagement/"><u>Cookiebot-Enabled: Enhancing Your Website's SEO & User Engagement</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience-with-seamless-personalization/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience with Seamless Personalization</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-leading-10-chatbot-options-beyond-chatgpt/"><u>Discover the Leading 10 Chatbot Options Beyond ChatGPT</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insight-why-the-xbox-one-elite-series-2-is-crowned-as-a-timeless-controller-classic/"><u>Expert Insight: Why the Xbox One Elite Series 2 Is Crowned as a Timeless Controller Classic</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-nubia-red-magic-9-proplus-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Nubia Red Magic 9 Pro+ Android SIM Unlock APK</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-honor-x7b-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Honor X7b Phones</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

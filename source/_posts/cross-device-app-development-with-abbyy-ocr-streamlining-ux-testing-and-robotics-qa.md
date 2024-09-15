@@ -1,46 +1,22 @@
 ---
 title: "Cross-Device App Development with ABBYY OCR: Streamlining UX Testing & Robotics QA"
-date: 2024-09-08T23:42:11.360Z
-updated: 2024-09-09T23:42:11.360Z
+date: 2024-09-07T18:21:40.132Z
+updated: 2024-09-14T21:15:55.713Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/527aa4a3864e617eb5900b316ca14f6baa8ae1f4cbbc3b923f7a9d59fce31293.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cross-Device App Development with ABBYY OCR: Streamlining UX Testing & Robotics QA
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Developers Creating Apps for Multiple Devices Use ABBYY Recognition Software for UI Test Automation and Robotic Quality Assurance
 
 April 19, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_Popular Use Cases Include Video Game Design, Car Infotainment Systems_** 
 
 ABBYY, a leading provider of recognition, data capture and language-based text analytics technologies, today announced that developers of complex and interactive electronics systems are increasingly using ABBYY’s recognition software, FineReader® Engine, for User Interface [(UI) test automation](http://hubs.ly/H029ZtF0) and robotic quality assurance (QA) to reduce the effort and labor typically required to produce high-quality applications.
@@ -85,8 +61,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,40 +70,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-narratives-of-the-bravest-our-favorites-in-adventure-games/"><u>[New] 2024 Approved  Narratives of the Bravest  Our Favorites in Adventure Games</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-smart-picks-top-free-online-recorder-software/"><u>[New] In 2024, Smart Picks  Top Free Online Recorder Software</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-revolutionizing-advertising-on-facebook-with-the-best-video-tactics/"><u>[New] Revolutionizing Advertising on Facebook with the Best Video Tactics</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-sky-perspectives-in-stunning-hd-a-mi-drone-reality/"><u>[New] Sky Perspectives in Stunning HD  A Mi Drone Reality</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-apple-iphone-14-pro-max-by-name-drfone-by-drfone-virtual-ios/"><u>4 Most-Known Ways to Find Someone on Tinder For Apple iPhone 14 Pro Max by Name | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-nokia-130-music-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oneplus-nord-n30-se-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your OnePlus Nord N30 SE Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-the-cookiebot-solution/"><u>Automated User Tracking with the Cookiebot Solution</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automatisierte-veranderung-wie-traditionelle-unternehmen-in-digitale-strukturen-ubergehen/"><u>Automatisierte Veränderung: Wie Traditionelle Unternehmen in Digitale Strukturen Übergehen</u></a></li>
-<li><a href="https://extra-information.techidaily.com/boost-iphone-photographic-finesse-with-essential-additions-for-2024/"><u>Boost iPhone Photographic Finesse with Essential Additions for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-apps-features-for-free-with-abbyys-on-the-fly-image-recognition-technology/"><u>Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-realme-gt-5-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Realme GT 5 Pro Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-efficient-marketing-automation-tools/"><u>Cookiebot Driven Solutions: Efficient Marketing Automation Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-empowered-sites-boost-organic-visibility/"><u>Cookiebot-Empowered Sites Boost Organic Visibility</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-analytics-unleashing-new-possibilities-in-user-tracking/"><u>Cookiebot-Enhanced Analytics: Unleashing New Possibilities in User Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-personalization-enhancing-your-websites-visitor-experience/"><u>Cookiebot-Enhanced Personalization: Enhancing Your Website's Visitor Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-sites-boost-your-websites-performance/"><u>Cookiebot-Enhanced Sites: Boost Your Website's Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience/"><u>Cookiebot-Enhanced User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-a-recipe-for-successful-site-engagement/"><u>Cookiebot-Enhanced User Experience: A Recipe for Successful Site Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-experience-personalized-advertising-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Experience Personalized Advertising with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-fueled-engagement-tailored-interactions-and-improved-analytics/"><u>Cookiebot-Fueled Engagement: Tailored Interactions & Improved Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-optimize-your-websites-seo-with-advanced-tracking-technology/"><u>Cookiebot: Optimize Your Website's SEO with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/deloitte-und-abbey-zusammenarbeit-beendet-innovatives-losungsportfolio-fur-die-optimierung-von-geschaftsprozessen/"><u>Deloitte Und ABBEY Zusammenarbeit Beendet - Innovatives Lösungsportfolio Für Die Optimierung Von Geschäftsprozessen</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-honor-x50-gt-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Honor X50 GT.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-efficiency-in-the-abbyy-procurement-cycle-expert-ap-automation-tools-for-businesses/"><u>Enhance Efficiency in the ABBYY Procurement Cycle: Expert AP Automation Tools for Businesses</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-marketing-insights-with-the-cookiebot-platform/"><u>Enhanced Marketing Insights with the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-web-analytics-with-automated-cookie-technology-discover-the-power-of-your-productservice/"><u>Enhanced Web Analytics with Automated Cookie Technology: Discover the Power of [Your Product/Service]</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-analytics-through-cookiebot-enabled-sites/"><u>Enhancing Analytics Through Cookiebot-Enabled Sites</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/erweiterte-moglichkeiten-der-dokumentbearbeitung-mit-neuem-update-in-finereader-14-abbyy-software/"><u>Erweiterte Möglichkeiten Der Dokumentbearbeitung Mit Neuem Update in FineReader 14, ABBYY Software</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-delete-icloud-account-with-or-without-password-from-your-apple-iphone-xrwindowsmac-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account with or without Password from your Apple iPhone XR/Windows/Mac</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-itel-p55-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Itel P55? | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-opening-doors-to-collective-listening-on-youtube/"><u>In 2024, Opening Doors to Collective Listening on YouTube</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-binary-divide-metaverse-vs-multiverse-explained/"><u>In 2024, The Binary Divide  Metaverse Vs Multiverse Explained</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-infinix-note-30-vip-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Infinix Note 30 VIP</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/mastering-pro-grade-gopro-video-content-creation-for-2024/"><u>Mastering Pro-Grade GoPro Video Content Creation for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/premium-web-choices-for-shiny-3d-type-designs/"><u>Premium Web Choices for Shiny, 3D Type Designs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-crafting-character-adventures-windows-movie-maker-for-animators/"><u>[New] In 2024, Crafting Character Adventures Windows Movie Maker for Animators</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-assistance-with-abbyys-latest-innovation-the-new-mobile-capture-sdk-transforming-the-way-customers-experience-technology/"><u>Enhancing Digital Assistance with ABBYY's Latest Innovation: The New Mobile Capture SDK - Transforming the Way Customers Experience Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/experience-superior-site-personalization-with-our-cookiebot-integration/"><u>Experience Superior Site Personalization with Our Cookiebot Integration</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploring-the-professional-perks-why-joining-abbyy-is-your-smart-move/"><u>Exploring the Professional Perks: Why Joining ABBYY Is Your Smart Move</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/future-proofing-insurance-with-data-a-key-component-for-change/"><u>Future-Proofing Insurance with Data: A Key Component for Change</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-deutsche-post-dhl-enhances-efficiency-through-abbyy-automated-solutions/"><u>How Deutsche Post DHL Enhances Efficiency Through ABBYY Automated Solutions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-luts-for-enhanced-photoshop-images/"><u>In 2024, Mastering LUTs for Enhanced Photoshop Images</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-amd-radeon-r9-graphics-card-drivers-for-windows-download-and-setup-steps/"><u>Latest AMD Radeon R9 Graphics Card Drivers for Windows – Download & Setup Steps</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722002846299-misinformation-busted-there-is-no-legitimate-chatgpt-window-software-dont-fall-for-malware-traps/"><u>Misinformation Busted: There Is No Legitimate ChatGPT Window Software; Don’t Fall for Malware Traps</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-random-reboot-and-power-failures-on-your-laptop-tips-that-worked-for-me/"><u>Overcoming Random Reboot and Power Failures on Your Laptop: Tips That Worked for Me!</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-vivo-y02t-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Vivo Y02T Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-old-social-circles-on-fb/"><u>Unveiling Old Social Circles on FB</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

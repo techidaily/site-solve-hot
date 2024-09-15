@@ -1,7 +1,7 @@
 ---
 title: Accelerate PO Management and Elevate Service Quality Through GEMLUX’s Advanced ABBYY IDP Solutions Within NetSuite
-date: 2024-09-08T23:42:09.178Z
-updated: 2024-09-09T23:42:09.178Z
+date: 2024-09-07T17:04:27.943Z
+updated: 2024-09-14T18:18:21.954Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8873a1de6b737b1bdaf613e6b23cabb06e207ebbce95a2d263cbd7e4a2de27ba.jpg
@@ -13,22 +13,10 @@ thumbnail: https://thmb.techidaily.com/8873a1de6b737b1bdaf613e6b23cabb06e207ebbc
 
 CASE STUDY | MANUFACTURING
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## GEMLUX Improves Customer Service and Speeds PO Processing with ABBYY IDP Integration with NetSuite
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/customer-stories/white-logos/gemlux_white_120x40.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![GEMLUX](https://content.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/customer%20stories/case%20studies%20main%20images/brantman_240202_gemviking_drone_028_905x.jpg) 
 
 #### Customer Overview
@@ -56,12 +44,6 @@ By making purchase order processing more efficient, sales reps can spend more ti
 
 Kailyn Nordsiek, ERP Systems Specialist
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Challenge
 
 GEMLUX sales reps were spending 30 to 45 minutes manually entering data from customer purchase orders into their NetSuite ERP. POs could be 10 pages long with as many as 100 line items. Every time sales reps entered a line, they had to review customizations in place, while answering calls from customers.
@@ -79,12 +61,6 @@ Now that we have put in place the integration for NetSuite to grab data from ABB
 
 Rob Blackerby, Director of I.T.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solution
 
 POs are now emailed to an address monitored by ABBYY IDP to get POs into NetSuite within 3-5 minutes. With automatic exception flagging, sales reps no longer need to interrupt customer service with line-by-line review.
@@ -106,34 +82,36 @@ ABBYY IDP has the ability to process any kind of document. With the successful i
 ![FC_1](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### ABBYY Solutions for Accounts Payable Automation
 
 [Learn more](https://tools.techidaily.com/abbyy/products/)
 
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### PDF Version
 
 [Learn more](https://content.abbyy.com/-/media/Project/Abbyy/Abbyy/Insights/Customer-Stories/PDFs/customer-story-intelligent-document-processing-manufacturing-gemlux-netsuite-en.pdf)
 
 ![laptop mug](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
 
@@ -145,8 +123,6 @@ ABBYY IDP has the ability to process any kind of document. With the successful i
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -156,41 +132,18 @@ ABBYY IDP has the ability to process any kind of document. With the successful i
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-transforming-film-aesthetics-using-luts-for-2024/"><u>[New] Transforming Film Aesthetics Using Luts for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-edge-techniques-for-effective-video-cropping-and-exporting/"><u>[Updated] 2024 Approved  Instagram Edge  Techniques for Effective Video Cropping and Exporting</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-mastering-your-fb-profile-picture-update-for-2024/"><u>[Updated] Mastering Your FB Profile Picture Update for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-pinnacle-ps2-simulators-for-ios-systems/"><u>[Updated] Pinnacle PS2 Simulators for iOS Systems</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-secrets-of-lightroom-on-android-platforms/"><u>[Updated] Unveiling the Secrets of Lightroom on Android Platforms</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-in-depth-analytics-integration-boosts-business-intelligence-in-abbyy-flexicapture-systems/"><u>1. In-Depth Analytics Integration Boosts Business Intelligence in ABBYY FlexiCapture Systems</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-a-detailed-review-of-the-top-10-gopro-protectors/"><u>2024 Approved  A Detailed Review of the Top 10 GoPro Protectors</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-teaming-up-for-duet-video-on-tiktok/"><u>2024 Approved  Teaming Up for Duet Video on TikTok</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724312931265-abbyy/"><u>先端的な機械学習：ビジネスにおける情報理解の新たな要請 - ABBYYの革新技術</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-digital-intelligence-revolutioniert-den-automatisierten-rechnungseingang-bei-bunting-effiziente-und-zuverlassige-unternehmenssoftware-fur-die-geschaft5/"><u>ABBYY Digital Intelligence Revolutioniert Den Automatisierten Rechnungseingang Bei Bünting - Effiziente Und Zuverlässige Unternehmenssoftware Für Die Geschäftsabwicklung</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-transformation-von-tausenden-von-druckseiten-in-digitale-daten-durch-fortschrittliche-software-rastertechnologie/"><u>ABBYY: Transformation Von Tausenden Von Druckseiten in Digitale Daten Durch Fortschrittliche Software-Rastertechnologie</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/acer-chromebook-r-11-an-in-depth-look-at-the-sleek-portable-laptop/"><u>Acer Chromebook R 11: An In-Depth Look at the Sleek, Portable Laptop</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/advanced-docu-ai-techniques-mastering-smart-scanning-with-abbyy-and-pegasystems/"><u>Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-the-cookiebot-solution/"><u>Automated User Tracking with the Cookiebot Solution</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automatisierte-veranderung-wie-traditionelle-unternehmen-in-digitale-strukturen-ubergehen/"><u>Automatisierte Veränderung: Wie Traditionelle Unternehmen in Digitale Strukturen Übergehen</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-apps-features-for-free-with-abbyys-on-the-fly-image-recognition-technology/"><u>Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-efficient-marketing-automation-tools/"><u>Cookiebot Driven Solutions: Efficient Marketing Automation Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-empowered-sites-boost-organic-visibility/"><u>Cookiebot-Empowered Sites Boost Organic Visibility</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-analytics-unleashing-new-possibilities-in-user-tracking/"><u>Cookiebot-Enhanced Analytics: Unleashing New Possibilities in User Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-personalization-enhancing-your-websites-visitor-experience/"><u>Cookiebot-Enhanced Personalization: Enhancing Your Website's Visitor Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-sites-boost-your-websites-performance/"><u>Cookiebot-Enhanced Sites: Boost Your Website's Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-experience-personalized-advertising-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Experience Personalized Advertising with Advanced Tracking Technology</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/decoding-chatgpter-phenomenon-5-insights-into-why-it-skyrocketed-as-the-app-of-the-year/"><u>Decoding ChatGPT'er Phenomenon: 5 Insights Into Why It Skyrocketed as the App of the Year</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-to-block-facebook-video-ads-in-2024/"><u>How to Block Facebook Video Ads, In 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-realme-11x-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Realme 11X 5G</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On OnePlus Ace 2? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/non-profit-gaming-soundtrack-sources/"><u>Non-Profit Gaming Soundtrack Sources</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimierung-der-datenaufnahme-wie-spezielle-ki-die-prozesse-revolutioniert-insights-aus-dem-abbey-blog/"><u>Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-for-superior-data-collection-and-analysis/"><u>Optimized with Cookiebot Technology for Superior Data Collection and Analysis</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-website-mastering-the-art-of-effective-pages/"><u>Optimizing Your Website: Mastering the Art of Effective Pages</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/rebooting-baseline-configurations-and-improving-time-management-techniques-insights-by-abbyy-professionals/"><u>Rebooting Baseline Configurations & Improving Time Management Techniques - Insights by ABBYY Professionals</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/redesigning-kyc-protocols-for-enhanced-compliance-expert-tips-from-the-abbyy-thought-leaders/"><u>Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-online-advertising-strategy-like-a-pro-using-techniques-similar-to-cookiebots-methodology/"><u>Revolutionize Your Online Advertising Strategy Like a Pro Using Techniques Similar to Cookiebot's Methodology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-sonic-elixir-beoplay-h8i-overview/"><u>The Ultimate Sonic Elixir: Beoplay H8i Overview</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transforming-accounts-payable-how-iguras-integration-with-abbyy-enhances-efficiency-for-businesses/"><u>Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/understanding-the-technology-behind-vr-goggles/"><u>Understanding the Technology Behind VR Goggles</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unlocking-cost-reduction-with-process-mining-a-case-study-on-saving-millions-from-the-customer-angle/"><u>Unlocking Cost Reduction with Process Mining: A Case Study on Saving Millions From the Customer Angle</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-elevate-your-online-engagements-the-ultimate-guide-to-slack-and-filmora/"><u>[New] Elevate Your Online Engagements The Ultimate Guide to Slack & Filmora</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-innovative-vr-headsets-transforming-drones/"><u>[New] Innovative VR Headsets Transforming Drones</u></a></li>
+<li><a href="https://win-answers.techidaily.com/elevate-your-experience-solving-frame-rate-issues-while-playing-resident-evil-village-on-pc/"><u>Elevate Your Experience: Solving Frame Rate Issues While Playing Resident Evil Village on PC</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-oppo-reno-10-pro-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Oppo Reno 10 Pro 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Samsung Galaxy F15 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-14-pro-max-to-windows-10-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 14 Pro Max to Windows 10? | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimizing-your-online-presence-mastering-effective-pages/"><u>Optimizing Your Online Presence: Mastering Effective Pages</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionize-your-american-supply-network-in-2020-lessons-from-reuters-panel-on-efficient-automation-techniques/"><u>Revolutionize Your American Supply Network in 2020: Lessons From Reuter's Panel on Efficient Automation Techniques</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50% Expected Within Two Years, Says TechTarget</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
 </ul></div>
+

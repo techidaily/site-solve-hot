@@ -1,40 +1,22 @@
 ---
 title: AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle
-date: 2024-09-08T23:42:09.852Z
-updated: 2024-09-09T23:42:09.852Z
+date: 2024-09-07T19:08:13.050Z
+updated: 2024-09-14T18:51:59.953Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/24b37b578836fc3f2918ab32d25a44b0c1a08b2ac44a3b64d442e286082e5edf.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unravelling the mysteries of medical billing with artificial intelligence
 
 May 25, 2017
 
 ![Unravelling the mysteries of medical billing with artificial intelligence | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25196/unravelling-the-mysteries-of-medical-billing-with-artificial-intelligence.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Medical bills are difficult to decipher. In most cases, they contain “test codes” and “CPT codes” which makes spotting an error very difficult. Reviewing medical records is both expensive and time consuming because they are usually provided in an unstructured textual form such as a Word document or PDF. Up to 90 percent of hospital bills contain errors totaling some $750 billion annually, according to a recent study. A person trying to recover funds associated with overcharging requires requesting the relevant patient medical records and having them reviewed by a clinician. Today, [intelligent text recognition](https://tools.techidaily.com/abbyy/products/) and AI can analyze the unstructured textual data contained in medical records, which can be used by clinicians to accurately extract entities, events, and facts. AI technologies also provide capabilities to automatically cross-reference the information contained within the medical records such as CPT Codes, ICD Codes, Drugs, Dosages and Medical Tests.
 
 Read the full article here: [Health IT Outcome](https://www.healthitoutcomes.com/doc/unravelling-the-mysteries-of-medical-billing-with-artificial-intelligence-0001).
@@ -43,18 +25,6 @@ _By David Bayer, Vice President, Compreno Group at ABBYY_
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -109,8 +79,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -120,50 +88,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-snapstreak-savvy-guidance-to-prevent-interruptions/"><u>[New] In 2024, Snapstreak Savvy  Guidance to Prevent Interruptions</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-the-best-tools-for-video-recording-focus-on-apeaksofts-advantages/"><u>[New] In 2024, The Best Tools for Video Recording – Focus on Apeaksoft's Advantages</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-thunder-gods-fury-new-age-begins-for-2024/"><u>[New] Thunder God's Fury  New Age Begins for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-efficiently-photograph-your-pcs-view/"><u>[Updated] 2024 Approved  Efficiently Photograph Your PC's View</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-elevate-your-conversation-game-mastering-the-art-of-sending-gifs-in-snapchat-for-2024/"><u>[Updated] Elevate Your Conversation Game  Mastering the Art of Sending GIFs in Snapchat for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-a-comprehensive-guide-to-mastering-vivocuts-new-capabilities/"><u>[Updated] In 2024, A Comprehensive Guide to Mastering VivoCut's New Capabilities</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-direct-approaches-to-storing-google-voice-communications/"><u>[Updated] In 2024, Direct Approaches to Storing Google Voice Communications</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-inconspicuous-storywatchers-choice-apps/"><u>[Updated] Inconspicuous Storywatcher's Choice Apps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-for-entrepreneurs-how-to-register-as-a-biz-page/"><u>[Updated] Instagram for Entrepreneurs  How to Register as a Biz Page</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-memetic-magic-mastering-the-top-7-techniques-of-gif-craftsmanship/"><u>2024 Approved  Memetic Magic  Mastering the Top 7 Techniques of GIF Craftsmanship</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-speech-to-text-magic-for-ms-word-users/"><u>2024 Approved  Speech-to-Text Magic for MS Word Users</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-tecno-pop-8-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Tecno Pop 8 | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/adaptieren-zum-new-normal-wie-fraunhofer-und-abbyy-die-prozessdigitalisierung-revolutionieren/"><u>Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren</u></a></li>
-<li><a href="https://techtrends.techidaily.com/before-you-buy-a-smartwatch-understanding-these-5-key-considerations/"><u>Before You Buy a Smartwatch - Understanding These 5 Key Considerations</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/carlsberg-beschleunigung-zur-weltweiten-bierbraukronung-durch-abbyy/"><u>Carlsberg: Beschleunigung Zur Weltweiten Bierbraukrönung Durch ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comprehensive-guide-on-eula-notification-policies/"><u>Comprehensive Guide on EULA Notification Policies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-customization-enhancing-user-experience/"><u>Cookiebot-Driven Customization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-personalization-enhance-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhance Your Website's User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-boost-your-sites-potential/"><u>Cookiebot-Enhanced User Experience: Boost Your Site's Potential</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-smart-seo-tools/"><u>Cookiebot-Enhanced User Experience: Smart SEO Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-key-ingredient-in-your-seo-recipe/"><u>Cookiebot: The Key Ingredient in Your SEO Recipe</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customize-with-cookiebot-boost-engagement-and-growth-on-your-site/"><u>Customize with Cookiebot: Boost Engagement and Growth on Your Site</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-ad-targeting-with-the-advanced-technology-of-cookiebot/"><u>Customized Ad Targeting with the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://driver-install.techidaily.com/decoding-your-cars-hawku-glitches-one-fix-at-a-time/"><u>Decoding Your Car's Hawku Glitches, One Fix at a Time</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/digital-preservation-with-abbyy-tools-at-the-core-of-south-koreas-archival-project/"><u>Digital Preservation with ABBYY Tools at the Core of South Korea's Archival Project</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-web-personalization-using-the-power-of-cookiebot-technology/"><u>Elevate Web Personalization Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-website-traffic-with-advanced-cookiebot-seo-solutions/"><u>Enhance Website Traffic with Advanced Cookiebot SEO Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-website-personalization-with-cookiebot-technology/"><u>Enhanced Website Personalization with Cookiebot Technology</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-game-ahead-the-ultimate-list-of-premier-gba-emulator-programs/"><u>[New] 2024 Approved Game Ahead The Ultimate List of Premier GBA Emulator Programs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-ranked-slideshow-creation-software-on-latest-iphones/"><u>2024 Approved Ranked Slideshow Creation Software on Latest iPhones</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/crafting-control-in-ai-alignment-quest/"><u>Crafting Control in AI Alignment Quest</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/enhancing-creditor-management-with-shared-service-centers-integration-of-madsack-mediengruppe-sap-and-abbyy/"><u>Enhancing Creditor Management with Shared Service Centers - Integration of MADSACK Mediengruppe, SAP, and ABBYY</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/enhancing-user-privacy-with-cookiebots-advanced-tracking-solutions/"><u>Enhancing User Privacy with Cookiebot's Advanced Tracking Solutions</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/gagnez-un-avantage-decisif-en-finance-grace-a-notre-checklist-abbyy-les-cles-pour-reussir-sur-les-marches-financiers/"><u>Gagnez Un Avantage Décisif en Finance Grâce À Notre Checklist ABBYY - Les Clés Pour Réussir Sur Les Marchés Financiers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-automated-tracking-with-cookiebot-technology/"><u>Harness the Power of Automated Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-for-effective-online-marketing-campaigns/"><u>Harness the Power of Cookiebot for Effective Online Marketing Campaigns</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/insightful-strategies-on-customer-knowledge-by-abbyy-presented-at-the-2017-aiim-conference/"><u>Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leading-innovations-in-voice-recognition-abbyy-laut-secures-everest-groups-2024-market-pinnacle-with-idp-peak-matrix-test/"><u>Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-the-power-of-cookiebot-for-advanced-user-experience-optimization/"><u>Leverage the Power of Cookiebot for Advanced User Experience Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/markus-pichler-head-of-sales-at-abbyy-europe-strategies-and-achievements/"><u>Markus Pichler - Head of Sales at ABBYY Europe: Strategies and Achievements</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-drone-racing-insights-and-best-fpv-models-for-2024/"><u>Mastering Drone Racing  Insights & Best FPV Models for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-text-overlays-on-digital-pictures-for-2024/"><u>Mastering Text Overlays on Digital Pictures for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-new-normal-how-and-why-cloud-it-investments-are-set-to-soar/"><u>Navigating the 'New Normal': How and Why Cloud IT Investments Are Set to Soar</u></a></li>
-<li><a href="https://extra-support.techidaily.com/nigh-dark-nemesis-versus-sunlit-savior-for-2024/"><u>Nigh-Dark Nemesis Versus Sunlit Savior for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/screenflow-simplified-streamlining-your-video-projects-on-a-mac/"><u>ScreenFlow Simplified  Streamlining Your Video Projects on a Mac</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/snapchat-recordings-techniques-for-your-phone-for-2024/"><u>Snapchat Recordings  Techniques for Your Phone for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/swift-ways-to-elude-windows-11-screensaver/"><u>Swift Ways to Elude Windows 11 Screensaver</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-infinix-zero-5g-2023-turbo-is-unlocked-by-drfone-android/"><u>How To Check if Your Infinix Zero 5G 2023 Turbo Is Unlocked</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-effortless-multichannel-publishing-tweets-plus-tumbles/"><u>In 2024, Effortless Multichannel Publishing Tweets + Tumbles</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-effortless-ways-to-transfer-data-from-your-apple-iphone-12-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Effortless Ways to Transfer Data from Your Apple iPhone 12 to iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/troubleshooting-sony-dvd-player-disc-not-supported-error-message-effective-solutions-unveiled/"><u>Troubleshooting Sony DVD Player ‘Disc Not Supported’ Error Message – Effective Solutions Unveiled</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

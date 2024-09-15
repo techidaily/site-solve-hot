@@ -1,48 +1,24 @@
 ---
 title: "Celebrating Smart Automation: ABBYY's Proclamation of September as the Official Month"
-date: 2024-09-08T23:42:10.612Z
-updated: 2024-09-09T23:42:10.612Z
+date: 2024-09-07T20:50:26.551Z
+updated: 2024-09-15T00:14:24.052Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f8c3bfe35cce5c37efbf85d203da2ba6c70ae952a01231a15536e05f0907b970.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Celebrating Smart Automation: ABBYY's Proclamation of September as the Official Month
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Declares September as Intelligent Automation Month
 
 August 21, 2023
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Conference5](https://static1.abbyy.com/abbyycommedia/33753/news-conference5.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Programs Educate Organizations on How Using AI Can Accelerate Better Business Outcomes_
 
 Industry leaders in intelligent automation are joining forces to dedicate September as [Intelligent Automation Month](https://tools.techidaily.com/abbyy/products/). Programs will highlight the impact of artificial intelligence (AI) with automation on businesses across the globe – changing the way individuals work, and how companies can achieve operational efficiency and customer excellence.
@@ -79,28 +55,10 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Gina Ray
 
 _ABBYY_
@@ -116,8 +74,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -127,45 +83,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-perfecting-yt-thumbnails-with-aspect-ratios/"><u>[New] 2024 Approved  Perfecting YT Thumbnails with Aspect Ratios</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-bring-back-missing-watch-playlist-icon/"><u>[New] In 2024, Bring Back Missing Watch Playlist Icon</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-how-to-maximize-your-virtual-engagements-using-obs-and-zoom/"><u>[Updated] 2024 Approved  How to Maximize Your Virtual Engagements Using OBS & Zoom</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-calculating-youtube-profits-instantly/"><u>[Updated] In 2024, Calculating YouTube Profits Instantly</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-infinite-possibilities-on-a-track-top-5-racing-simulators-reviewed/"><u>[Updated] Infinite Possibilities on a Track  Top 5 Racing Simulators Reviewed</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-automate-your-website-with-efficient-cookiebot-power-solutions/"><u>1. Automate Your Website with Efficient Cookiebot Power Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2021-kmworld-readers-favorite-titles-unveiled/"><u>2021 KMWorld Reader's Favorite Titles Unveiled</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-professional-analysis-full-potential-of-screenflow-for-mac/"><u>2024 Approved  Professional Analysis  Full Potential of ScreenFlow for Mac</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-turning-youtube-shorts-into-a-money-machine-essentials-and-earnings-prospects/"><u>2024 Approved  Turning YouTube Shorts Into a Money Machine  Essentials and Earnings Prospects</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724312830505-uipathabbyy-flexicapture/"><u>効率的な支払処理手法：UIPath・ABBYY FlexiCaptureのパワーコンビによる自動化アップ</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automate-your-digital-campaigns-with-precision-powered-by-advanced-cookiebot-technology/"><u>Automate Your Digital Campaigns with Precision - Powered by Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-cookiebot-enhancing-your-sites-personalization/"><u>Automated User Tracking with Cookiebot: Enhancing Your Site's Personalization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-automation-enhance-your-sites-seo/"><u>Cookiebot-Driven Automation: Enhance Your Site's SEO</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-insights-for-website-optimization/"><u>Cookiebot-Driven Insights for Website Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-stories-unleashing-marketing-potential-through-advanced-analytics/"><u>Cookiebot-Driven Success Stories: Unleashing Marketing Potential Through Advanced Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-elevate-your-website-engagement-and-rankings/"><u>Cookiebot-Driven Success: Elevate Your Website Engagement and Rankings</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-website-optimization-unlocking-success/"><u>Cookiebot-Driven Website Optimization: Unlocking Success</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-secret-ingredient-for-supercharging-your-site-performance/"><u>Cookiebot: The Secret Ingredient for Supercharging Your Site Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/crafting-impactful-digital-content-strategies-for-page-excellence/"><u>Crafting Impactful Digital Content: Strategies for Page Excellence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cross-device-app-development-with-abbyy-ocr-streamlining-ux-testing-and-robotics-qa/"><u>Cross-Device App Development with ABBYY OCR: Streamlining UX Testing & Robotics QA</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-user-experience-with-automated-tracking-inspired-by-cookiebot/"><u>Customized User Experience with Automated Tracking: Inspired by Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discover-the-scope-of-abbyys-technological-impact-annual-ocr-conversion-statistics-for-2017/"><u>Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discovering-cutting-edge-innovations-the-intersection-of-ai-and-process-mining-today/"><u>Discovering Cutting-Edge Innovations: The Intersection of AI and Process Mining Today</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-site-visits-experience-the-benefits-of-cookiebot-powered-marketing-solutions/"><u>Elevate Your Site Visits - Experience the Benefits of Cookiebot Powered Marketing Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-assistance-with-abbyys-latest-innovation-the-new-mobile-capture-sdk-transforming-the-way-customers-experience-technology/"><u>Enhancing Digital Assistance with ABBYY's Latest Innovation: The New Mobile Capture SDK - Transforming the Way Customers Experience Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-superior-site-personalization-with-our-cookiebot-integration/"><u>Experience Superior Site Personalization with Our Cookiebot Integration</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-the-professional-perks-why-joining-abbyy-is-your-smart-move/"><u>Exploring the Professional Perks: Why Joining ABBYY Is Your Smart Move</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-oneplus-12-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on OnePlus 12 Quickly | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-proofing-insurance-with-data-a-key-component-for-change/"><u>Future-Proofing Insurance with Data: A Key Component for Change</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-deutsche-post-dhl-enhances-efficiency-through-abbyy-automated-solutions/"><u>How Deutsche Post DHL Enhances Efficiency Through ABBYY Automated Solutions</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/improve-print-quality-fixing-win10-drivers/"><u>Improve Print Quality: Fixing WIN10 Drivers</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-asus-rog-phone-8-pro-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Asus ROG Phone 8 Pro Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/james-ritter-named-abbyys-new-cfo-strategic-leadership-in-finance/"><u>James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/learn-nft-creation-with-minimal-fuss-for-2024/"><u>Learn NFT Creation with Minimal Fuss for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leveraging-pitch-insights-for-successful-implementation-of-ai-driven-processes/"><u>Leveraging Pitch Insights for Successful Implementation of AI-Driven Processes</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-medicine-with-the-cloud-how-digitalization-is-shaping-the-future-of-health-services/"><u>Revolutionizing Medicine with the Cloud: How Digitalization Is Shaping the Future of Health Services</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-medical-practice-enhancing-patient-care-through-abbyy-paperless-data-solutions/"><u>Transform Your Medical Practice: Enhancing Patient Care Through ABBYY Paperless Data Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transforming-doc-mastery-with-abbyy-marketplace-advanced-llm-and-rag-technology-unleashed/"><u>Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-your-vivo-x-fold-2s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Vivo X Fold 2s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/virtual-event-space-12-channel-livestream-experience/"><u>Virtual Event Space  12-Channel Livestream Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-fearless-filming-mastering-your-first-10-clips/"><u>[New] 2024 Approved Fearless Filming Mastering Your First 10 Clips</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unlocking-youtubes-hidden-gems-keyword-research/"><u>[New] Unlocking YouTube's Hidden Gems Keyword Research</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/add-on-effectiveness-implementing-end-cuts-on-vimeo/"><u>Add-On Effectiveness Implementing End Cuts on Vimeo</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enablement-boost-digital-footprints-and-user-engagement/"><u>Cookiebot Enablement: Boost Digital Footprints & User Engagement.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-personalized-experiences/"><u>Cookiebot-Enabled Personalized Experiences</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-web-optimization-enhance-user-engagement-and-analytics-effortlessly/"><u>Cookiebot-Enabled Web Optimization: Enhance User Engagement & Analytics Effortlessly</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-visitor-tracking-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-seo-and-user-engagement/"><u>Cookiebot-Enabled: Enhancing Your Website's SEO & User Engagement</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience-with-seamless-personalization/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience with Seamless Personalization</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-can-i-unlock-my-iphone-13-pro-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>How Can I Unlock My iPhone 13 Pro After Forgetting my PIN Code? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-game-changing-performance-of-apples-newest-marvel-a-comprehensive-mac-mini-m1-2020-review/"><u>The Game-Changing Performance of Apple's Newest Marvel: A Comprehensive Mac Mini (M1, 2020) Review</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-to-starting-a-sports-channel-on-mac/"><u>The Ultimate Guide to Starting a Sports Channel on Mac</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-video-vanguard-youtubes-powerful-personalities-for-2024/"><u>Viral Video Vanguard YouTube's Powerful Personalities for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

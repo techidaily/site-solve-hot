@@ -1,18 +1,12 @@
 ---
 title: "Customized User Experience with Automated Tracking: Inspired by Cookiebot"
-date: 2024-09-08T23:42:11.374Z
-updated: 2024-09-09T23:42:11.374Z
+date: 2024-09-13T20:15:24.743Z
+updated: 2024-09-14T23:21:30.589Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/177db7c45381f8f94f304fef5764a3ae21d49762f0d50b119bc79b8987d4ee6b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Customized User Experience with Automated Tracking: Inspired by Cookiebot
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
@@ -25,18 +19,6 @@ Transportation & Logistics | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Intelligent Document Processing Reduces Invoice Processing Time by 90%
 
 Transportation & Logistics | Accounts Payable Automation 
@@ -47,18 +29,6 @@ Transportation & Logistics | Accounts Payable Automation
 
 ![Sumitomo Warehouse Co. Ltd.](https://static4.abbyy.com/abbyycommedia/30003/sumitomo-en-logo-116x80.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | Name         | Sumitomo Warehouse Co. Ltd.                                                 |
 | ------------ | --------------------------------------------------------------------------- |
 | Headquarters | Tokyo & Osaka, Japan                                                        |
@@ -109,12 +79,6 @@ Invoice-processing time reduced from more than 40 minutes to 4 minutes per docum
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
@@ -123,24 +87,12 @@ Invoice-processing time reduced from more than 40 minutes to 4 minutes per docum
 
 [![Download the PDF version](https://static3.abbyy.com/abbyycommedia/38111/ds-260_sumitomo-case-study_tn_gray_360-162.jpg)](https://static3.abbyy.com/abbyycommedia/38078/customer-story-intelligent-document-processing-transportation-sumitomo-warehouse-en.pdf "PDF Version") [PDF Version](https://static3.abbyy.com/abbyycommedia/38078/customer-story-intelligent-document-processing-transportation-sumitomo-warehouse-en.pdf "PDF Version") 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Read the document](https://static3.abbyy.com/abbyycommedia/38078/customer-story-intelligent-document-processing-transportation-sumitomo-warehouse-en.pdf "PDF Version") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -153,8 +105,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -164,37 +114,26 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-7-leading-mac-video-player-options/"><u>[Updated] 7 Leading Mac Video Player Options</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-avoiding-content-id-alerts-strategies-on-youtube/"><u>[Updated] In 2024, Avoiding Content ID Alerts  Strategies on YouTube</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-securing-conversation-logs-how-to-store-mb-chats-and-calls-safely-for-2024/"><u>[Updated] Securing Conversation Logs  How to Store MB Chats and Calls Safely for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-abbyy-flexicapture-transforming-enterprises-into-modern-digital-powerhouses/"><u>1. ABBYY FlexiCapture: Transforming Enterprises Into Modern Digital Powerhouses</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-affordable-pc-video-recording-tools/"><u>2024 Approved  Affordable PC Video Recording Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-image-interpretation-illumination-ideal-photo-to-cartoony-tools/"><u>2024 Approved  Image Interpretation Illumination  Ideal Photo-to-Cartoony Tools</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-google-docs-transcription-your-complete-manual/"><u>2024 Approved  Unlocking Google Docs Transcription  Your Complete Manual</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-cloud-your-ultimate-solution-for-seamless-document-conversion-and-automation/"><u>Abbyy Cloud: Your Ultimate Solution for Seamless Document Conversion and Automation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyyand/"><u>ABBYYジャパンと共同開発した最新技術:パーソルプロセス&テクノロジーによる革新</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-ocr-and/"><u>ABBYYの優れた帳票データエクステラクション – 多ページ、複雑な表やレイアウトを扱い、容易にOCR &出力可能</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-lead-capture-how-our-solutions-are-enhanced-with-cookiebot-technology/"><u>Automated Lead Capture: How Our Solutions Are Enhanced with Cookiebot Technology</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-oppo-f23-5g-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Oppo F23 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-for-seamless-website-personalization-and-tracking/"><u>Cookiebot-Driven Solutions for Seamless Website Personalization and Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-tailored-content-with-our-cookiebot-integration-technology/"><u>Experience Tailored Content with Our Cookiebot Integration Technology</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-infinix-hot-40-pro-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Infinix Hot 40 Pro to Another | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-iphone-12-drfone-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-next-level-in-monitor-technology-a-deep-dive-into-p2715qs-wonders/"><u>In 2024, The Next Level in Monitor Technology - A Deep Dive Into P2715Q's Wonders</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/integrating-microsoft-sharepoint-with-advanced-ocr-technology-enhancements-through-abbyys-innovative-solutions/"><u>Integrating Microsoft SharePoint with Advanced OCR Technology: Enhancements Through ABBYY's Innovative Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/introducing-abbyy-one-the-cutting-edge-tool-revolutionizing-smart-business-process-automation/"><u>Introducing ABBYY One: The Cutting-Edge Tool Revolutionizing Smart Business Process Automation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-cookiebot-power-boost-personalization-and-engagement-in-digital-campaigns/"><u>Leverage Cookiebot Power: Boost Personalization & Engagement in Digital Campaigns</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-cookiebot-technology-for-dynamic-user-experiences-online/"><u>Leverage Cookiebot Technology for Dynamic User Experiences Online</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/nutzung-von-ki-und-ml-zur-verhutung-digitaler-straftaten-und-erfullung-gesetzlicher-anforderungen-einblicke-durch-abbyy/"><u>Nutzung Von KI Und ML Zur Verhütung Digitaler Straftaten Und Erfüllung Gesetzlicher Anforderungen – Einblicke Durch ABBYY</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/optimizing-hashtag-performance-on-facebook-ads-for-2024/"><u>Optimizing Hashtag Performance on Facebook Ads for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-sites-user-experience-using-the-advanced-features-of-cookiebot/"><u>Revolutionize Your Site's User Experience Using the Advanced Features of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-patient-payments-master-the-revenue-cycle-with-abbyys-ebook-on-healthcare-finance/"><u>Revolutionizing Patient Payments: Master the Revenue Cycle with ABBYY's eBook on Healthcare Finance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/the-best-solution-for-assessing-the-202e-year-with-everest-group-and-abbyys-peak-matrix/"><u>The Best Solution for Assessing the 202E Year with Everest Group and ABBYY's PEAK Matrix</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-phone-into-a-pro-scanner-with-abbyys-topnotch-ai-technology/"><u>Transform Your Phone Into a Pro Scanner with ABBYY's Topnotch AI Technology!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transformative-mobile-tools-discovering-the-top-game-changers-on-your-smartphone/"><u>Transformative Mobile Tools: Discovering the Top Game-Changers on Your Smartphone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-intelligent-process-automation-an-overview/"><u>Understanding Intelligent Process Automation: An Overview</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unlocking-successful-ad-campaigns-through-smart-technology-insights-into-cookiebot-solutions/"><u>Unlocking Successful Ad Campaigns Through Smart Technology: Insights Into Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/utilizing-cookiebot-technology-for-tailored-user-experience-on-websites/"><u>Utilizing Cookiebot Technology for Tailored User Experience on Websites</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/yum-chinas-finance-department-soars-higher-using-abbyy-flexicapture-at-their-shared-services-hub/"><u>YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/44kk44oz44k144kk44oi5zcr5lik44gu44gf44kb44gu44k44k544kv44o744ox44ot44k744k544oe44kk44ol44oz44kw5oqa6kgt/"><u>インサイト向上のためのタスク・プロセスマイニング技術</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-dailymotion-vs-youtubes-revenue-battle-analysis-for-2024/"><u>[Updated] Dailymotion vs YouTubes Revenue Battle Analysis for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-strategies-for-swift-fixes-in-youtubers-shorts/"><u>2024 Approved Strategies for Swift Fixes in YouTubers' Shorts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-turn-mess-into-mastery-efficient-edits-on-bulky-tiktok-drafts/"><u>2024 Approved Turn Mess Into Mastery Efficient Edits on Bulky TikTok Drafts</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-isnt-just-for-chatting-dive-into-our-selection-of-top-among-the-best-games-to-play/"><u>ChatGPT Isn't Just for Chatting! Dive Into Our Selection of Top Among the Best Games to Play</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/enhancing-productivity-with-apples-latest-ipad-102-inch-model-and-ipados-features/"><u>Enhancing Productivity with Apple's Latest iPad 10.2-Inch Model and IPadOS Features</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-network-connectivity-error-in-lost-ark-game/"><u>Fixing Network Connectivity Error in Lost Ark Game</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/james-ritter-named-abbyys-new-cfo-strategic-leadership-in-finance/"><u>James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/laughlens-lab-snapsatiricals-for-2024/"><u>LaughLens Lab SnapSatiricals for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/leveraging-pitch-insights-for-successful-implementation-of-ai-driven-processes/"><u>Leveraging Pitch Insights for Successful Implementation of AI-Driven Processes</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-how-to-put-music-over-a-video-for-2024/"><u>New How to Put Music Over a Video for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-medicine-with-the-cloud-how-digitalization-is-shaping-the-future-of-health-services/"><u>Revolutionizing Medicine with the Cloud: How Digitalization Is Shaping the Future of Health Services</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-your-medical-practice-enhancing-patient-care-through-abbyy-paperless-data-solutions/"><u>Transform Your Medical Practice: Enhancing Patient Care Through ABBYY Paperless Data Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transforming-doc-mastery-with-abbyy-marketplace-advanced-llm-and-rag-technology-unleashed/"><u>Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-guide-for-resolving-netflix-connectivity-problems-with-roku/"><u>Troubleshooting Guide for Resolving Netflix Connectivity Problems with Roku</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

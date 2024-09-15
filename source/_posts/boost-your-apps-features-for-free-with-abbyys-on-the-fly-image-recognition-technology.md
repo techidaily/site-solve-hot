@@ -1,40 +1,22 @@
 ---
 title: Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.
-date: 2024-09-08T23:42:09.245Z
-updated: 2024-09-09T23:42:09.245Z
+date: 2024-09-07T23:32:53.868Z
+updated: 2024-09-14T16:08:12.640Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e18468f4536db088e3157824.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Real-Time Recognition SDK Elevates Mobile User Experience with Free OCR
 
 December 01, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _New mobile SDK with ABBYY OCR enables developers to create mobile apps that leverage text recognition directly on a smartphone camera preview screen._
 
 ABBYY®, a leading provider of technologies and solutions to action information, today announced the release of the [ABBYY Real-Time Recognition SDK](http://rtrsdk.com), a software development kit enabling developers to create iOS and Android apps that eliminate photo taking and saving to capture information. The SDK is powered by ABBYY’s best-in-class optical character recognition (OCR) technology.
@@ -69,8 +51,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -80,16 +60,9 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-top-10-essential-gratuitous-lut-downloads-of-the-year/"><u>[New] 2024 Approved  Top 10 Essential, Gratuitous LUT Downloads of the Year</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-quickly-connect-your-fb-story-via-linked-profile-for-2024/"><u>[New] Quickly Connect Your FB Story via Linked Profile for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cultivating-the-culture-of-creativity-within-youtube-shorts/"><u>[Updated] 2024 Approved  Cultivating the Culture of Creativity Within YouTube Shorts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-flashy-fiddles-short-form-melodic-roles/"><u>[Updated] Flashy Fiddles  Short Form Melodic Roles</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-simple-steps-for-a-memorable-youtube-channel-url-for-2024/"><u>[Updated] Simple Steps for a Memorable YouTube Channel URL for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-visual-impact-blueprint-for-success-in-instagram-video-campaigns/"><u>[Updated] Visual Impact  Blueprint for Success in Instagram Video Campaigns</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-elevate-your-streams-step-by-step-discord-tips/"><u>2024 Approved  Elevate Your Streams  Step-by-Step Discord Tips</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/boosting-ppt-media-rendering-velocity/"><u>Boosting PPT Media Rendering Velocity</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-with-expertly-managed-cookies/"><u>Cookiebot-Enhanced: Boost Your Site's Performance with Expertly Managed Cookies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ive-channel-themes-get-them-for-free-for-2024/"><u>Creative Channel Themes  Get Them for Free for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-pro-photos-master-the-art-of-adding-motion-blur-effects/"><u>[New] In 2024, Pro Photos Master the Art of Adding Motion Blur Effects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/crutinizing-tseries-earnings-from-digital-viewership-on-youtube/"><u>[New] Scrutinizing TSeries’ Earnings From Digital Viewership on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-crafting-compelling-examples-podcast-summaries/"><u>2024 Approved Crafting Compelling Examples Podcast Summaries</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/efficient-lead-generation-using-the-cookiebot-platform/"><u>Efficient Lead Generation Using the Cookiebot Platform</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/elevate-user-engagement-using-the-innovative-power-of-cookiebot-analytics-solutions/"><u>Elevate User Engagement Using the Innovative Power of Cookiebot Analytics Solutions</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/elevate-your-digital-campaigns-using-the-power-of-cookiebot/"><u>Elevate Your Digital Campaigns Using the Power of Cookiebot</u></a></li>
@@ -97,26 +70,17 @@ Connect with us
 <li><a href="https://solve-hot.techidaily.com/enhance-document-management-efficiency-the-new-wave-of-sharp-mfps-featuring-abbyy-ocr-technology-as-showcased-on-abbyys-expert-blog/"><u>Enhance Document Management Efficiency: The New Wave of Sharp MFPs Featuring ABBYY OCR Technology, as Showcased on ABBYY's Expert Blog</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-cookiebots-advanced-tracking-technology/"><u>Enhance User Experience with Cookiebot's Advanced Tracking Technology</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/enhancing-accessibility-how-texthelp-software-and-abbyy-assist-individuals-with-dyslexia/"><u>Enhancing Accessibility: How Texthelp Software & ABBYY Assist Individuals with Dyslexia</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-website-visitors-the-role-of-cookiebot-technology/"><u>Enhancing Website Visitors: The Role of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/expert-guide-to-implementing-advanced-ai-in-abbyy-software-fusing-machine-learning-and-natural-language-processing-techniques-for-superior-results/"><u>Expert Guide to Implementing Advanced AI in ABBYY Software: Fusing Machine Learning and Natural Language Processing Techniques for Superior Results</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploiter-au-mieux-le-potentiel-dune-entreprise-double-numerique-et-modelisation-procedurale/"><u>Exploiter Au Mieux Le Potentiel D'une Entreprise : Double Numérique Et Modélisation Procédurale</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/explore-the-best-lgbtq-content-available-on-netflix-this-july-2024/"><u>Explore the Best LGBTQ Content Available on Netflix This July 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fortschrittliche-texterfassung-mit-machine-learning-aktuelle-innovationen-von-abbyy/"><u>Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-elevate-your-websites-seo-and-conversion-rates/"><u>Harness the Power of Cookiebot: Elevate Your Website's SEO & Conversion Rates!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-poco-x6-pro-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Poco X6 Pro Phone Screen?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-edge-40-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Motorola Edge 40 Phone without Google Account?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/kddiabbyy-ocr/"><u>KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/latest-update-abbyy-releases-enhanced-abbyy-flexicapture-v122/"><u>Latest Update: ABBYY Releases Enhanced ABBYY FlexiCapture V12.2</u></a></li>
-<li><a href="https://video-capture.techidaily.com/master-the-art-of-organizing-group-conversations-on-skype-irrespective-of-your-systems-os/"><u>Master the Art of Organizing Group Conversations on Skype, Irrespective of Your System's OS</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/mastering-live-broadcasts-obs-on-youtube-and-twitch-for-2024/"><u>Mastering Live Broadcasts  OBS on YouTube and Twitch for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/model-b-1913-27-adjustable-rear-sight-two-settings-optional-safety-first-firing-pin-block-lever-between-trigger-and-slide-unfluted-grip/"><u>Model B - 1913-27, Adjustable Rear Sight (Two Settings), Optional Safety First Firing Pin Block Lever Between Trigger and Slide, Unfluted Grip</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-digital-change-in-insurance-your-ultimate-checklist-featuring-abbyy-solutions/"><u>Navigating Digital Change in Insurance: Your Ultimate Checklist Featuring ABBYY Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/nouvelle-version-du-logiciel-de-reconnaissance-ocr-abbyy-finereader-server-est-maintenant-disponible/"><u>Nouvelle Version Du Logiciel De Reconnaissance OCR ABBYY : FineReader Server Est Maintenant Disponible</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimized-with-advanced-traffic-analytics-the-cookiebot-way/"><u>Optimized with Advanced Traffic Analytics: The Cookiebot Way</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-revolutionizing-website-analytics-and-seo/"><u>Optimized with Cookiebot Technology: Revolutionizing Website Analytics and SEO</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-website-insights-cookiebot-enabled-data-tracking-and-personalization-technology/"><u>Revolutionize Your Website Insights - Cookiebot-Enabled Data Tracking & Personalization Technology</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/shifting-spectrum-skills-pro-tips-unveiled/"><u>Shifting Spectrum Skills - Pro Tips Unveiled</u></a></li>
-<li><a href="https://common-error.techidaily.com/simple-solution-resolving-the-steam-disk-write-error/"><u>Simple Solution: Resolving the Steam Disk Write Error</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/worldwide-standard-moco-keyboard-with-unfolding-design-wireless-bluetooth-functionality/"><u>Worldwide Standard MOCO Keyboard with Unfolding Design, Wireless Bluetooth Functionality</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/recommended-6-best-music-video-apps-on-android/"><u>Recommended 6 Best Music Video Apps on Android</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/sharpen-your-videography-skills-converting-standard-definition-to-hdr-excellence-for-2024/"><u>Sharpen Your Videography Skills Converting Standard Definition to HDR Excellence for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unveiling-leading-edge-vr-developers/"><u>Unveiling Leading-Edge VR Developers</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/upcoming-foldable-version-of-google-pixel-could-feature-a-simplified-photography-setup/"><u>Upcoming Foldable Version of Google Pixel Could Feature a Simplified Photography Setup</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/which-is-the-better-gopro-for-pro-video-max-or-hero-11/"><u>Which Is The Better GoPro for Pro Video? Max or Hero 11</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

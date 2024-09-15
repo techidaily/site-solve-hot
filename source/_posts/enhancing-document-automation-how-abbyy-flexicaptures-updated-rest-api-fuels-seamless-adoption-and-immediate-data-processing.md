@@ -1,40 +1,22 @@
 ---
 title: "Enhancing Document Automation: How ABBYY FlexiCapture's Updated REST API Fuels Seamless Adoption & Immediate Data Processing"
-date: 2024-09-08T23:42:10.932Z
-updated: 2024-09-09T23:42:10.932Z
+date: 2024-09-13T21:07:43.125Z
+updated: 2024-09-14T23:05:17.910Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de65b71eab7da2ab3371e3a0f.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhancing Document Automation: How ABBYY FlexiCapture's Updated REST API Fuels Seamless Adoption & Immediate Data Processing
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY FlexiCapture Cloud Accelerates Adoption and Processing with New REST API and Real-Time Capture
 
 May 16, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY, a global leader in Content IQ technologies and solutions, today announced a series of innovations to ABBYY FlexiCapture, an AI-enabled enterprise platform to automate document processing workflows and convert unstructured content into structured data for better business outcomes. The updates include the launch of the ABBYY FlexiCapture Cloud REST API (Representational State Transfer Application Programming Interface) and the introduction of the new Real-Time Capture technology for real-time document processing in the cloud.
 
 As companies strive to execute their digital transformation strategies and look to automate processes through enablement and execution of their digital workforce, they are challenged by the need to deploy and support intelligent automation capabilities. Traditional on-premise models can often present challenges to agility as well as impact development, deployment, and support objectives. ABBYY has addressed this challenge by making the market-leading Content IQ platform FlexiCapture available in the cloud. Deployed on Microsoft Azure, FlexiCapture Cloud delivers all the benefits of its cloud services directly to customers, developers, and ISVs through REST API and web interfaces. This way, ABBYY offers advanced content classification, extraction, validation, and integration to customers supporting their customer onboarding, claims processing, new account opening, accounts payable, and mortgage origination challenges.
@@ -79,8 +61,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -90,41 +70,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-from-raw-to-stunning-the-role-of-luts-in-premiere-editing/"><u>[New] From Raw to Stunning  The Role of LUTs in Premiere Editing</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-carve-custom-web-laughter-cutouts-today/"><u>[New] In 2024, Carve Custom Web Laughter Cutouts Today</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-inside-the-magic-box-how-does-vr-function/"><u>[New] Inside the Magic Box  How Does VR Function?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-deciphering-the-value-of-free2x-cam-recorders/"><u>[Updated] 2024 Approved  Deciphering the Value of Free2X Cam Recorders</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-expert-tips-activating-or-deactivating-youtube-comments/"><u>[Updated] 2024 Approved  Expert Tips  Activating or Deactivating YouTube Comments</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-speak-up-right-away-timely-responses-to-discord-chats/"><u>[Updated] 2024 Approved  Speak Up Right Away  Timely Responses to Discord Chats</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-unveiling-the-purpose-of-watermarks-in-fb-media/"><u>[Updated] In 2024, Unveiling the Purpose of Watermarks in Fb Media</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-invent-iconic-image-jokes/"><u>[Updated] Invent Iconic Image Jokes</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-crafting-the-perfect-picture-for-youtube-upload/"><u>2024 Approved  Crafting the Perfect Picture for YouTube Upload</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-innovative-techniques-for-final-frame-enhancements-on-vimeo/"><u>2024 Approved  Innovative Techniques for Final Frame Enhancements on Vimeo</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-groups-latest-update-insights-from-ulf-persson-ceo-regarding-the-current-covid-19-pandemic-breaking-news/"><u>ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-lance-5-amelioration-avec-la-fonctionnalite-integree-de-mining-des-taches/"><u>ABBYY Lance 5 : Amélioration Avec La Fonctionnalité Intégrée De Mining Des Tâches</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/alter-time-tracks-essential-windows-tools-to-edit-file-dates/"><u>Alter Time Tracks: Essential Windows Tools to Edit File Dates</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-marketing-optimization-the-role-of-advanced-tracking-technologies-like-cookiebot/"><u>Automated Marketing Optimization: The Role of Advanced Tracking Technologies Like Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-your-digital-presence-with-cookiebot-technology/"><u>Boosting Your Digital Presence with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-boost-your-sites-traffic-efficiently/"><u>Cookiebot-Driven Success: Boost Your Site's Traffic Efficiently</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-websites-engagement-with-advanced-analytics/"><u>Cookiebot-Enabled Site: Enhance Your Website's Engagement with Advanced Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-secret-ingredient-for-supercharging-your-site-performance/"><u>Cookiebot: The Secret Ingredient for Supercharging Your Site Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/crafting-impactful-digital-content-strategies-for-page-excellence/"><u>Crafting Impactful Digital Content: Strategies for Page Excellence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discover-the-scope-of-abbyys-technological-impact-annual-ocr-conversion-statistics-for-2017/"><u>Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discovering-cutting-edge-innovations-the-intersection-of-ai-and-process-mining-today/"><u>Discovering Cutting-Edge Innovations: The Intersection of AI and Process Mining Today</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-site-visits-experience-the-benefits-of-cookiebot-powered-marketing-solutions/"><u>Elevate Your Site Visits - Experience the Benefits of Cookiebot Powered Marketing Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-assistance-with-abbyys-latest-innovation-the-new-mobile-capture-sdk-transforming-the-way-customers-experience-technology/"><u>Enhancing Digital Assistance with ABBYY's Latest Innovation: The New Mobile Capture SDK - Transforming the Way Customers Experience Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-smart-tv-choices-a-comprehensive-guide/"><u>Essential Smart TV Choices: A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-superior-site-personalization-with-our-cookiebot-integration/"><u>Experience Superior Site Personalization with Our Cookiebot Integration</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-advice-overcoming-msvbvm50dll-file-absence-or-detection-problems-on-windows-devices/"><u>Expert Advice: Overcoming 'Msvbvm50.dll' File Absence or Detection Problems on Windows Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-the-professional-perks-why-joining-abbyy-is-your-smart-move/"><u>Exploring the Professional Perks: Why Joining ABBYY Is Your Smart Move</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-proofing-insurance-with-data-a-key-component-for-change/"><u>Future-Proofing Insurance with Data: A Key Component for Change</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-deutsche-post-dhl-enhances-efficiency-through-abbyy-automated-solutions/"><u>How Deutsche Post DHL Enhances Efficiency Through ABBYY Automated Solutions</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-honor-x8b-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Honor X8b Face Lock?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-oppo-a18-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Oppo A18 To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-subtitle-tips-for-instagram-tv-storytelling/"><u>In 2024, Subtitle Tips for Instagram TV Storytelling</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/james-ritter-named-abbyys-new-cfo-strategic-leadership-in-finance/"><u>James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leveraging-pitch-insights-for-successful-implementation-of-ai-driven-processes/"><u>Leveraging Pitch Insights for Successful Implementation of AI-Driven Processes</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/a-statement-with-free-profile-pics/"><u>Make a Statement With Free Profile Pics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-medicine-with-the-cloud-how-digitalization-is-shaping-the-future-of-health-services/"><u>Revolutionizing Medicine with the Cloud: How Digitalization Is Shaping the Future of Health Services</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-selecting-pc-gaming-inputs/"><u>The Ultimate Guide to Selecting PC Gaming Inputs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premiere-trailers-showcase/"><u>[New] Premiere Trailers Showcase</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-abbyy-flexicapture-transforming-enterprises-into-modern-digital-powerhouses/"><u>1. ABBYY FlexiCapture: Transforming Enterprises Into Modern Digital Powerhouses</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-strategic-hashtag-usage-for-enhanced-visibility-on-tiktok/"><u>2024 Approved Strategic Hashtag Usage for Enhanced Visibility on TikTok</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-cloud-your-ultimate-solution-for-seamless-document-conversion-and-automation/"><u>Abbyy Cloud: Your Ultimate Solution for Seamless Document Conversion and Automation</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-ocr-and/"><u>ABBYYの優れた帳票データエクステラクション – 多ページ、複雑な表やレイアウトを扱い、容易にOCR &出力可能</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/fastest-8-tech-to-grab-screen-frames-for-2024/"><u>Fastest 8 Tech to Grab Screen Frames for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-restore-sound-in-your-epic-adventure-through-skyrim/"><u>How To Restore Sound in Your Epic Adventure Through Skyrim</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-power-your-day-with-essential-windows-10-hacks/"><u>In 2024, Power Your Day with Essential Windows 10 Hacks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor Magic 6? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-troubleshooting-what-to-do-when-your-mouse-wont-stay-connected/"><u>Step-by-Step Troubleshooting: What to Do When Your Mouse Won't Stay Connected</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/utilizing-cookiebot-technology-for-tailored-user-experience-on-websites/"><u>Utilizing Cookiebot Technology for Tailored User Experience on Websites</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/yum-chinas-finance-department-soars-higher-using-abbyy-flexicapture-at-their-shared-services-hub/"><u>YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/44kk44oz44k144kk44oi5zcr5lik44gu44gf44kb44gu44k44k544kv44o744ox44ot44k744k544oe44kk44ol44oz44kw5oqa6kgt/"><u>インサイト向上のためのタスク・プロセスマイニング技術</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

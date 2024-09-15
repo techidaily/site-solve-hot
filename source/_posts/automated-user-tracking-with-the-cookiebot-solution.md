@@ -1,18 +1,12 @@
 ---
 title: Automated User Tracking with the Cookiebot Solution
-date: 2024-09-08T23:42:09.214Z
-updated: 2024-09-09T23:42:09.214Z
+date: 2024-09-12T18:35:34.556Z
+updated: 2024-09-14T20:32:47.107Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1040d06f8d0aa10730551351f9cb44d3bcea699d80952a8774c562402ba30c3b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Automated User Tracking with the Cookiebot Solution
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -37,20 +31,8 @@ One of the critical aspects of online services involving sensitive data—such a
 
 ![Identity proofing in action example](https://static1.abbyy.com/abbyycommedia/36102/poi-gif-5_using-poi-2.gif?width=847&height=477)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 A common misperception of identity proofing equates it with another common online security concept, _identity authentication_. Authentication is the use of a combination of credentials—generally a username and password—to gain access to a resource. However, before users can be assigned credentials, especially for access to sensitive resources, they must first verify who they are through identity proofing.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How does identity proofing work?
 
 The NIST identifies [three steps that make up the identity proofing process](https://pages.nist.gov/800-63-3/sp800-63a.html#sec5):
@@ -61,12 +43,6 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 ![](https://static1.abbyy.com/abbyycommedia/36099/2_steps-in-identity-proofing-and-identity-affirmation.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
 
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
@@ -88,12 +64,6 @@ While many vendors offer identity proofing and affirmation tools, few actually d
 * Exception handling (optional human auditing of certain transactions)
 * Process intelligence and mining to identify opportunities for process improvement
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What are common use cases for identity proofing?
 
 While fraud can happen in nearly any industry, sectors with a high frequency of high-risk transactions stand to derive the greatest benefit from AI-driven identity proofing solutions. Here’s a brief sampling of how businesses in various industries are putting identity proofing to use: 
@@ -126,6 +96,13 @@ While fraud can happen in nearly any industry, sectors with a high frequency of 
 
 ![abbyy proof of identity](https://static1.abbyy.com/abbyycommedia/36104/poi-gif-4_using-poi-1.gif?width=847&height=477)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Over the course of just a few years, the volume and complexity of online transactions has grown exponentially, both for better and for worse. Fortunately, identity proofing and affirmation solutions can help businesses continue to meet consumers’ demands for efficient, convenient services while also staying one step ahead of fraudulent actors.
 
 Not only can you minimize the risk of fraud—and the corresponding costs in terms of money and reputation—but you can also earn and build upon the trust of your customers, building relationships that can support business goals for years to come.
@@ -133,11 +110,12 @@ Not only can you minimize the risk of fraud—and the corresponding costs in ter
 Learn about ABBYY's comprehensive identity proofing solution. [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/) does it all. 
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### ABBYY Proof of Identity
 
 Easy for your customers. Secure for your business.
@@ -200,8 +178,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -211,62 +187,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-ultimate-guide-to-capturing-and-editing-high-quality-slow-motion-videos-for-instagram/"><u>[New] In 2024, The Ultimate Guide to Capturing and Editing High-Quality Slow Motion Videos for Instagram</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-master-the-art-of-virality-top-facebook-video-marketing-strategies-for-2024/"><u>[New] Master the Art of Virality  Top Facebook Video Marketing Strategies for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-capturing-attention-how-to-edit-and-crop-videography-for-instagram-success/"><u>[Updated] Capturing Attention  How to Edit & Crop Videography for Instagram Success</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-expert-tips-for-seamless-iphone-screen-recordings/"><u>[Updated] Expert Tips for Seamless iPhone Screen Recordings</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-frame-by-frame-top-picks-for-home-studios/"><u>[Updated] Frame by Frame  Top Picks for Home Studios</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-peak-playtime-power-yts-top-10-by-view-count/"><u>[Updated] Peak Playtime Power  YT's Top 10 by View Count</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-ultimate-social-media-analysis-manual-for-decoding-ig-engagement-and-more-for-2024/"><u>[Updated] Ultimate Social Media Analysis Manual for Decoding IG Engagement and More for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-abbyy-flexicapture-transforming-enterprises-into-modern-digital-powerhouses/"><u>1. ABBYY FlexiCapture: Transforming Enterprises Into Modern Digital Powerhouses</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-cloud-your-ultimate-solution-for-seamless-document-conversion-and-automation/"><u>Abbyy Cloud: Your Ultimate Solution for Seamless Document Conversion and Automation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyyand/"><u>ABBYYジャパンと共同開発した最新技術:パーソルプロセス&テクノロジーによる革新</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-ocr-and/"><u>ABBYYの優れた帳票データエクステラクション – 多ページ、複雑な表やレイアウトを扱い、容易にOCR &出力可能</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/accelerating-battery-performance-add-custom-alerts-to-windows-11/"><u>Accelerating Battery Performance: Add Custom Alerts to Windows 11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ai-powered-voice-assistants-best-smart-speaker-choices-s-end/"><u>AI-Powered Voice Assistants: Best Smart Speaker Choices 'S End</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/are-opinions-on-goods-compensated-in-videos-for-2024/"><u>Are Opinions on Goods Compensated in Videos for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-lead-capture-how-our-solutions-are-enhanced-with-cookiebot-technology/"><u>Automated Lead Capture: How Our Solutions Are Enhanced with Cookiebot Technology</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-open-mov-files-on-galaxy-s24-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can't open MOV files on Galaxy S24</u></a></li>
-<li><a href="https://article-files.techidaily.com/complete-breakdown-dji-inspire-1-explored/"><u>Complete Breakdown  DJI Inspire 1 Explored</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-for-seamless-website-personalization-and-tracking/"><u>Cookiebot-Driven Solutions for Seamless Website Personalization and Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-traffic-with-smart-tracking-technology/"><u>Cookiebot-Enabled Site: Enhance Your Traffic with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-user-experience-with-cutting-edge-technology/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience with Cutting-Edge Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-analytics-tools/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Analytics Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-fueled-personalization-tailoring-user-experience-with-smart-tracking/"><u>Cookiebot-Fueled Personalization: Tailoring User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionize-your-sites-personalization-and-analytics-effortlessly/"><u>Cookiebot: Revolutionize Your Site's Personalization and Analytics Effortlessly</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionizing-personalized-engagement-and-retargeting/"><u>Cookiebot: Revolutionizing Personalized Engagement and Retargeting</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebots-intelligent-technology-propelling-success-in-digital-marketing/"><u>Cookiebot's Intelligent Technology Propelling Success in Digital Marketing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/data-management-in-the-cloud-by-abbyy-select-your-region-wisely/"><u>Data Management in the Cloud by ABBYY - Select Your Region Wisely</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/drive-more-traffic-using-cookiebots-advanced-analytics-tools/"><u>Drive More Traffic Using Cookiebot's Advanced Analytics Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-online-presence-with-cookiebot-seo-solutions-for-maximum-organic-visibility/"><u>Elevate Your Online Presence with Cookiebot SEO Solutions for Maximum Organic Visibility</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-analytics-and-roi-through-ai-driven-conversions-unleash-the-potential-of-cookiebot-solutions/"><u>Enhance Analytics and ROI Through AI-Driven Conversions: Unleash the Potential of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-site-traffic-with-our-advanced-technology-experience-the-power-of-cookiebot/"><u>Enhance Site Traffic with Our Advanced Technology - Experience the Power of Cookiebot!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-technology/"><u>Enhance Web Analytics with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-next-level-text-capture-with-abbyys-ai-powered-finescanner-utilizing-cutting-edge-neural-network-solutions/"><u>Experience Next-Level Text Capture with ABBYY's AI-Powered FineScanner Utilizing Cutting-Edge Neural Network Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-predictions-for-ai-how-focused-ml-techniques-will-transform-industry-specific-business-problems-in-224/"><u>Future Predictions for AI: How Focused ML Techniques Will Transform Industry-Specific Business Problems in 2#24</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-latest-nvidia-windows-drivers-compatible-with-11-7-and-8-systems/"><u>Get the Latest NVIDIA Windows Drivers: Compatible with 11, 7 and 8 Systems!</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/getting-your-corsair-hs35-microphone-functioning-on-a-windows-setup-step-by-step-guide/"><u>Getting Your Corsair HS35 Microphone Functioning on a Windows Setup - Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-artificial-intelligence-for-enhanced-insurance-risk-assessment/"><u>Harnessing Artificial Intelligence for Enhanced Insurance Risk Assessment</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-the-power-of-cookiebot-for-enhanced-marketing-results/"><u>Harnessing the Power of Cookiebot for Enhanced Marketing Results</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-mcdonalds-employs-abbyy-ocr-tech-in-their-mobile-app-insights-from-the-official-abbyy-blog/"><u>How McDonald's Employs ABBYY OCR Tech in Their Mobile App: Insights From the Official ABBYY Blog</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Lava Yuva 3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/hp-laserjet-p1006-driver-update-free-downloads/"><u>HP LaserJet P1006 Driver Update - Free Downloads</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-itel-p55plus-easily-by-drfone-android/"><u>In 2024, How To Unlock a Itel P55+ Easily?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-vivo-x90s-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Vivo X90S FRP</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-honor-magic-5-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Honor Magic 5</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/integrating-abbyy-sdk-into-packaging-automation-enhancing-efficiency-in-transport-and-logistics/"><u>Integrating ABBYY SDK Into Packaging Automation: Enhancing Efficiency in Transport and Logistics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/introducing-abbyys-innovative-no-code-solution-vantage-and-exclusive-ai-tools-collection/"><u>Introducing ABBYY's Innovative No-Code Solution: Vantage Ⅱ & Exclusive AI Tools Collection</u></a></li>
-<li><a href="https://facebook.techidaily.com/linking-smartphones-with-home-screens/"><u>Linking Smartphones with Home Screens</u></a></li>
-<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-note-30-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Note 30 on Windows</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/sabrent-rocket-nano-2242-1tb-ssd-performance-testing-the-ideal-base-drive-for-m2-2242-slots/"><u>Sabrent Rocket Nano 2242 1TB SSD Performance Testing: The Ideal Base Drive for M.2 2242 Slots</u></a></li>
-<li><a href="https://driver-error.techidaily.com/silent-keyboard-lights-asus/"><u>Silent Keyboard Lights ASUS</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-poco-x6-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Poco X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Vivo V30? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-oppo-k11-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Oppo K11 5G Phones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-your-senses-2024s-top-headphones-reviewed/"><u>Unleash Your Senses: 2024'S Top Headphones Reviewed</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/utilizing-cookiebot-technology-for-tailored-user-experience-on-websites/"><u>Utilizing Cookiebot Technology for Tailored User Experience on Websites</u></a></li>
-<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Vivo S18e | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/yum-chinas-finance-department-soars-higher-using-abbyy-flexicapture-at-their-shared-services-hub/"><u>YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/44kk44oz44k144kk44oi5zcr5lik44gu44gf44kb44gu44k44k544kv44o744ox44ot44k744k544oe44kk44ol44oz44kw5oqa6kgt/"><u>インサイト向上のためのタスク・プロセスマイニング技術</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-changing-ringtones-on-an-iphone-a-user-friendly-approach/"><u>[New] Changing Ringtones on an iPhone A User-Friendly Approach</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-quick-guide-to-gopro-4k-video-enhancement/"><u>[New] Quick Guide to GoPro 4K Video Enhancement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-compreeved-guide-to-creating-stellar-youtube-outros-for-2024/"><u>[Updated] Compreeved Guide to Creating Stellar YouTube Outros for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-virtual-lands-the-best-10-smartphone-vr-headsets/"><u>2024 Approved Explore Virtual Lands The Best 10 Smartphone VR Headsets</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/authentification-des-id-avec-trustid-et-abyeocr-un-passage-au-cloud-pour-la-validation-securisee/"><u>Authentification Des ID Avec TrustID Et ABYEOCR : Un Passage Au Cloud Pour La Validation Sécurisée</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-analytics-with-our-cookiebot-integration-solutions/"><u>Boost Analytics with Our Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-your-website-traffic-with-cutting-edge-cookiebot-technology/"><u>Boost Your Website Traffic with Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comment-lintelligence-artificielle-renforce-la-motivation-des-collaborateurs-gain-dacces-a-linformation-dans-les-rapports/"><u>Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-motorola-moto-g23-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Motorola Moto G23? Try These Fixes</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-12-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme 12 5Gwith/without a PC</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-full-screen-recovered-from-obs-errors/"><u>In 2024, Full Screen Recovered From OBS Errors</u></a></li>
 </ul></div>
+

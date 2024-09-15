@@ -1,7 +1,7 @@
 ---
 title: "Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders"
-date: 2024-09-08T23:42:10.411Z
-updated: 2024-09-09T23:42:10.411Z
+date: 2024-09-11T19:24:58.542Z
+updated: 2024-09-14T18:31:01.332Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07877b725aebcc26ce626860ff1aa31b598ca62f4a725eae923eeb25fe929021.jpg
@@ -11,18 +11,6 @@ thumbnail: https://thmb.techidaily.com/07877b725aebcc26ce626860ff1aa31b598ca62f4
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Reimagine Your KYC Strategy
 
 ###### Cheryl Chiodi
@@ -31,12 +19,6 @@ February 11, 2021
 
 ![reimagine your kyc strategy | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/33495/business-continuity-new.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Fraudsters spent much of 2020 focused on intercepting government stimulus programs and upping their game to make illicit gains from enhanced unemployment benefits. There was also an increased focus on phishing attacks targeting “digital newbies, those who were previously inexperienced with online digital services and who were compelled to go online for services that were previously carried out in person.
 
 With the attention now turned from the “shiny metal objects” that the pandemic presented fraudsters with, financial institutions must turn their attention to ensuring that 2021 doesn’t reach new record highs for fraud while simultaneously creating proactive communication strategies to educate their new digital client base on strengthening security hygiene practices. However, the very same technology that is supposed to alleviate strained resources and reduce friction for these “digital newbies” may be the catalyst for allowing opportunistic criminals to carry out thousands of under-the-radar attacks.
@@ -47,20 +29,8 @@ Financial institutions are under pressure to deliver a seamless [KYC compliance 
 
 ![woman in yellow sweater with credit card and tablet](https://static1.abbyy.com/abbyycommedia/31751/contactless-business.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Onboarding](https://tools.techidaily.com/abbyy/products/) can often be the gateway to money laundering and other fraud because customer-facing workers are conducting transactions with people they’ve never seen and with documents they never physically handled, all while working from their computers at home. There may be gaps in the process that can create vulnerabilities for attacks because it involves many human touches. Also, fraudsters go through pains to ensure they know transaction limits and thresholds so that they can stay under the radar.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Know Your Customer (KYC) and tech strategy need to evolve
 
 Chief information security officers (CISOs) and risk and compliance officers need to reimagine their [KYC compliance](https://tools.techidaily.com/abbyy/products/) strategy to ensure their fraud teams stay ahead of the fraudsters. KYC verification steps are often seen as customers' obstacles, adding friction, which creates churn, sending them towards the competition. As financial institutions race to be as frictionless as possible, security cannot be sacrificed.
@@ -70,11 +40,12 @@ Chief information security officers (CISOs) and risk and compliance officers nee
 Another area that can cause a great deal of friction is manual document review. Not only is it cumbersome and error-prone, it is expensive, with some estimates saying each document can cost as much as $1.25 to handle. And document scans are no obstacle for fraudsters, as there is an abundance of photoshopping services that easily create a document scan, and even offer to combine them with a real selfie picture.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Respond with intelligent process automation
 
 To address the challenge of complying with anti-money Laundering (AML) regulations, maintaining [KYC compliance](https://tools.techidaily.com/abbyy/products/), and thwart the evolving threat from fraudsters, financial institutions need a multi-front battle plan that addresses people, processes, and documents. First, you must have a means of scrutinizing documents to detect the signs of attempted fraud. Second, you need visibility into processes that enables continuous monitoring for irregularities that could indicate fraudulent behaviors. Third, you need insight into the ways that people are interacting with the processes and the documents that could indicate suspicious behavior. This approach will arm financial institutions with the insights needed to protect their institutions both from fraud and from regulation violations.
@@ -96,11 +67,12 @@ When applied to fraud prevention, Digital Intelligence offers financial institut
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Cheryl Chiodi
 
 ### Like, share or repost
@@ -157,8 +129,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -168,42 +138,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unfollower-detection-on-instagram/"><u>[New] 2024 Approved  Unfollower Detection on Instagram</u></a></li>
-<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-realme-gt-5-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Realme GT 5 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-elevate-your-creative-expression-with-smart-caption-techniques-for-tiktoks/"><u>2024 Approved  Elevate Your Creative Expression with Smart Caption Techniques for TikToks</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-power-of-perception-transforming-thumbnails-with-captivating-bgs-and-fx/"><u>2024 Approved  The Power of Perception  Transforming Thumbnails with Captivating BGs & FX</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-who-takes-the-crown-of-video-broadcast-twitch-or-youtube/"><u>2024 Approved  Who Takes the Crown of Video Broadcast? Twitch or YouTube</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/choosing-the-best-a-dive-into-obs-and-twitch-streaming-for-2024/"><u>Choosing the Best  A Dive Into OBS & Twitch Streaming for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-compelling-spotify-campaigns-a-practical-guide-for-2024/"><u>Crafting Compelling Spotify Campaigns  A Practical Guide for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elite-streaming-gear-top-hd-360-cameras-compared/"><u>Elite Streaming Gear  Top HD 360° Cameras Compared</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-document-management-efficiency-the-new-wave-of-sharp-mfps-featuring-abbyy-ocr-technology-as-showcased-on-abbyys-expert-blog/"><u>Enhance Document Management Efficiency: The New Wave of Sharp MFPs Featuring ABBYY OCR Technology, as Showcased on ABBYY's Expert Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-cookiebots-advanced-tracking-technology/"><u>Enhance User Experience with Cookiebot's Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-accessibility-how-texthelp-software-and-abbyy-assist-individuals-with-dyslexia/"><u>Enhancing Accessibility: How Texthelp Software & ABBYY Assist Individuals with Dyslexia</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-website-visitors-the-role-of-cookiebot-technology/"><u>Enhancing Website Visitors: The Role of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/expert-guide-to-implementing-advanced-ai-in-abbyy-software-fusing-machine-learning-and-natural-language-processing-techniques-for-superior-results/"><u>Expert Guide to Implementing Advanced AI in ABBYY Software: Fusing Machine Learning and Natural Language Processing Techniques for Superior Results</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploiter-au-mieux-le-potentiel-dune-entreprise-double-numerique-et-modelisation-procedurale/"><u>Exploiter Au Mieux Le Potentiel D'une Entreprise : Double Numérique Et Modélisation Procédurale</u></a></li>
-<li><a href="https://facebook.techidaily.com/filter-bubble-act-explained-for-everyday-users/"><u>Filter Bubble Act Explained for Everyday Users</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fortschrittliche-texterfassung-mit-machine-learning-aktuelle-innovationen-von-abbyy/"><u>Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-elevate-your-websites-seo-and-conversion-rates/"><u>Harness the Power of Cookiebot: Elevate Your Website's SEO & Conversion Rates!</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-iphone-13-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the iPhone 13 Without Previous Owner?</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-update-your-hp-printer-with-new-drivers-step-by-step-tutorial/"><u>How to Update Your HP Printer with New Drivers - Step-by-Step Tutorial</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-above-average-cloud-service-selections/"><u>In 2024, Above-Average Cloud Service Selections</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-asus-rog-phone-7-ultimate-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Asus ROG Phone 7 Ultimate FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-melding-images-and-songs-into-screens/"><u>In 2024, Melding Images and Songs Into Screens</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Samsung Galaxy F15 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-checklist-for-confirming-yt-account/"><u>In 2024, The Ultimate Checklist for Confirming YT Account</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/kddiabbyy-ocr/"><u>KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/latest-update-abbyy-releases-enhanced-abbyy-flexicapture-v122/"><u>Latest Update: ABBYY Releases Enhanced ABBYY FlexiCapture V12.2</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/maximizing-pc-color-with-windows-hdri-for-2024/"><u>Maximizing PC Color with Windows HDRI for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/model-b-1913-27-adjustable-rear-sight-two-settings-optional-safety-first-firing-pin-block-lever-between-trigger-and-slide-unfluted-grip/"><u>Model B - 1913-27, Adjustable Rear Sight (Two Settings), Optional Safety First Firing Pin Block Lever Between Trigger and Slide, Unfluted Grip</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-digital-change-in-insurance-your-ultimate-checklist-featuring-abbyy-solutions/"><u>Navigating Digital Change in Insurance: Your Ultimate Checklist Featuring ABBYY Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/nouvelle-version-du-logiciel-de-reconnaissance-ocr-abbyy-finereader-server-est-maintenant-disponible/"><u>Nouvelle Version Du Logiciel De Reconnaissance OCR ABBYY : FineReader Server Est Maintenant Disponible</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimized-with-advanced-traffic-analytics-the-cookiebot-way/"><u>Optimized with Advanced Traffic Analytics: The Cookiebot Way</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-revolutionizing-website-analytics-and-seo/"><u>Optimized with Cookiebot Technology: Revolutionizing Website Analytics and SEO</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-website-insights-cookiebot-enabled-data-tracking-and-personalization-technology/"><u>Revolutionize Your Website Insights - Cookiebot-Enabled Data Tracking & Personalization Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/scott-opitz-appointed-as-abbyys-new-chief-technology-and-product-officer/"><u>Scott Opitz Appointed as ABBYY's New Chief Technology & Product Officer</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seamless-document-capture-with-abbyy-flexiconnect-compatible-with-pegasystems-platform/"><u>Seamless Document Capture with ABBYY FlexiConnect: Compatible with Pegasystems Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/strategic-evaluation-of-robotic-automation-through-advanced-process-analytics-techniques/"><u>Strategic Evaluation of Robotic Automation Through Advanced Process Analytics Techniques</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/streamlined-energy-switching-made-simple-butagaz-partners-with-abbyy-solutions/"><u>Streamlined Energy Switching Made Simple - Butagaz Partners with ABBYY Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unlocking-advanced-data-insights-with-our-cookiebot-technology-platform/"><u>Unlocking Advanced Data Insights with Our Cookiebot Technology Platform</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-imaginefx-editor/"><u>[Updated] ImagineFX Editor</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/best-editor-apps-to-polish-your-webcam-recordings-for-2024/"><u>Best Editor Apps to Polish Your Webcam Recordings for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/erweiterte-texterfassungsfunktionen-in-echtzeit-von-abbyy-ein-leistungsfahigeres-kundenerlebnis-im-digitalen-raum/"><u>Erweiterte Texterfassungsfunktionen in Echtzeit Von ABBYY: Ein Leistungsfähigeres Kundenerlebnis Im Digitalen Raum</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploring-abbyys-findings-the-future-landscape-of-cognitive-automation-solutions/"><u>Exploring ABBYY's Findings: The Future Landscape of Cognitive Automation Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/harnessing-the-power-of-cookiebot-elevate-seo-and-user-experience-on-your-website/"><u>Harnessing the Power of Cookiebot: Elevate SEO and User Experience on Your Website</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-oppo-k11-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Oppo K11 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-capturing-counter-strike-global-offensive-play-seamlessly/"><u>In 2024, Capturing Counter-Strike Global Offensive Play Seamlessly</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-fixing-recurring-bugs-in-age-of-wonders-planetfall-for-windows-users/"><u>Troubleshooting Guide: Fixing Recurring Bugs in Age of Wonders: Planetfall for Windows Users</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-your-csgo-headset-and-mic-solutions-guide/"><u>Troubleshooting Your CS:GO Headset and Mic - Solutions Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/xiaomis-new-smartphone-screenshot-tool-a-game-changer-in-recording-tech-for-2024/"><u>Xiaomi's New Smartphone Screenshot Tool A Game Changer in Recording Tech for 2024</u></a></li>
 </ul></div>
+

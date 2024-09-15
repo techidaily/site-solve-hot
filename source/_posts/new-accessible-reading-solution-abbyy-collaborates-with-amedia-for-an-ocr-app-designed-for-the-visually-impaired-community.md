@@ -1,40 +1,22 @@
 ---
 title: "New Accessible Reading Solution: ABBYY Collaborates with Amedia for an OCR App Designed for the Visually Impaired Community"
-date: 2024-09-08T23:42:09.008Z
-updated: 2024-09-09T23:42:09.008Z
+date: 2024-09-08T23:46:50.231Z
+updated: 2024-09-14T20:15:03.791Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05c97d832955a545581c7804d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## New Accessible Reading Solution: ABBYY Collaborates with Amedia for an OCR App Designed for the Visually Impaired Community
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY, Amedia Partnership Creates OCR/Reader App for the Visually Impaired
 
 June 07, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _More than 10 different languages supported_ 
 
 ABBYY®, a leading provider of technologies and solutions to action information, has partnered with Japan’s Amedia to create the [Amedia Live Reader](https://itunes.apple.com/us/app/amedia-live-reader/id1040357170?mt=8) application – a mobile optical character reader for the visually impaired.
@@ -77,8 +59,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,49 +68,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-epic-soundscape-trending-audio-for-cutting-edge-youtube-short-videos/"><u>[New] In 2024, Epic Soundscape  Trending Audio for Cutting-Edge YouTube Short Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-best-motivational-films-to-fuel-your-ambition/"><u>[New] The Best Motivational Films to Fuel Your Ambition</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-iphone-flash-optimization-tips/"><u>[Updated] IPhone Flash Optimization Tips</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-in-depth-analytics-integration-boosts-business-intelligence-in-abbyy-flexicapture-systems/"><u>1. In-Depth Analytics Integration Boosts Business Intelligence in ABBYY FlexiCapture Systems</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-oppo-find-x7-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Oppo Find X7 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724312931265-abbyy/"><u>先端的な機械学習：ビジネスにおける情報理解の新たな要請 - ABBYYの革新技術</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-digital-intelligence-revolutioniert-den-automatisierten-rechnungseingang-bei-bunting-effiziente-und-zuverlassige-unternehmenssoftware-fur-die-geschaft5/"><u>ABBYY Digital Intelligence Revolutioniert Den Automatisierten Rechnungseingang Bei Bünting - Effiziente Und Zuverlässige Unternehmenssoftware Für Die Geschäftsabwicklung</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-transformation-von-tausenden-von-druckseiten-in-digitale-daten-durch-fortschrittliche-software-rastertechnologie/"><u>ABBYY: Transformation Von Tausenden Von Druckseiten in Digitale Daten Durch Fortschrittliche Software-Rastertechnologie</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/accelerate-po-management-and-elevate-service-quality-through-gemluxs-advanced-abbyy-idp-solutions-within-netsuite/"><u>Accelerate PO Management and Elevate Service Quality Through GEMLUX’s Advanced ABBYY IDP Solutions Within NetSuite</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/advanced-docu-ai-techniques-mastering-smart-scanning-with-abbyy-and-pegasystems/"><u>Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-the-cookiebot-solution/"><u>Automated User Tracking with the Cookiebot Solution</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automatisierte-veranderung-wie-traditionelle-unternehmen-in-digitale-strukturen-ubergehen/"><u>Automatisierte Veränderung: Wie Traditionelle Unternehmen in Digitale Strukturen Übergehen</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-apps-features-for-free-with-abbyys-on-the-fly-image-recognition-technology/"><u>Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-efficient-marketing-automation-tools/"><u>Cookiebot Driven Solutions: Efficient Marketing Automation Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-web-personalization-using-the-power-of-cookiebot-technology/"><u>Elevate Web Personalization Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-website-traffic-with-advanced-cookiebot-seo-solutions/"><u>Enhance Website Traffic with Advanced Cookiebot SEO Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-website-personalization-with-cookiebot-technology/"><u>Enhanced Website Personalization with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-creditor-management-with-shared-service-centers-integration-of-madsack-mediengruppe-sap-and-abbyy/"><u>Enhancing Creditor Management with Shared Service Centers - Integration of MADSACK Mediengruppe, SAP, and ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-user-privacy-with-cookiebots-advanced-tracking-solutions/"><u>Enhancing User Privacy with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/gagnez-un-avantage-decisif-en-finance-grace-a-notre-checklist-abbyy-les-cles-pour-reussir-sur-les-marches-financiers/"><u>Gagnez Un Avantage Décisif en Finance Grâce À Notre Checklist ABBYY - Les Clés Pour Réussir Sur Les Marchés Financiers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-automated-tracking-with-cookiebot-technology/"><u>Harness the Power of Automated Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-for-effective-online-marketing-campaigns/"><u>Harness the Power of Cookiebot for Effective Online Marketing Campaigns</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-htc-u23-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from HTC U23?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-poco-c51-phone-by-drfone-android/"><u>How to Unlock a Network Locked Poco C51 Phone?</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-5-ways-change-your-home-address-in-googleapple-map-on-apple-iphone-11ipad-drfone-by-drfone-virtual-ios/"><u>In 2024, 5 Ways Change Your Home Address in Google/Apple Map on Apple iPhone 11/iPad | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/insightful-strategies-on-customer-knowledge-by-abbyy-presented-at-the-2017-aiim-conference/"><u>Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leading-innovations-in-voice-recognition-abbyy-laut-secures-everest-groups-2024-market-pinnacle-with-idp-peak-matrix-test/"><u>Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-the-power-of-cookiebot-for-advanced-user-experience-optimization/"><u>Leverage the Power of Cookiebot for Advanced User Experience Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/markus-pichler-head-of-sales-at-abbyy-europe-strategies-and-achievements/"><u>Markus Pichler - Head of Sales at ABBYY Europe: Strategies and Achievements</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-new-normal-how-and-why-cloud-it-investments-are-set-to-soar/"><u>Navigating the 'New Normal': How and Why Cloud IT Investments Are Set to Soar</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimierung-der-datenaufnahme-wie-spezielle-ki-die-prozesse-revolutioniert-insights-aus-dem-abbey-blog/"><u>Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-for-superior-data-collection-and-analysis/"><u>Optimized with Cookiebot Technology for Superior Data Collection and Analysis</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-website-mastering-the-art-of-effective-pages/"><u>Optimizing Your Website: Mastering the Art of Effective Pages</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/rebooting-baseline-configurations-and-improving-time-management-techniques-insights-by-abbyy-professionals/"><u>Rebooting Baseline Configurations & Improving Time Management Techniques - Insights by ABBYY Professionals</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/redesigning-kyc-protocols-for-enhanced-compliance-expert-tips-from-the-abbyy-thought-leaders/"><u>Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-online-advertising-strategy-like-a-pro-using-techniques-similar-to-cookiebots-methodology/"><u>Revolutionize Your Online Advertising Strategy Like a Pro Using Techniques Similar to Cookiebot's Methodology</u></a></li>
-<li><a href="https://network-issues.techidaily.com/smooth-view-ditching-blurry-windows/"><u>Smooth View: Ditching Blurry Windows</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/snapchat-ad-101-create-stunning-and-effective-snapchat-ads/"><u>Snapchat Ad 101  Create Stunning & Effective Snapchat Ads</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-director-of-dishes-behind-the-scenes-of-food-filming/"><u>The Director of Dishes  Behind-the-Scenes of Food Filming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-unveiling-the-powerful-performance-and-intelligent-features-of-the-asus-ax6000-rt-ax88u-wi-fi-6-router/"><u>The Ultimate Review: Unveiling the Powerful Performance and Intelligent Features of the Asus AX6000 (RT-AX88U) Wi-Fi 6 Router</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transforming-accounts-payable-how-iguras-integration-with-abbyy-enhances-efficiency-for-businesses/"><u>Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses</u></a></li>
-<li><a href="https://driver-install.techidaily.com/unleash-power-with-elevated-rtx-3090-drivers/"><u>Unleash Power with Elevated RTX 3090 Drivers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unlocking-cost-reduction-with-process-mining-a-case-study-on-saving-millions-from-the-customer-angle/"><u>Unlocking Cost Reduction with Process Mining: A Case Study on Saving Millions From the Customer Angle</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/unveiling-the-power-of-pinning-your-guide-to-discord-mastery/"><u>Unveiling the Power of Pinning  Your Guide to Discord Mastery</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-free-tools-for-efficient-screen-recording-on-windows-os-for-2024/"><u>[Updated] Free Tools for Efficient Screen Recording on Windows OS for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-overcoming-youtube-distortion-for-better-playback/"><u>2024 Approved Overcoming YouTube Distortion for Better Playback</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-analytics-unleashing-new-possibilities-in-user-tracking/"><u>Cookiebot-Enhanced Analytics: Unleashing New Possibilities in User Tracking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-personalization-enhancing-your-websites-visitor-experience/"><u>Cookiebot-Enhanced Personalization: Enhancing Your Website's Visitor Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-sites-boost-your-websites-performance/"><u>Cookiebot-Enhanced Sites: Boost Your Website's Performance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience/"><u>Cookiebot-Enhanced User Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-a-recipe-for-successful-site-engagement/"><u>Cookiebot-Enhanced User Experience: A Recipe for Successful Site Engagement</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-experience-personalized-advertising-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Experience Personalized Advertising with Advanced Tracking Technology</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/creating-a-safe-mc-habitat-plan-6-for-2024/"><u>Creating a Safe MC Habitat Plan #6 for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-choices-between-ring-and-nest-doorbells-insights-from-a-firsthand-test/"><u>Navigating the Choices Between Ring and Nest Doorbells: Insights From a Firsthand Test</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-unbiased-review-vn-video-editor-pros-features-and-performance-for-2024/"><u>New Unbiased Review VN Video Editor Pros Features and Performance for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-download-videoleap-on-macbook-proair-easy-installation-steps/"><u>Updated 2024 Approved Download Videoleap on MacBook Pro/Air Easy Installation Steps</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Honor Magic 5 Lite | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

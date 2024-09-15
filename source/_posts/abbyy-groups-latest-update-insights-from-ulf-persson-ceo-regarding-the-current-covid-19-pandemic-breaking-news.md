@@ -1,46 +1,22 @@
 ---
 title: "ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News"
-date: 2024-09-08T23:42:06.627Z
-updated: 2024-09-09T23:42:06.627Z
+date: 2024-09-12T21:16:55.984Z
+updated: 2024-09-14T21:40:56.022Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5404a87cd8723307a9d0e6c73b4b785c1ac7bfa81bbe5b64a2be76707a27a2f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The official communication on COVID-19 situation from Ulf Persson, CEO, ABBYY Group
 
 March 23, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The last few weeks have brought unprecedented developments to our communities and the world at large. Like many companies across the globe, one of the measures ABBYY decided to implement is remote work for all employees. Rest assured that ABBYY is running business as usual. We’re well-equipped to work remotely and are still accessible through all normal channels of communication. Our technical support, customer service, professional services, and other teams you rely on every day remain available to prevent any interruption to our normal operations.
 
 To ensure we maintain these high levels of service,ABBYY is closely following the advice and guidelines of the World Health Organization and local agencies and has implemented a strict travel policy for our employees to minimize in-person meetings with customers and partners. Instead, we’re using technology to maintain strong communications using virtual platforms like Zoom and Microsoft Teams. We also remain readily accessible via traditional online methods and phone.
@@ -60,8 +36,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -71,54 +45,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-duplicate-your-instagram-posts/"><u>[New] How to Duplicate Your Instagram Posts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-secure-5-insta-story-watchers-selection/"><u>[New] In 2024, Secure 5 Insta Story-Watchers' Selection</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-streamline-recorder-quality-test/"><u>[New] In 2024, StreamLine Recorder Quality Test</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unleash-your-creative-spirit-from-images-to-videos-using-pixiz/"><u>[New] Unleash Your Creative Spirit  From Images to Videos Using Pixiz</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-ideal-app-selection-top-10-tools-for-instagram-reel-excellence/"><u>[Updated] Ideal App Selection  Top 10 Tools for Instagram Reel Excellence</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-innovative-techniques-for-chapter-integration-in-youtube-content/"><u>[Updated] Innovative Techniques for Chapter Integration in YouTube Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-learn-the-fastest-way-to-retrieve-gifs-directly-from-social-platforms-like-fb/"><u>[Updated] Learn the Fastest Way to Retrieve GIFs Directly From Social Platforms Like FB</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-simple-process-for-preserving-tweets-imagesvideos/"><u>2024 Approved  Simple Process for Preserving Tweets' Images/Videos</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/8-best-online-free-voice-recorder/"><u>8 Best Online Free Voice Recorder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-detailed-look-at-garmin-forerunner-45-unveiling-its-capabilities-for-various-fitness-pursuits/"><u>A Detailed Look at Garmin Forerunner 지오45 - Unveiling Its Capabilities for Various Fitness Pursuits</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbruch-einfluss-von-abnutzbaren-tools-auf-die-automation-der-forderungsabwicklung-und-integration-in-sap/"><u>Abbruch: Einfluss Von ABNutzbaren Tools Auf Die Automation Der Forderungsabwicklung Und Integration in SAP</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-enhances-sales-organization-with-new-leadership-joe-rayfield-named-vp/"><u>ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ai-innovation-fuels-abbyys-financial-triumph-annual-revenue-soars-by-60-featured-in-idc-worldwide-marketscape-ranking/"><u>AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60%% - Featured in IDC Worldwide MarketScape Ranking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-consent-management-with-cookiebot-enhancing-data-privacy-compliance/"><u>Automated Consent Management with Cookiebot: Enhancing Data Privacy Compliance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automatisation-des-factures-chez-pepsico-grace-a-loutil-de-reconnaissance-optique-numerique-dabbyy-flexicapture/"><u>Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-proficiency-in-seconds-tailor-made-skillset-strategies-for-rapid-development/"><u>Boost Proficiency in Seconds - Tailor-Made Skillset Strategies for Rapid Development</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-traffic-with-cookiebot-advanced-marketing-automation-solutions/"><u>Boost Traffic with Cookiebot: Advanced Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-conversions-with-our-cookiebot-technology/"><u>Boost Your Conversions with Our Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/celebrating-smart-automation-abbyys-proclamation-of-september-as-the-official-month/"><u>Celebrating Smart Automation: ABBYY's Proclamation of September as the Official Month</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-film-editing-made-easy-with-fcps-top-10-tools/"><u>[New] Expert Film Editing Made Easy with FCP's Top 10 Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-principles-of-paradoxical-intervention-for-2024/"><u>[New] Principles of Paradoxical Intervention for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-eight-in-one-recorders-free-fast-and-flexible-for-android-users/"><u>[Updated] 2024 Approved Eight-in-One Recorders Free, Fast, and Flexible for Android Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-to-success-boosting-viewership-and-subs-on-youtube/"><u>[Updated] Navigating to Success Boosting Viewership and Subs on Youtube</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/cookiebot-empowerment-elevate-your-websites-functionality-today/"><u>Cookiebot Empowerment: Elevate Your Website's Functionality Today</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enablement-boost-digital-footprints-and-user-engagement/"><u>Cookiebot Enablement: Boost Digital Footprints & User Engagement.</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/cookiebot-driven-automation-and-personalization-for-enhanced-user-engagement/"><u>Cookiebot-Driven Automation and Personalization for Enhanced User Engagement</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/cookiebot-driven-data-collection-enhance-your-websites-analytics/"><u>Cookiebot-Driven Data Collection: Enhance Your Website's Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-personalized-experiences/"><u>Cookiebot-Enabled Personalized Experiences</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-web-optimization-enhance-user-engagement-and-analytics-effortlessly/"><u>Cookiebot-Enabled Web Optimization: Enhance User Engagement & Analytics Effortlessly</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-visitor-tracking-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-seo-and-user-engagement/"><u>Cookiebot-Enabled: Enhancing Your Website's SEO & User Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience-with-seamless-personalization/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience with Seamless Personalization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-experience/"><u>Cookiebot-Enhanced Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimized-engagement-and-personalization/"><u>Cookiebot-Enhanced: Optimized Engagement and Personalization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/driven-with-automated-bots-a-deep-dive-into-smart-marketing-technology/"><u>Driven with Automated Bots: A Deep Dive Into Smart Marketing Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/empowering-websites-with-cookiebot-technology-for-advanced-tracking-and-optimization/"><u>Empowering Websites with Cookiebot Technology for Advanced Tracking and Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-shipping-efficiency-leveraging-artificial-intelligence-for-smart-document-management/"><u>Enhance Shipping Efficiency: Leveraging Artificial Intelligence for Smart Document Management</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-our-cookiebot-power-plugins/"><u>Enhance User Experience with Our Cookiebot Power Plugins</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Performance with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-web-traffic-management-through-smart-analytics-experience-the-efficiency-of-cookiebot-technology/"><u>Enhanced Web Traffic Management Through Smart Analytics: Experience the Efficiency of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-presence-through-state-of-the-art-cookiebot-solutions/"><u>Enhancing Digital Presence Through State-of-the-Art Cookiebot Solutions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-flight-to-fun-mavic-airs-showdown-with-spark-for-2024/"><u>From Flight to Fun  Mavic Air's Showdown with Spark for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-honor-x8b-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Honor X8b to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-amplify-your-brands-impact-with-a-strategic-approach-to-smm-excellence/"><u>In 2024, Amplify Your Brand's Impact with a Strategic Approach to SMM Excellence</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-discreet-youtube-playback-on-mobile-devices/"><u>In 2024, Discreet YouTube Playback on Mobile Devices</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-themes-made-easy-by-the-coolest-logo-and-icon-stores-online/"><u>In 2024, YouTube Themes Made Easy by the Coolest Logo & Icon Stores Online</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-the-art-of-web-pages-boost-your-online-presence/"><u>Mastering the Art of Web Pages: Boost Your Online Presence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimize-with-cookiebot-a-leap-forward-in-personalized-marketing/"><u>Optimize With Cookiebot: A Leap Forward in Personalized Marketing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-web-presence-using-cutting-edge-cookiebot-technology/"><u>Revolutionize Your Web Presence Using Cutting-Edge CookieBot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/tout-sur-lintegration-de-la-gestion-numerisation-et-traitement-automatisee-de-documents-methodologie-en-5-etapes-par-abbyy/"><u>Tout Sur L'Intégration De La Gestion Numérisation Et Traitement Automatisée De Documents - Méthodologie en 5 Étapes Par ABBYY</u></a></li>
-<li><a href="https://techidaily.com/undeleted-lost-videos-from-moto-g34-5g-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Moto G34 5G</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-best-of-the-best-professional-animation-software-for-mac-and-windows/"><u>Updated In 2024, Best of the Best Professional Animation Software for Mac and Windows</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-your-next-adventure-faster-the-best-free-travel-planning-ai-applications-available-today/"><u>Discover Your Next Adventure Faster - The Best Free Travel Planning AI Applications Available Today!</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-slowdowns-in-ubisoft-connect-effective-techniques-for-faster-downloads/"><u>Overcoming Slowdowns in Ubisoft Connect - Effective Techniques for Faster Downloads</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-11-graphics-troubleshoot-and-restart-for-clear-images/"><u>Windows 11 Graphics: Troubleshoot & Restart for Clear Images</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

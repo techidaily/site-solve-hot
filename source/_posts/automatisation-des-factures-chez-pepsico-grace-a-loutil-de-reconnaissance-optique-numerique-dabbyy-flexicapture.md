@@ -1,66 +1,30 @@
 ---
 title: Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture
-date: 2024-09-08T23:42:10.547Z
-updated: 2024-09-09T23:42:10.547Z
+date: 2024-09-09T20:23:32.301Z
+updated: 2024-09-14T23:24:57.163Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a9de22e1aa59a5e7f9127b24.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
 Food and Beverage | Accounts Payable Automation
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## PepsiCo automatise le traitement de ses factures avec ABBYY FlexiCapture
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/fr/93420.png?h=40&iar=0&w=120)
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## PepsiCo automatise le traitement de ses factures avec ABBYY FlexiCapture
 
 Aliments et boissons | Comptes fournisseurs 
 
 ![](https://static1.abbyy.com/abbyycommedia/15764/pepsico.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Aperçu du client
 
 ![PepsiCo Imaging Technology](https://static2.abbyy.com/abbyycommedia/15266/pepsico_for-uk.png) 
@@ -76,12 +40,6 @@ Aliments et boissons | Comptes fournisseurs
 
 ![Criteria First, Inc.](https://static2.abbyy.com/abbyycommedia/15267/criteria-first-logo.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | Prénom         | Criteria First, Inc.                                  |
 | -------------- | ----------------------------------------------------- |
 | Sièges sociaux | Carrollton, TX, USA                                   |
@@ -145,12 +103,6 @@ Et selon R. Kent, ce n'est qu'un début : « Pour nous, cela signiﬁe que la so
 
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Dématérialisation des factures](https://tools.techidaily.com/abbyy/products/) 
@@ -181,8 +133,6 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -192,50 +142,34 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-unlocking-secure-video-sharing-youtube-to-gmail-with-google-access/"><u>[New] 2024 Approved  Unlocking Secure Video Sharing  YouTube to Gmail with Google Access</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-assessing-your-needs-selecting-the-optimal-4k-camera-lens/"><u>[New] Assessing Your Needs  Selecting the Optimal 4K Camera Lens</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-elevate-your-portraits-with-hdr-techniques/"><u>[New] Elevate Your Portraits with HDR Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-whats-new-in-youtube-money-regulations/"><u>[Updated] 2024 Approved  What's New in YouTube Money Regulations</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-revive-your-photos-two-methods-to-restore-photo-viewing-in-win10/"><u>[Updated] Revive Your Photos  Two Methods to Restore Photo Viewing in Win10</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-realme-11x-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Realme 11X 5G Activity | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-21-pioneering-metaverse-ventures-for-insightful-discussion/"><u>2024 Approved  21 Pioneering Metaverse Ventures for Insightful Discussion</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-authoritative-guide-to-generating-srt-files-with-expert-tips/"><u>2024 Approved  The Authoritative Guide to Generating SRT Files with Expert Tips</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-top-budget-friendly-gaming-capture-software-revealed/"><u>2024 Approved  Top Budget-Friendly Gaming Capture Software Revealed</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-youtube-producers-favorite-cameras-and-lenses/"><u>2024 Approved  YouTube Producers' Favorite Cameras & Lenses</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-vivo-y77t-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Vivo Y77t | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/boost-print-quality-install-the-latest-drivers-for-your-epson-wf-7720-printer-on-a-windows-system/"><u>Boost Print Quality: Install the Latest Drivers for Your Epson WF-7720 Printer on a Windows System</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/convert-and-share-simplified-mp3-to-youtube-process-3-phases-for-2024/"><u>Convert & Share  Simplified MP3 to YouTube Process [3 Phases] for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-traffic-with-smart-tracking-technology/"><u>Cookiebot-Enabled Site: Enhance Your Traffic with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-analytics-tools/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Analytics Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-fueled-personalization-tailoring-user-experience-with-smart-tracking/"><u>Cookiebot-Fueled Personalization: Tailoring User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionize-your-sites-personalization-and-analytics-effortlessly/"><u>Cookiebot: Revolutionize Your Site's Personalization and Analytics Effortlessly</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionizing-personalized-engagement-and-retargeting/"><u>Cookiebot: Revolutionizing Personalized Engagement and Retargeting</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebots-intelligent-technology-propelling-success-in-digital-marketing/"><u>Cookiebot's Intelligent Technology Propelling Success in Digital Marketing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/data-management-in-the-cloud-by-abbyy-select-your-region-wisely/"><u>Data Management in the Cloud by ABBYY - Select Your Region Wisely</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/drive-more-traffic-using-cookiebots-advanced-analytics-tools/"><u>Drive More Traffic Using Cookiebot's Advanced Analytics Tools</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/effortless-techniques-for-changing-dall-e-3-webp-visuals-to-standard-jpg-or-png/"><u>Effortless Techniques for Changing DALL-E 3 WebP Visuals to Standard JPG or PNG</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-online-presence-with-cookiebot-seo-solutions-for-maximum-organic-visibility/"><u>Elevate Your Online Presence with Cookiebot SEO Solutions for Maximum Organic Visibility</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-analytics-and-roi-through-ai-driven-conversions-unleash-the-potential-of-cookiebot-solutions/"><u>Enhance Analytics and ROI Through AI-Driven Conversions: Unleash the Potential of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-site-traffic-with-our-advanced-technology-experience-the-power-of-cookiebot/"><u>Enhance Site Traffic with Our Advanced Technology - Experience the Power of Cookiebot!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-technology/"><u>Enhance Web Analytics with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-next-level-text-capture-with-abbyys-ai-powered-finescanner-utilizing-cutting-edge-neural-network-solutions/"><u>Experience Next-Level Text Capture with ABBYY's AI-Powered FineScanner Utilizing Cutting-Edge Neural Network Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-predictions-for-ai-how-focused-ml-techniques-will-transform-industry-specific-business-problems-in-224/"><u>Future Predictions for AI: How Focused ML Techniques Will Transform Industry-Specific Business Problems in 2#24</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gently-introducing-scene-for-2024/"><u>Gently Introducing Scene for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-artificial-intelligence-for-enhanced-insurance-risk-assessment/"><u>Harnessing Artificial Intelligence for Enhanced Insurance Risk Assessment</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-the-power-of-cookiebot-for-enhanced-marketing-results/"><u>Harnessing the Power of Cookiebot for Enhanced Marketing Results</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-mcdonalds-employs-abbyy-ocr-tech-in-their-mobile-app-insights-from-the-official-abbyy-blog/"><u>How McDonald's Employs ABBYY OCR Tech in Their Mobile App: Insights From the Official ABBYY Blog</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-move-custom-ringtones-from-apple-iphone-13-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Move Custom Ringtones from Apple iPhone 13 to Android? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-oneplus-ace-3-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent OnePlus Ace 3 Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/integrating-abbyy-sdk-into-packaging-automation-enhancing-efficiency-in-transport-and-logistics/"><u>Integrating ABBYY SDK Into Packaging Automation: Enhancing Efficiency in Transport and Logistics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/introducing-abbyys-innovative-no-code-solution-vantage-and-exclusive-ai-tools-collection/"><u>Introducing ABBYY's Innovative No-Code Solution: Vantage Ⅱ & Exclusive AI Tools Collection</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ting-wisdom-in-webcams-finest-stocks-channels/"><u>Investing Wisdom in Webcams  Finest Stocks Channels</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-obstacles-in-customer-onboarding-key-drivers-and-critical-issues-revealed-through-survey-data/"><u>Navigating the Obstacles in Customer Onboarding: Key Drivers and Critical Issues Revealed Through Survey Data</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/new-accessible-reading-solution-abbyy-collaborates-with-amedia-for-an-ocr-app-designed-for-the-visually-impaired-community/"><u>New Accessible Reading Solution: ABBYY Collaborates with Amedia for an OCR App Designed for the Visually Impaired Community</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-online-presence-mastering-effective-pages/"><u>Optimizing Your Online Presence: Mastering Effective Pages</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/pioneering-computer-components-the-ultimate-guide-by-toms-technology-hub/"><u>Pioneering Computer Components: The Ultimate Guide by Tom's Technology Hub</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-american-supply-network-in-2020-lessons-from-reuters-panel-on-efficient-automation-techniques/"><u>Revolutionize Your American Supply Network in 2020: Lessons From Reuter's Panel on Efficient Automation Techniques</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50%% Expected Within Two Years, Says TechTarget</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-intros-unveiled-two-proven-ways-for-impact-for-2024/"><u>YouTube Intros Unveiled  Two Proven Ways for Impact for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-decoding-the-top-rival-to-sharex-for-2024/"><u>[New] Decoding the Top Rival to ShareX for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-10-essential-methods-to-record-virtual-seminars-at-no-expense/"><u>[Updated] 2024 Approved 10 Essential Methods to Record Virtual Seminars at No Expense</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-strategies-for-skipping-virtual-learning-videos/"><u>[Updated] 2024 Approved Strategies for Skipping Virtual Learning Videos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-harmonious-hush-for-restfulness-top-asmr-picks/"><u>2024 Approved Harmonious Hush for Restfulness Top ASMR Picks</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-steps-creating-gifs-from-beginner-videos/"><u>5 Easy Steps: Creating GIFs From Beginner Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/customized-user-experience-with-automated-tracking-inspired-by-cookiebot/"><u>Customized User Experience with Automated Tracking: Inspired by Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/driven-by-advanced-data-gathering-technology-from-cookiebot/"><u>Driven by Advanced Data-Gathering Technology From Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effective-strategies-for-claiming-due-payments-a-guide-for-medical-practices-and-hospital-networks/"><u>Effective Strategies for Claiming Due Payments: A Guide for Medical Practices and Hospital Networks</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/eliminating-frame-drops-in-obs-broadcasts-for-2024/"><u>Eliminating Frame Drops in OBS Broadcasts for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-solutions/"><u>Enhance Web Analytics with the Power of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-traffic-conversion-with-cookiebot-technology/"><u>Enhanced Traffic Conversion with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-campaigns-through-innovative-analytic-tools-beyond-traditional-cookies/"><u>Enhancing Digital Campaigns Through Innovative Analytic Tools – Beyond Traditional Cookies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-online-engagement-with-cookiebot-technology-solutions/"><u>Enhancing Online Engagement with Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/how-to-make-duet-on-tiktok-in-2024/"><u>How to Make Duet On TikToK, In 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-samsung-850-evo-drive-software-and-drivers-get-them-here/"><u>Latest Samsung 850 EVO Drive Software and Drivers – Get Them Here</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

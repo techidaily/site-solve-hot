@@ -1,18 +1,12 @@
 ---
 title: 「CLOVA OCRとフレックスキャプチャーを組み合わせた日本語手書き読み取り」
-date: 2024-09-08T23:42:07.142Z
-updated: 2024-09-09T23:42:07.142Z
+date: 2024-09-11T18:12:28.625Z
+updated: 2024-09-14T22:55:11.290Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b760390b18a7b33382115f2d0b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 「CLOVA OCRとフレックスキャプチャーを組み合わせた日本語手書き読み取り」
 
 [全てのブログ](https://tools.techidaily.com/abbyy/products/)
@@ -37,12 +31,6 @@ AI OCRは常に進化しており、クラウド上のサービスも多く、�
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35333/clovaocr-content-1-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FlexiCaptureは複雑な文書の処理が可能
 
 FlexiCaptureは、複雑な文書にも広く対応しており、他では取得できないフォーマットでも、定型、非定型問わずに、読み取り可能です。これは、一般的なAI OCRに用いられている学習による解析だけでなく、人間が見て判断するように、特定の文字からの相対位置や何行目、何列目といった表構造の中での位置、スキャン時に発生する解像度のばらつきや傾きの補正などの機能FlexiCaptureが有しているからです。加えて、上記の機能により文書を誤認識してしまった際にもロジカルに原因追及が可能となっています。
@@ -60,17 +48,31 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35331/clovaocr-content-3-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FlexiCaptureは業務使用に最適
 
 [FlexiCapture](https://tools.techidaily.com/abbyy/products/)はカスタマイズ性の強さからお客様の業務に合わせた導入が可能です。各種APIおよびファイル連携により様々な入出力に対応しており、既存のシステムと合わせて導入できます。
@@ -79,18 +81,6 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 
 認識率や対応フォーマットに目が行きがちですが、ご利用を予定されているAI OCRを業務に組み込んだ際にどのように利用するのか、検証や細かなユーザーの権限管理に対応されているか確認されることをお勧めいたします。
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## CLOVA OCRの特徴
 
 CLOVA OCRは横書きや縦書きだけでなく、丸く湾曲して書かれた文字や傾いた文字などの悪条件下での読み取り、アジア地域の言語の認識、専門用語の認識などで高い精度と評価されているエンジンとなります。詳しくは、[CLOVA OCRのサイト](https://clova.line.me/clova-ocr/?utm%5Fsource=abbyy&utm%5Fmedium=blog)をご覧ください。
@@ -109,12 +99,6 @@ FlexiCaptureは単体でも認識、検証、ワークフローにおいて優�
 
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -169,8 +153,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -180,39 +162,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-melodic-freedom-fbs-music-library/"><u>[New] 2024 Approved  Melodic Freedom  FB's Music Library</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-inquiry-how-to-view-all-media-sharing-in-app-messages-in-2024/"><u>[New] Inquiry  How to View All Media Sharing in App Messages, In 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-breakthrough-in-video-production-advanced-techniques-for-uploading-360-content-on-youtube/"><u>[Updated] In 2024, Breakthrough in Video Production  Advanced Techniques for Uploading 360° Content on YouTube</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-revolutionary-date-insertion-methods-for-digital-artifacts/"><u>[Updated] In 2024, Revolutionary Date Insertion Methods for Digital Artifacts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbruch-einfluss-von-abnutzbaren-tools-auf-die-automation-der-forderungsabwicklung-und-integration-in-sap/"><u>Abbruch: Einfluss Von ABNutzbaren Tools Auf Die Automation Der Forderungsabwicklung Und Integration in SAP</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-enhances-sales-organization-with-new-leadership-joe-rayfield-named-vp/"><u>ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP</u></a></li>
-<li><a href="https://network-issues.techidaily.com/advanced-display-settings-lacking-in-windows-11/"><u>Advanced Display Settings Lacking in Windows 11</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ai-innovation-fuels-abbyys-financial-triumph-annual-revenue-soars-by-60-featured-in-idc-worldwide-marketscape-ranking/"><u>AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60%% - Featured in IDC Worldwide MarketScape Ranking</u></a></li>
-<li><a href="https://win-answers.techidaily.com/arma-n-assemble-resolving-crash-errors-with-expert-hacks/"><u>Arma N' Assemble: Resolving Crash Errors with Expert Hacks</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-consent-management-with-cookiebot-enhancing-data-privacy-compliance/"><u>Automated Consent Management with Cookiebot: Enhancing Data Privacy Compliance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automatisation-des-factures-chez-pepsico-grace-a-loutil-de-reconnaissance-optique-numerique-dabbyy-flexicapture/"><u>Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-proficiency-in-seconds-tailor-made-skillset-strategies-for-rapid-development/"><u>Boost Proficiency in Seconds - Tailor-Made Skillset Strategies for Rapid Development</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-traffic-with-cookiebot-advanced-marketing-automation-solutions/"><u>Boost Traffic with Cookiebot: Advanced Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-conversions-with-our-cookiebot-technology/"><u>Boost Your Conversions with Our Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/celebrating-smart-automation-abbyys-proclamation-of-september-as-the-official-month/"><u>Celebrating Smart Automation: ABBYY's Proclamation of September as the Official Month</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-empowerment-elevate-your-websites-functionality-today/"><u>Cookiebot Empowerment: Elevate Your Website's Functionality Today</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-automation-and-personalization-for-enhanced-user-engagement/"><u>Cookiebot-Driven Automation and Personalization for Enhanced User Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-data-collection-enhance-your-websites-analytics/"><u>Cookiebot-Driven Data Collection: Enhance Your Website's Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-visitor-tracking-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-seo-and-user-engagement/"><u>Cookiebot-Enabled: Enhancing Your Website's SEO & User Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience-with-seamless-personalization/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience with Seamless Personalization</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/cookiebot-enhanced-user-experience-the-key-to-successful-web-traffic/"><u>Cookiebot-Enhanced User Experience: The Key to Successful Web Traffic</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/cyberpunk-2077-evaluation-a-work-of-art-with-significant-imperfections/"><u>Cyberpunk 2077 Evaluation: A Work of Art with Significant Imperfections</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elgoog-decoded-insights-into-googles-quirky-doppelganger-and-its-features-compared-to-the-search-giant/"><u>ElgooG Decoded: Insights Into Google's Quirky Doppelganger and Its Features Compared to The Search Giant</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-restore-a-bricked-honor-90-pro-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Honor 90 Pro Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-use-special-features-virtual-location-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Oppo Find X6 Pro? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-choices-for-next-gen-vr-accessories-unveiled/"><u>In 2024, Top Choices for Next-Gen VR Accessories Unveiled</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/lintegration-de-lia-dabbyy-par-les-solutions-m-files-revolutionner-les-processus-documentaires/"><u>L'intégration De L'IA D'Abbyy Par Les Solutions M-Files : Révolutionner Les Processus Documentaires</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-the-art-of-web-pages-boost-your-online-presence/"><u>Mastering the Art of Web Pages: Boost Your Online Presence</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/maximizing-the-impact-the-art-of-using-whiteboards-on-zoom/"><u>Maximizing the Impact  The Art of Using Whiteboards on Zoom</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimize-with-cookiebot-a-leap-forward-in-personalized-marketing/"><u>Optimize With Cookiebot: A Leap Forward in Personalized Marketing</u></a></li>
-<li><a href="https://extra-support.techidaily.com/rapid-photo-reader-for-windows-users-for-2024/"><u>Rapid Photo Reader for Windows Users for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-web-presence-using-cutting-edge-cookiebot-technology/"><u>Revolutionize Your Web Presence Using Cutting-Edge CookieBot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/tout-sur-lintegration-de-la-gestion-numerisation-et-traitement-automatisee-de-documents-methodologie-en-5-etapes-par-abbyy/"><u>Tout Sur L'Intégration De La Gestion Numérisation Et Traitement Automatisée De Documents - Méthodologie en 5 Étapes Par ABBYY</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unleashing-your-creativity-in-podcast-naming-a-comprehensive-guide-plus-examples-for-2024/"><u>Unleashing Your Creativity in Podcast Naming  A Comprehensive Guide + Examples for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-ignite-your-passion-through-top-tiktok-personalities-for-2024/"><u>[Updated] Ignite Your Passion Through Top TikTok Personalities for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-smart-shopping-top-7-mirrorless-cameras-under-1000/"><u>[Updated] Smart Shopping Top 7 Mirrorless Cameras Under $1,000</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transforming-ideas-into-visual-stories-on-facebook-reels/"><u>[Updated] Transforming Ideas Into Visual Stories on Facebook Reels</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-srt-optimization-the-ultimate-performance-boosters-for-computers/"><u>2024 Approved SRT Optimization The Ultimate Performance Boosters for Computers</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-and-m-files-bolster-synergistic-alliance/"><u>Abbyy & M-Files Bolster Synergistic Alliance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-innovates-at-tech-summit-unveiling-the-top-7-smart-scanning-breakthroughs/"><u>ABBYY Innovates at Tech Summit: Unveiling the Top 7 Smart Scanning Breakthroughs</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-upgrades-sdk-to-offer-immediate-capture-capabilities-for-faster-data-processing/"><u>ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/how-to-encrypt-decrypt-and-recover-mac-hard-drive/"><u>How to Encrypt, Decrypt and Recover Mac Hard Drive?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-poco-m6-pro-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Poco M6 Pro 5G FRP Bypass</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-your-game-on-the-asus-vg245h-the-ultimate-gamers-screen/"><u>Master Your Game on the Asus VG245H - The Ultimate Gamer's Screen</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/strategies-to-address-sibling-printer-unresponsiveness/"><u>Strategies to Address Sibling Printer Unresponsiveness</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
 </ul></div>
+

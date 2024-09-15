@@ -1,18 +1,12 @@
 ---
 title: "How McDonald's Employs ABBYY OCR Tech in Their Mobile App: Insights From the Official ABBYY Blog"
-date: 2024-09-08T23:42:08.938Z
-updated: 2024-09-09T23:42:08.938Z
+date: 2024-09-13T23:38:19.070Z
+updated: 2024-09-14T22:35:31.359Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a01205544ff8168a67a8bfa126c67a299939543e9188165b03ba61640e3fc085.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How McDonald's Employs ABBYY OCR Tech in Their Mobile App: Insights From the Official ABBYY Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -23,38 +17,14 @@ January 15, 2015
 
 ![abbyy cloud ocr sdk | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/28766/ocrsdk-visual-default.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 McDonald’s in Germany launched a special promotion during the FIFA World Cup in Brazil: By sending the unique code, which was printed on his cup or food packaging, each McDonald’s customer had the opportunity to win a valuable prize. To make the data entry more convenient for the participants the company offered a possibility to photograph the code with a mobile phone instead of entering it manually. To enable this, the McDonald’s creative agency Razorfish developed a special app that used the ABBYY Cloud OCR SDK for reading out the individual codes and sending it directly to the database for the lottery.
 
 ![screenshot-90-mcdonalds_450px](https://static1.abbyy.com/abbyycommedia/25807/screenshot-90-mcdonalds_450px-300x201.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![140512_08_worldcup_ios_wf_09_submit_code_50_240px](https://static1.abbyy.com/abbyycommedia/25808/140512_08_worldcup_ios_wf_09_submit_code_50_240px-169x300.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Customer Experience](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -109,8 +79,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -120,46 +88,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-nintendo-switch-prime-capture-experience/"><u>[New] 2024 Approved  Nintendo Switch  Prime Capture Experience</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-attention-hack-building-an-alluring-puzzle-feed-for-2024/"><u>[Updated] Instagram Attention Hack  Building an Alluring Puzzle Feed for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-jujutsu-kaisens-impact-the-tiktok-challenge-perspective/"><u>[Updated] Jujutsu Kaisen's Impact  The TikTok Challenge Perspective</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-optimizing-your-workflow-with-bandicams-screen-recorder-features-for-2024/"><u>[Updated] Optimizing Your Workflow with Bandicam’s Screen Recorder Features for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-unbeatable-windows-chat-providers-3-1-ranked-for-2024/"><u>[Updated] Unbeatable Windows Chat Providers, #3-#1 Ranked for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-channel-upgrade-the-beginners-roadmap-to-video-mastery/"><u>2024 Approved  Channel Upgrade  The Beginner's Roadmap to Video Mastery</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-groups-latest-update-insights-from-ulf-persson-ceo-regarding-the-current-covid-19-pandemic-breaking-news/"><u>ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-lance-5-amelioration-avec-la-fonctionnalite-integree-de-mining-des-taches/"><u>ABBYY Lance 5 : Amélioration Avec La Fonctionnalité Intégrée De Mining Des Tâches</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-marketing-optimization-the-role-of-advanced-tracking-technologies-like-cookiebot/"><u>Automated Marketing Optimization: The Role of Advanced Tracking Technologies Like Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-your-digital-presence-with-cookiebot-technology/"><u>Boosting Your Digital Presence with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-boost-your-sites-traffic-efficiently/"><u>Cookiebot-Driven Success: Boost Your Site's Traffic Efficiently</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-websites-engagement-with-advanced-analytics/"><u>Cookiebot-Enabled Site: Enhance Your Website's Engagement with Advanced Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724313333073-cookiebot-enabled-enhance-your-websites-personalization-and-analytics/"><u>Cookiebot-Enabled: Enhance Your Website's Personalization & Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-secret-ingredient-for-supercharging-your-site-performance/"><u>Cookiebot: The Secret Ingredient for Supercharging Your Site Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/crafting-impactful-digital-content-strategies-for-page-excellence/"><u>Crafting Impactful Digital Content: Strategies for Page Excellence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discover-the-scope-of-abbyys-technological-impact-annual-ocr-conversion-statistics-for-2017/"><u>Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discovering-cutting-edge-innovations-the-intersection-of-ai-and-process-mining-today/"><u>Discovering Cutting-Edge Innovations: The Intersection of AI and Process Mining Today</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-driver-update-procedures-for-the-lenovo-t450-expert-tips-and-tricks/"><u>Effortless Driver Update Procedures for the Lenovo T450: Expert Tips & Tricks</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-site-visits-experience-the-benefits-of-cookiebot-powered-marketing-solutions/"><u>Elevate Your Site Visits - Experience the Benefits of Cookiebot Powered Marketing Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-website-performance-with-cookiebot-technology/"><u>Enhanced Website Performance with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-assistance-with-abbyys-latest-innovation-the-new-mobile-capture-sdk-transforming-the-way-customers-experience-technology/"><u>Enhancing Digital Assistance with ABBYY's Latest Innovation: The New Mobile Capture SDK - Transforming the Way Customers Experience Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-footprints-using-cookiebot-solutions-skyrocket-your-web-visibility/"><u>Enhancing Digital Footprints Using Cookiebot Solutions: Skyrocket Your Web Visibility</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/erweiterte-texterfassungsfunktionen-in-echtzeit-von-abbyy-ein-leistungsfahigeres-kundenerlebnis-im-digitalen-raum/"><u>Erweiterte Texterfassungsfunktionen in Echtzeit Von ABBYY: Ein Leistungsfähigeres Kundenerlebnis Im Digitalen Raum</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-superior-site-personalization-with-our-cookiebot-integration/"><u>Experience Superior Site Personalization with Our Cookiebot Integration</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-abbyys-findings-the-future-landscape-of-cognitive-automation-solutions/"><u>Exploring ABBYY's Findings: The Future Landscape of Cognitive Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-the-power-of-cookiebot-elevate-seo-and-user-experience-on-your-website/"><u>Harnessing the Power of Cookiebot: Elevate SEO and User Experience on Your Website</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-process-data-optimization-fuels-improved-rpa-outcomes-perspectives-by-abbyy-team/"><u>How Process Data Optimization Fuels Improved RPA Outcomes - Perspectives by ABBYY Team</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-on-your-iphone-14-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID On Your iPhone 14</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-stop-the-bluescreen-error-due-to-cmusbdacsys-malfunction-in-windows-os/"><u>How to Stop the Bluescreen Error Due to 'CMUSBDAC.sys' Malfunction in Windows OS</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-honor-90-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Honor 90 Location Settings | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Xiaomi 13T Pro? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/innovative-receipt-management-with-ai-technology-from-abbyy-streamlined-efficiency-for-businesses/"><u>Innovative Receipt Management with AI Technology From ABBYY - Streamlined Efficiency for Businesses</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leveraging-cookiebot-technology-for-advanced-website-personalization-and-analytics/"><u>Leveraging Cookiebot Technology for Advanced Website Personalization & Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-challenges-common-missteps-in-corporate-ai-integration-and-how-to-avoid-them/"><u>Navigating the Challenges: Common Missteps in Corporate AI Integration & How to Avoid Them</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-bookkeeping-strategies-with-abbyys-advanced-content-intelligence-tools/"><u>Optimizing Your Bookkeeping Strategies with ABBYY's Advanced Content Intelligence Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/pioneering-intelligence-driven-tools-to-revolutionize-your-operations/"><u>Pioneering Intelligence-Driven Tools to Revolutionize Your Operations</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/shaping-tomorrows-businesses-with-advanced-large-language-models/"><u>Shaping Tomorrow's Businesses with Advanced Large Language Models</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solution-guide-how-to-repair-non-functional-mic-on-steelseries-arctis-pro/"><u>Solution Guide: How to Repair Non-Functional Mic on SteelSeries Arctis Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-5-strategies-for-enhanced-law-firm-document-control-with-abbyy/"><u>Top 5 Strategies for Enhanced Law Firm Document Control with ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/vivo-g2-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Vivo G2 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-find-hotspots-for-online-video-dialogue/"><u>[New] 2024 Approved Find Hotspots for Online Video Dialogue</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-hot-off-the-press-todays-most-viewed-videos-on-social-platforms/"><u>[New] Hot Off the Press Today’s Most Viewed Videos on Social Platforms</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-purifying-audio-from-films-and-movies-cost-effective-methods/"><u>[New] In 2024, Purifying Audio From Films and Movies Cost-Effective Methods</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-xiaomi-13-ultra-easily-by-drfone-android/"><u>In 2024, How To Unlock a Xiaomi 13 Ultra Easily?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimierung-der-datenaufnahme-wie-spezielle-ki-die-prozesse-revolutioniert-insights-aus-dem-abbey-blog/"><u>Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-for-superior-data-collection-and-analysis/"><u>Optimized with Cookiebot Technology for Superior Data Collection and Analysis</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimizing-your-website-mastering-the-art-of-effective-pages/"><u>Optimizing Your Website: Mastering the Art of Effective Pages</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-vivo-y56-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Vivo Y56 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/rebooting-baseline-configurations-and-improving-time-management-techniques-insights-by-abbyy-professionals/"><u>Rebooting Baseline Configurations & Improving Time Management Techniques - Insights by ABBYY Professionals</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/youtube-shorts-success-top-10-steps-to-stand-out-for-2024/"><u>Youtube Shorts Success - Top 10 Steps to Stand Out for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

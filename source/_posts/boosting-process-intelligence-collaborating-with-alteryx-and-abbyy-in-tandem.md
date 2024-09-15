@@ -1,40 +1,22 @@
 ---
 title: "Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem"
-date: 2024-09-08T23:42:09.905Z
-updated: 2024-09-09T23:42:09.905Z
+date: 2024-09-09T16:15:08.326Z
+updated: 2024-09-14T17:09:50.527Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f244a4b607ff1304250df827a08b69767edd00f8e4433a759d16a32700c891a6.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY gibt neue Partnerschaft mit Alteryx bekannt
 
 6\. Oktober 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Die Integration von ABBYYs Process Intelligence in die analytische Prozessautomatisierungsplattform von Alteryx beschleunigt wichtige digitale Transformationsinitiativen_
 
 ABBYY, ein Unternehmen für digitale Intelligenz, hat eine neue Partnerschaft mit Alteryx, Inc. geschlossen, einem führenden Unternehmen im Bereich der analytischen Prozessautomatisierung (APA™). Die analytische Prozessautomatisierung innerhalb der Alteryx Platform™ wird nun mit Prozessintelligenz-Fähigkeiten ergänzt.
@@ -79,8 +61,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -90,55 +70,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-finding-the-perfect-phrases-for-gamers-videos/"><u>[New] 2024 Approved  Finding the Perfect Phrases for Gamers' Videos</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-cheapest-facetime-on-android-highest-rated-apps/"><u>[New] Cheapest FaceTime on Android  Highest Rated Apps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-investigating-authenticitys-role-in-social-media-selfie-presentation-for-2024/"><u>[New] Investigating Authenticity’s Role in Social Media Selfie Presentation for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-optimizing-content-sharing-from-twitters-to-snaps/"><u>[Updated] Optimizing Content Sharing  From Twitters to Snaps</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-screen-capture-power-play-apowsort-reviewed-and-comparisons-made-for-2024/"><u>[Updated] Screen Capture Power Play  Apowsort Reviewed & Comparisons Made for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-share-the-moment-how-to-post-on-twitter-for-2024/"><u>[Updated] Share the Moment  How To Post on Twitter for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-accelerated-learning-quick-start-to-becoming-a-lut-expert/"><u>2024 Approved  Accelerated Learning  Quick Start to Becoming a LUT Expert</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-lighten-your-sentence-with-satire-ranking-funniest-facebook-detentions/"><u>2024 Approved  Lighten Your Sentence with Satire  Ranking Funniest Facebook Detentions</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-and-m-files-bolster-synergistic-alliance/"><u>Abbyy & M-Files Bolster Synergistic Alliance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-innovates-at-tech-summit-unveiling-the-top-7-smart-scanning-breakthroughs/"><u>ABBYY Innovates at Tech Summit: Unveiling the Top 7 Smart Scanning Breakthroughs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-upgrades-sdk-to-offer-immediate-capture-capabilities-for-faster-data-processing/"><u>ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/authentification-des-id-avec-trustid-et-abyeocr-un-passage-au-cloud-pour-la-validation-securisee/"><u>Authentification Des ID Avec TrustID Et ABYEOCR : Un Passage Au Cloud Pour La Validation Sécurisée</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/avoidance-and-remedy-tackling-windows-10-photos-viewer-glitches/"><u>Avoidance and Remedy  Tackling Windows 10 Photos Viewer Glitches</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-3-motorola-moto-g84-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Motorola Moto G84 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-analytics-with-our-cookiebot-integration-solutions/"><u>Boost Analytics with Our Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-website-traffic-with-cutting-edge-cookiebot-technology/"><u>Boost Your Website Traffic with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-lintelligence-artificielle-renforce-la-motivation-des-collaborateurs-gain-dacces-a-linformation-dans-les-rapports/"><u>Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-web-personalization-solutions/"><u>Cookiebot-Driven Web Personalization Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-features-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Features: Enhancing User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-marketing-automation-solutions/"><u>Cookiebot-Enabled Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-solutions-optimize-your-online-experience/"><u>Cookiebot-Enabled Solutions: Optimize Your Online Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Enhancing User Experience with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-with-expertly-managed-cookies/"><u>Cookiebot-Enhanced: Boost Your Site's Performance with Expertly Managed Cookies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/efficient-lead-generation-using-the-cookiebot-platform/"><u>Efficient Lead Generation Using the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-user-engagement-using-the-innovative-power-of-cookiebot-analytics-solutions/"><u>Elevate User Engagement Using the Innovative Power of Cookiebot Analytics Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-digital-campaigns-using-the-power-of-cookiebot/"><u>Elevate Your Digital Campaigns Using the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/empower-your-site-with-cookiebot-advanced-analytics-and-custom-user-experience-features/"><u>Empower Your Site with Cookiebot: Advanced Analytics & Custom User Experience Features</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-document-management-efficiency-the-new-wave-of-sharp-mfps-featuring-abbyy-ocr-technology-as-showcased-on-abbyys-expert-blog/"><u>Enhance Document Management Efficiency: The New Wave of Sharp MFPs Featuring ABBYY OCR Technology, as Showcased on ABBYY's Expert Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-cookiebots-advanced-tracking-technology/"><u>Enhance User Experience with Cookiebot's Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-accessibility-how-texthelp-software-and-abbyy-assist-individuals-with-dyslexia/"><u>Enhancing Accessibility: How Texthelp Software & ABBYY Assist Individuals with Dyslexia</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-website-visitors-the-role-of-cookiebot-technology/"><u>Enhancing Website Visitors: The Role of Cookiebot Technology</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/expert-analysis-white-atx-mastery-with-five-m2-slots-the-maxsun-terminator-z790m-d5-ice-motherboard-unleashed/"><u>Expert Analysis: White ATX Mastery with Five M.2 Slots – The Maxsun Terminator Z790M D5 Ice Motherboard Unleashed</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/expert-guide-to-implementing-advanced-ai-in-abbyy-software-fusing-machine-learning-and-natural-language-processing-techniques-for-superior-results/"><u>Expert Guide to Implementing Advanced AI in ABBYY Software: Fusing Machine Learning and Natural Language Processing Techniques for Superior Results</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploiter-au-mieux-le-potentiel-dune-entreprise-double-numerique-et-modelisation-procedurale/"><u>Exploiter Au Mieux Le Potentiel D'une Entreprise : Double Numérique Et Modélisation Procédurale</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fortschrittliche-texterfassung-mit-machine-learning-aktuelle-innovationen-von-abbyy/"><u>Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-elevate-your-websites-seo-and-conversion-rates/"><u>Harness the Power of Cookiebot: Elevate Your Website's SEO & Conversion Rates!</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-dramatic-lighting-in-hdr-portrait-photography/"><u>In 2024, Dramatic Lighting in HDR Portrait Photography</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-time-travelers-treasure-a-look-at-goofy-movie/"><u>In 2024, Time Traveler’s Treasure  A Look at 'Goofy Movie'</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/instantaneous-pro-thumbnail-creation-valorant-edition/"><u>Instantaneous Pro Thumbnail Creation - Valorant Edition</u></a></li>
-<li><a href="https://extra-support.techidaily.com/join-the-meme-revolution-expert-tips-for-the-metaverse-for-2024/"><u>Join the Meme Revolution  Expert Tips for the Metaverse for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/kddiabbyy-ocr/"><u>KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-obstacles-in-customer-onboarding-key-drivers-and-critical-issues-revealed-through-survey-data/"><u>Navigating the Obstacles in Customer Onboarding: Key Drivers and Critical Issues Revealed Through Survey Data</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/new-accessible-reading-solution-abbyy-collaborates-with-amedia-for-an-ocr-app-designed-for-the-visually-impaired-community/"><u>New Accessible Reading Solution: ABBYY Collaborates with Amedia for an OCR App Designed for the Visually Impaired Community</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-online-presence-mastering-effective-pages/"><u>Optimizing Your Online Presence: Mastering Effective Pages</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-american-supply-network-in-2020-lessons-from-reuters-panel-on-efficient-automation-techniques/"><u>Revolutionize Your American Supply Network in 2020: Lessons From Reuter's Panel on Efficient Automation Techniques</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50%% Expected Within Two Years, Says TechTarget</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-epic-creators-colloquium/"><u>The Epic Creator's Colloquium</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/transforming-storytelling-into-cinematic-art/"><u>Transforming Storytelling Into Cinematic Art</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-delving-into-vidmas-toolkit-for-digital-recording-for-2024/"><u>[New] Delving Into Vidma’s Toolkit for Digital Recording for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-in-depth-analytics-integration-boosts-business-intelligence-in-abbyy-flexicapture-systems/"><u>1. In-Depth Analytics Integration Boosts Business Intelligence in ABBYY FlexiCapture Systems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1724312931265-abbyy/"><u>先端的な機械学習：ビジネスにおける情報理解の新たな要請 - ABBYYの革新技術</u></a></li>
+<li><a href="https://network-issues.techidaily.com/dimming-dilemma-dispersed-in-portable-unit/"><u>Dimming Dilemma Dispersed in Portable Unit</u></a></li>
+<li><a href="https://fox-that.techidaily.com/error-14-on-ios-devices-a-complete-fixing-strategy-for-iphone-users/"><u>Error 14 on iOS Devices - A Complete Fixing Strategy for iPhone Users</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-apple-iphone-11-pro-max-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My Apple iPhone 11 Pro Max After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-from-apple-iphone-6-by-drfone-ios/"><u>How to Bypass iCloud Lock from Apple iPhone 6</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-explore-blurring-techniques-best-app-picks/"><u>In 2024, Explore Blurring Techniques Best App Picks</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/rebooting-baseline-configurations-and-improving-time-management-techniques-insights-by-abbyy-professionals/"><u>Rebooting Baseline Configurations & Improving Time Management Techniques - Insights by ABBYY Professionals</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/redesigning-kyc-protocols-for-enhanced-compliance-expert-tips-from-the-abbyy-thought-leaders/"><u>Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionize-your-online-advertising-strategy-like-a-pro-using-techniques-similar-to-cookiebots-methodology/"><u>Revolutionize Your Online Advertising Strategy Like a Pro Using Techniques Similar to Cookiebot's Methodology</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/seamlessly-fuse-videos-using-blend-modes/"><u>Seamlessly Fuse Videos Using Blend Modes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transforming-accounts-payable-how-iguras-integration-with-abbyy-enhances-efficiency-for-businesses/"><u>Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unlocking-cost-reduction-with-process-mining-a-case-study-on-saving-millions-from-the-customer-angle/"><u>Unlocking Cost Reduction with Process Mining: A Case Study on Saving Millions From the Customer Angle</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-drivers-with-windows-device-manager-in-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning drivers with Windows Device Manager in Windows 11 & 10 & 7</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

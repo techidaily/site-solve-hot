@@ -1,46 +1,22 @@
 ---
 title: Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test
-date: 2024-09-08T23:42:10.272Z
-updated: 2024-09-09T23:42:10.272Z
+date: 2024-09-08T16:38:35.814Z
+updated: 2024-09-14T22:11:35.599Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee536102fa45e6319038a39015f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test
 
 Bericht 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Im 6\. Jahr in Folge: Everest Group zählt ABBYY in ihrem „Intelligent Document Processing Products PEAK Matrix™ Assessment“ erneut zu den Marktführern
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### ABBYY wurde im Intelligent Document Processing (IDP) Products PEAK Matrix® Assessment 2024 der Everest Group erneut als als führender Anbieter genannt. 
 
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY ist mit ABBYY Vantage, der branchenweit einzigen Low-Code/No-Code-IDP-Plattform, die sich in jede intelligente Automatisierungsplattform integrieren lässt, aufgrund der Stärken in den Kategorien Vision & Capability und Market Impact hervorragend positioniert. Vantage bietet Unternehmen die Möglichkeit, strukturierte und unstrukturierte Dokumente mithilfe vorgefertigter KI-Modelle zu verarbeiten, die auf dem ABBYY Marketplace angeboten werden und innerhalb weniger Minuten mit einem hohen Maß an Genauigkeit einsatzbereit sind. 
 
 Unternehmen in aller Welt verlassen sich auf das IDP PEAK Matrix® Assessment der Everest Group, wenn sie die besten IDP-Lösungen finden wollen, die KI, kognitive Fähigkeiten und generative KI nutzen, um den größten Wert und Sinngehalt aus den in Geschäftsdokumenten enthaltenen Daten zu ziehen. Unternehmen, die bei der Bewertung besonders gut abschneiden, zeichnen sich durch kontinuierliche Investitionen und Innovationen auf dem Feld von IDP-Funktionen aus, beispielsweise bei der Erweiterung von vorgefertigten Modellen und OOTB-Paketlösungen, insbesondere für branchenspezifische Anwendungsfälle und Dokumenttypen. 
@@ -51,12 +27,6 @@ ABBYYs Vision von zweckgebundener KI ermöglicht es Unternehmen, die besten KI-M
 
 _**\-Vaibhav Bansal, Vice President, Everest Group**_ 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY. 
 
 [Bericht lesen](https://global.abbyy.com/hubfs/documents/content/report-everest-group-idp-products-peak-matrix-assessment-2024-en.pdf "Read the report") 
@@ -119,8 +89,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,38 +98,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-obs-studio-basics-full-guide-to-ps4-game-recording/"><u>[New] 2024 Approved  Obs Studio Basics - Full Guide to PS4 Game Recording</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-x-studio-audio-pc-app-for-2024/"><u>[New] X-Studio Audio PC App for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-automate-your-website-with-efficient-cookiebot-power-solutions/"><u>1. Automate Your Website with Efficient Cookiebot Power Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2021-kmworld-readers-favorite-titles-unveiled/"><u>2021 KMWorld Reader's Favorite Titles Unveiled</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724312830505-uipathabbyy-flexicapture/"><u>効率的な支払処理手法：UIPath・ABBYY FlexiCaptureのパワーコンビによる自動化アップ</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automate-your-digital-campaigns-with-precision-powered-by-advanced-cookiebot-technology/"><u>Automate Your Digital Campaigns with Precision - Powered by Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-cookiebot-enhancing-your-sites-personalization/"><u>Automated User Tracking with Cookiebot: Enhancing Your Site's Personalization</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-10-virtual-reality-headgear-for-smartphones-for-2024/"><u>Best 10 Virtual Reality Headgear for Smartphones for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-automation-enhance-your-sites-seo/"><u>Cookiebot-Driven Automation: Enhance Your Site's SEO</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-insights-for-website-optimization/"><u>Cookiebot-Driven Insights for Website Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-stories-unleashing-marketing-potential-through-advanced-analytics/"><u>Cookiebot-Driven Success Stories: Unleashing Marketing Potential Through Advanced Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-elevate-your-website-engagement-and-rankings/"><u>Cookiebot-Driven Success: Elevate Your Website Engagement and Rankings</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-website-optimization-unlocking-success/"><u>Cookiebot-Driven Website Optimization: Unlocking Success</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/cost-effective-intelligence-leveraging-the-best-of-copilot-and-turbo/"><u>Cost-Effective Intelligence: Leveraging the Best of Copilot & Turbo</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cross-device-app-development-with-abbyy-ocr-streamlining-ux-testing-and-robotics-qa/"><u>Cross-Device App Development with ABBYY OCR: Streamlining UX Testing & Robotics QA</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-user-experience-with-automated-tracking-inspired-by-cookiebot/"><u>Customized User Experience with Automated Tracking: Inspired by Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/driven-by-advanced-data-gathering-technology-from-cookiebot/"><u>Driven by Advanced Data-Gathering Technology From Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effective-strategies-for-claiming-due-payments-a-guide-for-medical-practices-and-hospital-networks/"><u>Effective Strategies for Claiming Due Payments: A Guide for Medical Practices and Hospital Networks</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-solutions/"><u>Enhance Web Analytics with the Power of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-traffic-conversion-with-cookiebot-technology/"><u>Enhanced Traffic Conversion with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-campaigns-through-innovative-analytic-tools-beyond-traditional-cookies/"><u>Enhancing Digital Campaigns Through Innovative Analytic Tools – Beyond Traditional Cookies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-online-engagement-with-cookiebot-technology-solutions/"><u>Enhancing Online Engagement with Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-12-pro-max-withwithout-sim-card-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 Pro Max with/without SIM Card</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-apple-iphone-13-mini-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track WhatsApp Messages on Apple iPhone 13 mini Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-ignite-creativity-with-the-best-android-drawing-app-selection/"><u>In 2024, Ignite Creativity with the Best Android Drawing App Selection</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/in-depth-analysis-and-interview-decoding-process-intelligence-through-the-lens-of-the-automation-fabric-a-conversation-with-forrester-experts/"><u>In-Depth Analysis & Interview: Decoding Process Intelligence Through The Lens of the Automation Fabric - A Conversation With Forrester Experts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/lintegration-de-lia-dabbyy-par-les-solutions-m-files-revolutionner-les-processus-documentaires/"><u>L'intégration De L'IA D'Abbyy Par Les Solutions M-Files : Révolutionner Les Processus Documentaires</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-the-art-of-web-pages-boost-your-online-presence/"><u>Mastering the Art of Web Pages: Boost Your Online Presence</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-in-2024-harmonizing-hear-and-see-innovative-approaches-to-auto-synchronize-audio-with-video/"><u>New In 2024, Harmonizing Hear and See Innovative Approaches to Auto-Synchronize Audio with Video</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimize-with-cookiebot-a-leap-forward-in-personalized-marketing/"><u>Optimize With Cookiebot: A Leap Forward in Personalized Marketing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-web-presence-using-cutting-edge-cookiebot-technology/"><u>Revolutionize Your Web Presence Using Cutting-Edge CookieBot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/tout-sur-lintegration-de-la-gestion-numerisation-et-traitement-automatisee-de-documents-methodologie-en-5-etapes-par-abbyy/"><u>Tout Sur L'Intégration De La Gestion Numérisation Et Traitement Automatisée De Documents - Méthodologie en 5 Étapes Par ABBYY</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instagrams-selfie-codex-decoding-image-integrity/"><u>[New] 2024 Approved Instagram's Selfie Codex Decoding Image Integrity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-deciphering-youtubes-new-earning-standards/"><u>[New] In 2024, Deciphering YouTube's New Earning Standards</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-website-visitors-the-role-of-cookiebot-technology/"><u>Enhancing Website Visitors: The Role of Cookiebot Technology</u></a></li>
+<li><a href="https://os-tips.techidaily.com/essential-insights-you-need-to-know-about-buying-icloud-storage-read-up-first/"><u>Essential Insights You Need to Know About Buying iCloud Storage: Read Up First!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/expert-guide-to-implementing-advanced-ai-in-abbyy-software-fusing-machine-learning-and-natural-language-processing-techniques-for-superior-results/"><u>Expert Guide to Implementing Advanced AI in ABBYY Software: Fusing Machine Learning and Natural Language Processing Techniques for Superior Results</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploiter-au-mieux-le-potentiel-dune-entreprise-double-numerique-et-modelisation-procedurale/"><u>Exploiter Au Mieux Le Potentiel D'une Entreprise : Double Numérique Et Modélisation Procédurale</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fortschrittliche-texterfassung-mit-machine-learning-aktuelle-innovationen-von-abbyy/"><u>Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-elevate-your-websites-seo-and-conversion-rates/"><u>Harness the Power of Cookiebot: Elevate Your Website's SEO & Conversion Rates!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-asus-rog-phone-8-pro-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Asus ROG Phone 8 Pro Location by Number | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-vivo-t2x-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Vivo T2x 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/imovie-trimming-query-the-reason-behind-video-cropping/"><u>IMovie Trimming Query The Reason Behind Video Cropping</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-comprehensive-assessment-of-frozen-treats-on-display/"><u>In 2024, Comprehensive Assessment of Frozen Treats on Display</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/kddiabbyy-ocr/"><u>KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-x-fold-2-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from X Fold 2</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

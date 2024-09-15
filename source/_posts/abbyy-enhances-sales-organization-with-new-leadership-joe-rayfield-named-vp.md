@@ -1,40 +1,22 @@
 ---
 title: "ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP"
-date: 2024-09-08T23:42:10.500Z
-updated: 2024-09-09T23:42:10.500Z
+date: 2024-09-10T21:08:37.777Z
+updated: 2024-09-14T16:12:23.597Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fb8053ac7214659fa378f042df998d4365da978dd3a640439d6ee68045b0a185.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Streamlines Sales Structure, Appoints Joe Rayfield Vice President
 
 February 18, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _2020 kicks off a new decade and a new era at ABBYY._ 
 
   
@@ -76,8 +58,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -87,55 +67,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-echo-of-you-customizing-your-speak-on-reels-and-stories/"><u>[New] In 2024, The Echo of You  Customizing Your Speak on Reels & Stories</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-your-ultimate-checklist-for-channel-buying-success/"><u>[New] Your Ultimate Checklist for Channel Buying Success</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-evaluating-live-stream-giants-twitch-and-youtube/"><u>[Updated] Evaluating Live Stream Giants  Twitch & YouTube</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-harmony-hub-capture-store-and-review-sounds-for-2024/"><u>[Updated] Harmony Hub  Capture, Store & Review Sounds for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-snapspectacular-high-quality-windowsmac-screenshots/"><u>[Updated] In 2024, SnapSpectacular  High-Quality Windows/Mac Screenshots</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-outstanding-unlimited-space-service-index/"><u>[Updated] Outstanding Unlimited Space Service Index</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-perfect-your-iphone-photo-mosaic-skills/"><u>[Updated] Perfect Your iPhone Photo Mosaic Skills</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-simplifying-video-editing-on-iphone-trim-and-adjust-sizes/"><u>[Updated] Simplifying Video Editing on iPhone  Trim & Adjust Sizes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-social-media-sensations-tiktoks-top-10-tweets/"><u>[Updated] Social Media Sensations  TikTok's Top 10 Tweets</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-conclusion-to-your-youtube-journey/"><u>[Updated] The Ultimate Conclusion to Your YouTube Journey</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-smile-sob-and-snicker-with-these-ig-meme-masters-of-humor/"><u>2024 Approved  Smile, Sob and Snicker with These IG Meme Masters of Humor</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/amplify-windows-11-systray-with-scroll-lock-and-num-indicators/"><u>Amplify Windows 11 SysTray with Scroll Lock and Num Indicators</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comprehensive-guide-on-eula-notification-policies/"><u>Comprehensive Guide on EULA Notification Policies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-customization-enhancing-user-experience/"><u>Cookiebot-Driven Customization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-personalization-enhance-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhance Your Website's User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-boost-your-sites-potential/"><u>Cookiebot-Enhanced User Experience: Boost Your Site's Potential</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-smart-seo-tools/"><u>Cookiebot-Enhanced User Experience: Smart SEO Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-key-ingredient-in-your-seo-recipe/"><u>Cookiebot: The Key Ingredient in Your SEO Recipe</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customize-with-cookiebot-boost-engagement-and-growth-on-your-site/"><u>Customize with Cookiebot: Boost Engagement and Growth on Your Site</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-ad-targeting-with-the-advanced-technology-of-cookiebot/"><u>Customized Ad Targeting with the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/digital-preservation-with-abbyy-tools-at-the-core-of-south-koreas-archival-project/"><u>Digital Preservation with ABBYY Tools at the Core of South Korea's Archival Project</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/effortless-lexar-drive-integration-accelerated-driver-downloads-await/"><u>Effortless Lexar Drive Integration: Accelerated Driver Downloads Await!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-web-personalization-using-the-power-of-cookiebot-technology/"><u>Elevate Web Personalization Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-website-traffic-with-advanced-cookiebot-seo-solutions/"><u>Enhance Website Traffic with Advanced Cookiebot SEO Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-website-personalization-with-cookiebot-technology/"><u>Enhanced Website Personalization with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-creditor-management-with-shared-service-centers-integration-of-madsack-mediengruppe-sap-and-abbyy/"><u>Enhancing Creditor Management with Shared Service Centers - Integration of MADSACK Mediengruppe, SAP, and ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-user-privacy-with-cookiebots-advanced-tracking-solutions/"><u>Enhancing User Privacy with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/farm-fun-family-top-10-games-bringing-groups-of-friends-closer-to-farms-for-2024/"><u>Farm Fun Family  Top 10 Games Bringing Groups of Friends Closer to Farms for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/gagnez-un-avantage-decisif-en-finance-grace-a-notre-checklist-abbyy-les-cles-pour-reussir-sur-les-marches-financiers/"><u>Gagnez Un Avantage Décisif en Finance Grâce À Notre Checklist ABBYY - Les Clés Pour Réussir Sur Les Marchés Financiers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-automated-tracking-with-cookiebot-technology/"><u>Harness the Power of Automated Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-for-effective-online-marketing-campaigns/"><u>Harness the Power of Cookiebot for Effective Online Marketing Campaigns</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-reno-11-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Oppo Reno 11 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-to-delete-windowsold-in-windows-10-solved/"><u>How to Delete Windows.old in Windows 10 [Solved]</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-best-offline-audio-conversion-software/"><u>In 2024, Best Offline Audio Conversion Software</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-essential-mobile-games-for-leisurely-indulgence/"><u>In 2024, Essential Mobile Games for Leisurely Indulgence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/insightful-strategies-on-customer-knowledge-by-abbyy-presented-at-the-2017-aiim-conference/"><u>Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leading-innovations-in-voice-recognition-abbyy-laut-secures-everest-groups-2024-market-pinnacle-with-idp-peak-matrix-test/"><u>Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-the-power-of-cookiebot-for-advanced-user-experience-optimization/"><u>Leverage the Power of Cookiebot for Advanced User Experience Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/markus-pichler-head-of-sales-at-abbyy-europe-strategies-and-achievements/"><u>Markus Pichler - Head of Sales at ABBYY Europe: Strategies and Achievements</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-new-normal-how-and-why-cloud-it-investments-are-set-to-soar/"><u>Navigating the 'New Normal': How and Why Cloud IT Investments Are Set to Soar</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimierung-der-datenaufnahme-wie-spezielle-ki-die-prozesse-revolutioniert-insights-aus-dem-abbey-blog/"><u>Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-for-superior-data-collection-and-analysis/"><u>Optimized with Cookiebot Technology for Superior Data Collection and Analysis</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-website-mastering-the-art-of-effective-pages/"><u>Optimizing Your Website: Mastering the Art of Effective Pages</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/rebooting-baseline-configurations-and-improving-time-management-techniques-insights-by-abbyy-professionals/"><u>Rebooting Baseline Configurations & Improving Time Management Techniques - Insights by ABBYY Professionals</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/redesigning-kyc-protocols-for-enhanced-compliance-expert-tips-from-the-abbyy-thought-leaders/"><u>Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-online-advertising-strategy-like-a-pro-using-techniques-similar-to-cookiebots-methodology/"><u>Revolutionize Your Online Advertising Strategy Like a Pro Using Techniques Similar to Cookiebot's Methodology</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-pathway-to-free-final-cut-pro/"><u>The Pathway to Free Final Cut Pro</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-ultimate-guide-to-free-stunning-photographs-for-2024/"><u>The Ultimate Guide to Free, Stunning Photographs for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-the-ultimate-list-10-free-online-video-compression-tools/"><u>Updated In 2024, The Ultimate List 10 Free Online Video Compression Tools</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-fix-frozen-mobile-youtube-videos-on-multiple-devices/"><u>[New] In 2024, Fix Frozen Mobile YouTube Videos on Multiple Devices</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-high-fidelity-screen-recorder-for-windows-11/"><u>[New] In 2024, High-Fidelity Screen Recorder for Windows 11</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-best-5-digital-recorder-selects/"><u>[Updated] Best 5 Digital Recorder Selects</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-a-guide-to-conveniently-documenting-your-gaming-victories/"><u>[Updated] In 2024, A Guide to Conveniently Documenting Your Gaming Victories</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-netgear-nighthawk-x4-wi-fi-mesh-extender-seamless-network-expansion/"><u>Comprehensive Review of the Netgear Nighthawk X4 Wi-Fi Mesh Extender - Seamless Network Expansion</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/james-ritter-named-abbyys-new-cfo-strategic-leadership-in-finance/"><u>James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/leveraging-pitch-insights-for-successful-implementation-of-ai-driven-processes/"><u>Leveraging Pitch Insights for Successful Implementation of AI-Driven Processes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-medicine-with-the-cloud-how-digitalization-is-shaping-the-future-of-health-services/"><u>Revolutionizing Medicine with the Cloud: How Digitalization Is Shaping the Future of Health Services</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-your-medical-practice-enhancing-patient-care-through-abbyy-paperless-data-solutions/"><u>Transform Your Medical Practice: Enhancing Patient Care Through ABBYY Paperless Data Solutions</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

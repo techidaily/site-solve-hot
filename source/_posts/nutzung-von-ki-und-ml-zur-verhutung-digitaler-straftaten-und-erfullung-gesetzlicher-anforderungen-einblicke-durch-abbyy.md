@@ -1,54 +1,24 @@
 ---
 title: Nutzung Von KI Und ML Zur Verhütung Digitaler Straftaten Und Erfüllung Gesetzlicher Anforderungen – Einblicke Durch ABBYY
-date: 2024-09-08T23:42:09.611Z
-updated: 2024-09-09T23:42:09.611Z
+date: 2024-09-11T19:06:52.853Z
+updated: 2024-09-14T21:38:54.039Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/febc5e8eb723097c959ee0c4369a98c541397c828606f3e607457279dcc62863.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Nutzung Von KI Und ML Zur Verhütung Digitaler Straftaten Und Erfüllung Gesetzlicher Anforderungen – Einblicke Durch ABBYY
 
 E-Book
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Wie KI und ML Banken dabei helfen, Cyberkriminellen einen Schritt voraus zu sein
 
 ![eBook - Wie KI und ML Banken dabei helfen, Cyberkriminellen einen Schritt voraus zu sein | ABBYY](https://static1.abbyy.com/abbyycommedia/32232/01b-banking-on-intelligence-de-360x232.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Im Bankwesen sind die jährlichen Kosten für Cyberangriffe unter allen Branchen am höchsten – mehr als 18,3 Millionen US-Dollar pro Jahr und Unternehmen. Zwar kann die Einhaltung von KYC- und AML-Vorschriften Betrug und Diebstahl wirksam verhindern, doch müssen die Banken wachsam bleiben, um mit den sich schnell entwickelnden Methoden der Cyberkriminalität Schritt zu halten.
 
 Um ihre Produktivität zu erhöhen, setzen Finanzinstitute mehr und mehr auf Automatisierung, mobile Technologien und kontaktlose Interaktionen. Diese Maßnahmen können aber neue Schwachstellen schaffen, die sich Cyberkriminelle zunutze machen. Was können Finanzinstitute gegen die ständigen Angriffe unternehmen?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Jetzt herunterladen!
 
 Um raffinierte Verbrechen zu verhindern, braucht es raffinierte Maßnahmen. Digital Intelligence ist ein neuer Ansatz zur Verwendung der neuesten Technologien für künstliche Intelligenz und maschinelles Lernen, um Schlüsselfunktionen bereitzustellen, die Banken die nötigen Mittel an die Hand geben, um sich vor Betrug und anderen Gesetzesverstößen zu schützen.
@@ -59,30 +29,12 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 * Einblick zu bekommen, wie die Interaktion zwischen Menschen und Dokumenten abläuft
 * verdächtige Verhaltensmuster in Prozessen zu entdecken
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY.
 
 [E-Book lesen](https://digital.abbyy.com/hubfs/content/ebook-financialservices-banking-on-intelligence-de.pdf "E-Book lesen") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.
@@ -143,8 +95,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -154,40 +104,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-a-comprehensive-guide-to-smoothly-flip-movies-in-vlc/"><u>[New] A Comprehensive Guide to Smoothly Flip Movies in VLC</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-best-screen-replayer-for-high-impact-youtubing-experience/"><u>[Updated] 2024 Approved  Best Screen Replayer for High-Impact YouTubing Experience</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-ultimate-relaxation-top-10-mobile-idle-games/"><u>[Updated] 2024 Approved  Ultimate Relaxation  Top 10 Mobile Idle Games</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-decoding-youtubes-economic-strategy-the-rise-of-short-videos/"><u>[Updated] Decoding YouTube’s Economic Strategy  The Rise of Short Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-automate-your-website-with-efficient-cookiebot-power-solutions/"><u>1. Automate Your Website with Efficient Cookiebot Power Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2021-kmworld-readers-favorite-titles-unveiled/"><u>2021 KMWorld Reader's Favorite Titles Unveiled</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevating-your-gopro-videos-to-a-professional-standard/"><u>2024 Approved  Elevating Your GoPro Videos to a Professional Standard</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724312830505-uipathabbyy-flexicapture/"><u>効率的な支払処理手法：UIPath・ABBYY FlexiCaptureのパワーコンビによる自動化アップ</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automate-your-digital-campaigns-with-precision-powered-by-advanced-cookiebot-technology/"><u>Automate Your Digital Campaigns with Precision - Powered by Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-cookiebot-enhancing-your-sites-personalization/"><u>Automated User Tracking with Cookiebot: Enhancing Your Site's Personalization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-your-digital-presence-with-cookiebot-technology/"><u>Boosting Your Digital Presence with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-automation-enhance-your-sites-seo/"><u>Cookiebot-Driven Automation: Enhance Your Site's SEO</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-boost-your-sites-traffic-efficiently/"><u>Cookiebot-Driven Success: Boost Your Site's Traffic Efficiently</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-websites-engagement-with-advanced-analytics/"><u>Cookiebot-Enabled Site: Enhance Your Website's Engagement with Advanced Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-secret-ingredient-for-supercharging-your-site-performance/"><u>Cookiebot: The Secret Ingredient for Supercharging Your Site Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/crafting-impactful-digital-content-strategies-for-page-excellence/"><u>Crafting Impactful Digital Content: Strategies for Page Excellence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discover-the-scope-of-abbyys-technological-impact-annual-ocr-conversion-statistics-for-2017/"><u>Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discovering-cutting-edge-innovations-the-intersection-of-ai-and-process-mining-today/"><u>Discovering Cutting-Edge Innovations: The Intersection of AI and Process Mining Today</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-site-visits-experience-the-benefits-of-cookiebot-powered-marketing-solutions/"><u>Elevate Your Site Visits - Experience the Benefits of Cookiebot Powered Marketing Solutions</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/enhanced-web-experience-through-cookiebot-technology/"><u>Enhanced Web Experience Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-assistance-with-abbyys-latest-innovation-the-new-mobile-capture-sdk-transforming-the-way-customers-experience-technology/"><u>Enhancing Digital Assistance with ABBYY's Latest Innovation: The New Mobile Capture SDK - Transforming the Way Customers Experience Technology</u></a></li>
-<li><a href="https://driver-download.techidaily.com/ensure-peak-performance-downloading-updated-canon-pixma-ts3322-drivers-today/"><u>Ensure Peak Performance: Downloading Updated Canon PIXMA TS3322 Drivers Today!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-superior-site-personalization-with-our-cookiebot-integration/"><u>Experience Superior Site Personalization with Our Cookiebot Integration</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-the-professional-perks-why-joining-abbyy-is-your-smart-move/"><u>Exploring the Professional Perks: Why Joining ABBYY Is Your Smart Move</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-proofing-insurance-with-data-a-key-component-for-change/"><u>Future-Proofing Insurance with Data: A Key Component for Change</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-deutsche-post-dhl-enhances-efficiency-through-abbyy-automated-solutions/"><u>How Deutsche Post DHL Enhances Efficiency Through ABBYY Automated Solutions</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-oppo-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Oppo</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-oppo-a56s-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Oppo A56s 5G to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/james-ritter-named-abbyys-new-cfo-strategic-leadership-in-finance/"><u>James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/hing-a-successful-vlog-a-guide-to-profitability/"><u>Launching a Successful Vlog  A Guide to Profitability</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leveraging-pitch-insights-for-successful-implementation-of-ai-driven-processes/"><u>Leveraging Pitch Insights for Successful Implementation of AI-Driven Processes</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcoming-delays-wolcen-game-finally-hits-the-shelves/"><u>Overcoming Delays: Wolcen Game Finally Hits the Shelves!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-medicine-with-the-cloud-how-digitalization-is-shaping-the-future-of-health-services/"><u>Revolutionizing Medicine with the Cloud: How Digitalization Is Shaping the Future of Health Services</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-medical-practice-enhancing-patient-care-through-abbyy-paperless-data-solutions/"><u>Transform Your Medical Practice: Enhancing Patient Care Through ABBYY Paperless Data Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transforming-doc-mastery-with-abbyy-marketplace-advanced-llm-and-rag-technology-unleashed/"><u>Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed</u></a></li>
-<li><a href="https://discover-best.techidaily.com/unlocking-the-full-potential-of-ai-key-lessons-from-abbyy-user-experiences/"><u>Unlocking the Full Potential of AI: Key Lessons From ABBYY User Experiences</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pioneering-personalized-voices-on-ps-games/"><u>[Updated] Pioneering Personalized Voices on PS Games</u></a></li>
+<li><a href="https://extra-information.techidaily.com/comprehensive-walkthrough-using-every-feature-in-macs-preview-software-for-2024/"><u>Comprehensive Walkthrough Using Every Feature in Mac's Preview Software for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-traffic-conversion-with-cookiebot-technology/"><u>Enhanced Traffic Conversion with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-campaigns-through-innovative-analytic-tools-beyond-traditional-cookies/"><u>Enhancing Digital Campaigns Through Innovative Analytic Tools – Beyond Traditional Cookies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-online-engagement-with-cookiebot-technology-solutions/"><u>Enhancing Online Engagement with Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-vivo-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Vivo Phones with/without a PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/in-depth-analysis-and-interview-decoding-process-intelligence-through-the-lens-of-the-automation-fabric-a-conversation-with-forrester-experts/"><u>In-Depth Analysis & Interview: Decoding Process Intelligence Through The Lens of the Automation Fabric - A Conversation With Forrester Experts</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/lintegration-de-lia-dabbyy-par-les-solutions-m-files-revolutionner-les-processus-documentaires/"><u>L'intégration De L'IA D'Abbyy Par Les Solutions M-Files : Révolutionner Les Processus Documentaires</u></a></li>
+<li><a href="https://techtrends.techidaily.com/live-streaming-pro-discover-manycams-advanced-virtual-webcam-and-editing-tools/"><u>Live Streaming Pro: Discover ManyCam's Advanced Virtual Webcam and Editing Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mastering-the-art-of-web-pages-boost-your-online-presence/"><u>Mastering the Art of Web Pages: Boost Your Online Presence</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimize-with-cookiebot-a-leap-forward-in-personalized-marketing/"><u>Optimize With Cookiebot: A Leap Forward in Personalized Marketing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-art-of-engaging-viewers-alive-in-the-age-of-virtual-gatherings/"><u>The Art of Engaging Viewers Alive in the Age of Virtual Gatherings</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-realme-12-pro-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Realme 12 Pro 5G Location | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-cut-trim-and-merge-videos-for-free-the-ultimate-beginners-toolset/"><u>Updated In 2024, Cut, Trim, and Merge Videos for Free The Ultimate Beginners Toolset</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/visionaries-inventing-new-marvel-worlds/"><u>Visionaries Inventing New Marvel Worlds</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
