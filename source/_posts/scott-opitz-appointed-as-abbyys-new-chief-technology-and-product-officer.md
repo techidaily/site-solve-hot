@@ -1,7 +1,7 @@
 ---
 title: Scott Opitz Appointed as ABBYY's New Chief Technology & Product Officer
-date: 2024-09-07T21:39:39.306Z
-updated: 2024-09-14T20:51:52.489Z
+date: 2024-09-14T23:48:07.004Z
+updated: 2024-09-19T03:26:35.307Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad3863dd1f8be14d01cc17569.jpg
@@ -70,31 +70,32 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-network-neutralizer-overcoming-facebook-intrusion-for-2024/"><u>[New] Network Neutralizer Overcoming Facebook Intrusion for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-picture-perfection-the-finest-10-sites-reviewed/"><u>2024 Approved Free Picture Perfection The Finest 10 Sites Reviewed</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-yielding-yearly-yield-channel-to-currency-conversion/"><u>2024 Approved Yielding Yearly Yield Channel to Currency Conversion</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724313529513-nsdabbyy/"><u>市場のリーダー、株式会社NSD及びABBYY 日本合同銀行が認定パートナー契約を成立:関係者コメントと展望</u></a></li>
-<li><a href="https://fox-links.techidaily.com/a-step-by-step-guide-to-rewind-a-livestream-with-these-ten-approaches-for-2024/"><u>A Step-by-Step Guide to Rewind a Livestream with These Ten Approaches for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbeyy-software-entdeckung-im-kunsthaus-von-rotterdam/"><u>ABBEYY-Software-Entdeckung Im Kunsthaus Von Rotterdam</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-announces-smart-data-entry-solution-on-uipath-go-platform/"><u>ABBYY Announces Smart Data Entry Solution on UiPath GO Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-finereader-server50/"><u>ABBYY FineReader Serverで過去50年間の文書検索能力向上</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-treibt-carlsberg-auf-globalen-spitzenplatz-schnelle-expansion-und-marktreife/"><u>ABBYY Treibt Carlsberg Auf Globalen Spitzenplatz - Schnelle Expansion Und Marktreife</u></a></li>
-<li><a href="https://win-dash.techidaily.com/grab-free-functional-nvidia-3d-vision-drivers-for-windows-step-by-step-guide/"><u>Grab Free, Functional Nvidia 3D Vision Drivers for Windows - Step by Step Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Oppo Reno 10 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/ultra-quick-fortnite-image-design-for-2024/"><u>Ultra-Quick Fortnite Image Design for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/vimeos-zero-dollar-video-editing-pathway/"><u>Vimeo's Zero-Dollar Video Editing Pathway</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ecoding-the-secrets-of-highly-successful-youtube-shorts-templates-for-2024/"><u>[New] Decoding the Secrets of Highly Successful YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-key-aspects-of-creating-animated-visual-narratives/"><u>[New] Key Aspects of Creating Animated Visual Narratives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-behind-the-scenes-youtube-live-thumbnail-secrets/"><u>[Updated] In 2024, Behind the Scenes YouTube Live Thumbnail Secrets</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-zoom-webinar-basics-for-beginners-and-those-new-to-virtual-events-for-2024/"><u>[Updated] Zoom Webinar Basics for Beginners & Those New to Virtual Events for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-dive-deep-into-google-meet-a-free-host-and-participants-guide/"><u>2024 Approved Dive Deep Into Google Meet A Free Host & Participant's Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unveiling-the-world-of-wide-web-watching-via-fb/"><u>2024 Approved Unveiling the World of Wide Web Watching via FB</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-transformation-of-wmv-files-turn-them-into-mp4movmp3-for-universal-compatibility/"><u>Effortless Transformation of WMV Files - Turn Them Into MP4/MOV/MP3 for Universal Compatibility!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-ways-to-access-jackie-chan-films-online/"><u>Effortless Ways to Access Jackie Chan Films Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-dashcam-experience-fun-meets-utility-in-the-ddpai-mini3-overview/"><u>Elevating Dashcam Experience - Fun Meets Utility in the Ddpai Mini3 Overview</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/get-your-free-trial-of-the-ultimate-mp4-video-converter-safe-and-secure-online-shopping/"><u>Get Your Free Trial of the Ultimate MP4 Video Converter - Safe and Secure Online Shopping</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-perfecting-the-art-of-ppt-delivery-via-google-meet-any-device/"><u>In 2024, Perfecting the Art of PPT Delivery via Google Meet (Any Device)</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/master-the-art-of-converting-jpeg-pictures-to-gif-format-with-these-easy-to-follow-techniques/"><u>Master the Art of Converting JPEG Pictures to GIF Format with These Easy-to-Follow Techniques!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/secure-methods-for-downloading-youtube-content-save-your-favorite-videos-safely/"><u>Secure Methods for Downloading YouTube Content - Save Your Favorite Videos Safely</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1977004">
+<span id="1977023">
 					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

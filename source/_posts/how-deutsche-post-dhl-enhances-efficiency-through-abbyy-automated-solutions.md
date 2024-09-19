@@ -1,7 +1,7 @@
 ---
 title: How Deutsche Post DHL Enhances Efficiency Through ABBYY Automated Solutions
-date: 2024-09-11T16:13:38.598Z
-updated: 2024-09-14T22:35:50.792Z
+date: 2024-09-16T17:29:51.031Z
+updated: 2024-09-18T19:48:08.371Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c075541dbef1c38bbe62a795e13b.jpg
@@ -25,9 +25,23 @@ English
 
 Team Lead, Automation Designers & Architects Digitalization@GBS Program, Global Business Services, Deutsche Post, **DHL**
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Overview
 
 In the face of business continuity disruptions, one thing is undeniable – users expect quick results, reliable services, and digital accessibility. Organisations that respond to those demands with agility to improve customer service levels and productivity, with a focus on digital transformation will undoubtedly find success.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What you will learn
 
@@ -37,45 +51,25 @@ In this video, Deutsche Post, DHL, shares how ABBYY modernised their shipping lo
 * …understand the value of achieving operational resilience by gaining an informed understanding of your operations.
 * …learn how to mitigate risks in RPA technology and accelerate DHL’s transformation journey.
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch now
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Thank you, enjoy your webinar.
 
 ### Check out some of the best moments and watch the full recording below.
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -142,19 +136,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discovering-potential-youtubes-role-in-modern-education-strategies/"><u>[New] 2024 Approved Discovering Potential YouTube's Role in Modern Education Strategies</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-optimal-speech-devices-web-based/"><u>[New] 2024 Approved Optimal Speech Devices, Web-Based</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-navigating-the-world-of-gopro-filming/"><u>[New] In 2024, Navigating the World of GoPro Filming</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-aptly-convert-speech-to-text-with-googles-innovative-tech-for-2024/"><u>[Updated] Aptly Convert Speech to Text with Google's Innovative Tech for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagram-reel-creating-stunning-slow-motion-content/"><u>[Updated] Mastering Instagram Reel Creating Stunning Slow-Motion Content</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-complete-users-manual-to-youtube-editing-via-finalcut-pro/"><u>[Updated] The Complete User's Manual to YouTube Editing via FinalCut Pro</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebooks-flash-video-frenzy/"><u>2024 Approved Facebook's Flash Video Frenzy</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automatisierte-veranderung-wie-traditionelle-unternehmen-in-digitale-strukturen-ubergehen/"><u>Automatisierte Veränderung: Wie Traditionelle Unternehmen in Digitale Strukturen Übergehen</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-apps-features-for-free-with-abbyys-on-the-fly-image-recognition-technology/"><u>Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-efficient-marketing-automation-tools/"><u>Cookiebot Driven Solutions: Efficient Marketing Automation Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-empowered-sites-boost-organic-visibility/"><u>Cookiebot-Empowered Sites Boost Organic Visibility</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-analytics-unleashing-new-possibilities-in-user-tracking/"><u>Cookiebot-Enhanced Analytics: Unleashing New Possibilities in User Tracking</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-tecno-camon-20-pro-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Tecno Camon 20 Pro 5G Location | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-the-garmin-forerunner-745-why-its-a-premium-choice-for-fitness-enthusiasts/"><u>Unveiling the Power of the Garmin Forerunner 745: Why It's a Premium Choice for Fitness Enthusiasts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-mastering-real-time-photo-sharing-in-google-meet/"><u>[New] Mastering Real-Time Photo Sharing in Google Meet</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-pinpointing-the-perfect-stream-tagline-for-you-on-tiktok/"><u>[Updated] 2024 Approved Pinpointing the Perfect Stream Tagline for You on TikTok</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-quick-guide-to-precision-photo-backdrop-clean-up/"><u>[Updated] 2024 Approved Quick Guide to Precision Photo Backdrop Clean-Up</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-supercharge-your-status-top-8-apps-for-boosting-facebook-popularity/"><u>[Updated] In 2024, Supercharge Your Status Top 8 Apps for Boosting Facebook Popularity</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-innovative-screencapping-a-practical-sequential-handbook/"><u>[Updated] Innovative Screencapping A Practical, Sequential Handbook</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-vdsu-screen-reader-report-full-insight/"><u>In 2024, VDSU Screen Reader Report Full Insight</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/secure-methods-for-downloading-youtube-content-save-your-favorite-videos-safely/"><u>Secure Methods for Downloading YouTube Content - Save Your Favorite Videos Safely</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-combining-multiple-videos-into-one-with-google-photos-for-windowsmac-users/"><u>Step-by-Step Guide to Combining Multiple Videos Into One with Google Photos for Windows/Mac Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-downloading-tweets-as-video-files-from-any-smartphone-or-computer/"><u>Step-by-Step Guide: Downloading Tweets as Video Files From Any Smartphone or Computer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-3gp-videos-into-high-quality-mov-formats/"><u>Step-by-Step Guide: Transforming 3GP Videos Into High-Quality MOV Formats</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-how-to-listen-to-and-transform-fsb-recordings-into-mp3-files/"><u>Step-by-Step Tutorial on How to Listen to and Transform FSB Recordings Into MP3 Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-14-free-mobile-anime-viewing-apps-best-picks-for-android-and-ios-devices/"><u>Top 14 FREE Mobile Anime Viewing Apps: Best Picks for Android & iOS Devices</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ultimate-5-display-choices-for-ps5/"><u>Ultimate 5 Display Choices For PS5</u></a></li>
 </ul></div>
 

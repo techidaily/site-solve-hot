@@ -1,7 +1,7 @@
 ---
 title: Leveraging Pitch Insights for Successful Implementation of AI-Driven Processes
-date: 2024-09-10T21:37:31.323Z
-updated: 2024-09-14T18:43:20.796Z
+date: 2024-09-12T21:17:34.170Z
+updated: 2024-09-18T22:00:31.586Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8e153531bfb1cc2249d2aa88119afd6c59e7a577b57f16e2feb19e964db9e9c8.jpg
@@ -115,31 +115,11 @@ The leader in AI-based intelligent document processing and process mining techno
 
 [![For Video](https://static1.abbyy.com/abbyycommedia/32356/for-video.jpg)](https://www.youtube.com/watch?v=OUr3jexLu7M) 
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What the analysts say
 
 [All reports](https://tools.techidaily.com/abbyy/products/) 
 
 ![11 01 23 Vertical Isg Report 2022](https://static1.abbyy.com/abbyycommedia/36781/11-01-23-vertical-isg-report-2022.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### ABBYY Named 2022 Leader of IDP in the ISG Provider Lens™ Intelligent Automation – Solutions and Services Report
 
@@ -164,6 +144,13 @@ The leader in AI-based intelligent document processing and process mining techno
 [Check out the report](https://tools.techidaily.com/abbyy/products/) 
 
 0/0 
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Transform your entire business
 
@@ -195,20 +182,34 @@ See what ABBYY smart technologies can do for your industry:
 
 [![Logo Automation Anywhere 149X52](https://static2.abbyy.com/abbyycommedia/29781/logo-automation-anywhere-149x52.svg)](https://www.abbyy.com/solutions/technology/automation-anywhere/)[![Logo Blueprism 159X46](https://static4.abbyy.com/abbyycommedia/29782/logo-blueprism-159x46.svg)](https://tools.techidaily.com/abbyy/products/)[![Logo Deloitte 162X30](https://static3.abbyy.com/abbyycommedia/29783/logo-deloitte-new-162x30.svg)](https://www.abbyy.com/customer-stories/deloitte-extends-the-capabilities-of-their-ediscovery-suite-with-the-help-of-abbyy-recognition-server/)[![Logo Intuit Color](https://static5.abbyy.com/abbyycommedia/29785/logo-intuit-color.svg)](https://www.abbyy.com/customer-stories/abbyy-flexicapture-engine-makes-tax-time-relax-time/)[![Logo Mcdonalds 75X60](https://static1.abbyy.com/abbyycommedia/29787/logo-mcdonalds-75x60.svg)](https://www.abbyy.com/customer-stories/mcdonalds-relies-on-abbyy-ocr-technology-to-power-mobile-app/)[![Logo Mfiles Color](https://static5.abbyy.com/abbyycommedia/29789/logo-mfiles-color.svg)](https://www.abbyy.com/company/news/m-files-integrates-artificial-intelligence-technology-from-abbyy-to-further-automate-information-management/)[![Siemens Logo 163X26](https://static2.abbyy.com/abbyycommedia/30453/siemens-logo-163x26.svg)](https://www.abbyy.com/webinars/on-demand/siemens-global-business-services-intelligent-document-automation-journey/)[![Logo Pega 204X44](https://static1.abbyy.com/abbyycommedia/29791/logo-pega-204x44.svg)](https://www.abbyy.com/solutions/technology/pegasystems/)[![Logo 3M 90X48](https://static2.abbyy.com/abbyycommedia/29780/logo-3m-90x48.svg)](https:/company/news/3m-360-encompass-system-for-healthcare-now-with-text-recognition-from-abbyy/)[![Logo Yum 80X66](https://static2.abbyy.com/abbyycommedia/29800/logo-yum-80x66.svg)](https://www.abbyy.com/customer-stories/financial-shared-services-center-of-yum-china-reaches-a-new-level-with-abbyy-flexicapture/)[![Logo Volkswagen 66X66](https://static4.abbyy.com/abbyycommedia/29799/logo-volkswagen-66x66.svg)](https://www.abbyy.com/customer-stories/volkswagen-corporation-tests-its-infotainment-systems-by-using-abbyy-finereader-engine/)[![Logo Uipath 130X44](https://static4.abbyy.com/abbyycommedia/29798/logo-uipath-130x44.svg)](https://www.abbyy.com/solutions/technology/uipath/)[![Logo Microsoft 159X34](https://static4.abbyy.com/abbyycommedia/29790/logo-microsoft-159x34.svg)](https://www.abbyy.com/solutions/technology/sharepoint/)[![Logo Sap 101X50](https://static4.abbyy.com/abbyycommedia/29797/logo-sap-101x50.svg)](https://www.abbyy.com/solutions/technology/sap/)[![Logo Ricoh Color](https://static1.abbyy.com/abbyycommedia/29795/logo-ricoh-color.svg)](https://www.abbyy.com/company/news/abbyy-finereader-engine-selected-for-ricoh-s-award-winning-documentmall/)[![Logo Pwc 98X74](https://static2.abbyy.com/abbyycommedia/29794/logo-pwc-98x74.svg)](https://www.abbyy.com/customer-stories/pwc-efficiently-automates-financial-document-processing-with-abbyy/)[![Logo Pepsico 173X40](https://static2.abbyy.com/abbyycommedia/29792/logo-pepsico-173x40.svg)](https://www.abbyy.com/customer-stories/pepsico-automates-invoice-processing-with-abbyy-flexicapture/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Customer success
 
 [All stories](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY selected by Costain as part of its Finance Digitization Strategy
 
 ![Costain Croup PLC](https://static5.abbyy.com/abbyycommedia/31198/costain.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Costain Group PLC
 
@@ -249,10 +250,10 @@ U.S. Food and Drug
 ![U.S. Food and Drug Administration](https://static1.abbyy.com/abbyycommedia/31429/02c-case-3-fda-image.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY’s platform transforms the U.S. Food and Drug Administration
@@ -301,13 +302,6 @@ Businesses are digging deeper to fully understand their processes to discover ne
 
 ![News Partners7](https://static2.abbyy.com/abbyycommedia/33722/news-partners7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Bosch relies on Intelligent Automation from ABBYY
 
 The Bosch Group has selected ABBYY to automate the document processing of incoming goods inspection and complaint management.
@@ -337,21 +331,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-view-facebook-content-on-your-home-theater/"><u>[New] In 2024, How To View Facebook Content On Your Home Theater?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-obs-review-comprehensive-look-at-screen-recorder-excellence/"><u>[Updated] OBS Review Comprehensive Look at Screen Recorder Excellence</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/az-video-grabber-in-depth-app-analysis-and-diversions/"><u>AZ Video Grabber In-Depth App Analysis & Diversions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1722001572655-chatgpt-as-your-personal-streaming-guide-find-the-perfect-series-or-movie-tonight/"><u>ChatGPT as Your Personal Streaming Guide: Find the Perfect Series or Movie Tonight</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/complete-guide-on-unlocking-apple-iphone-6s-plus-with-a-broken-screen-drfone-by-drfone-ios/"><u>Complete Guide on Unlocking Apple iPhone 6s Plus with a Broken Screen? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/deloitte-und-abbey-zusammenarbeit-beendet-innovatives-losungsportfolio-fur-die-optimierung-von-geschaftsprozessen/"><u>Deloitte Und ABBEY Zusammenarbeit Beendet - Innovatives Lösungsportfolio Für Die Optimierung Von Geschäftsprozessen</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-efficiency-in-the-abbyy-procurement-cycle-expert-ap-automation-tools-for-businesses/"><u>Enhance Efficiency in the ABBYY Procurement Cycle: Expert AP Automation Tools for Businesses</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-marketing-insights-with-the-cookiebot-platform/"><u>Enhanced Marketing Insights with the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-web-analytics-with-automated-cookie-technology-discover-the-power-of-your-productservice/"><u>Enhanced Web Analytics with Automated Cookie Technology: Discover the Power of [Your Product/Service]</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-analytics-through-cookiebot-enabled-sites/"><u>Enhancing Analytics Through Cookiebot-Enabled Sites</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/erweiterte-moglichkeiten-der-dokumentbearbeitung-mit-neuem-update-in-finereader-14-abbyy-software/"><u>Erweiterte Möglichkeiten Der Dokumentbearbeitung Mit Neuem Update in FineReader 14, ABBYY Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-tailored-content-with-our-cookiebot-integration-technology/"><u>Experience Tailored Content with Our Cookiebot Integration Technology</u></a></li>
-<li><a href="https://fox-that.techidaily.com/quick-fixes-how-to-seamlessly-perform-a-soft-reset-on-your-iphone/"><u>Quick Fixes: How To Seamlessly Perform A Soft Reset On Your iPhone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-free-off-road-and-on-track-driving-games-of-2023-you-cant-miss/"><u>Top Free Off-Road and On-Track Driving Games of 2023 You Can't Miss!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-rotibox-bluetooth-ear-warmer-when-cozy-style-collides-with-impressive-audio-capabilities/"><u>Unveiling the Rotibox Bluetooth Ear Warmer: When Cozy Style Collides with Impressive Audio Capabilities</u></a></li>
-<li><a href="https://extra-information.techidaily.com/virtual-ventures-dive-into-wins11s-game-selection/"><u>Virtual Ventures Dive Into Wins11's Game Selection</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-buzzfeed-gurus-flashing-with-snapchat-for-2024/"><u>[New] BuzzFeed Gurus Flashing with Snapchat for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-top-8-screen-recording-apps-in-windows-11-revealed/"><u>[New] Top 8 Screen Recording Apps in Windows 11 Revealed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-exploring-todays-top-tier-vr-headsets/"><u>[Updated] Exploring Today's Top-Tier VR Headsets</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-live-obs-video-on-instagram-for-2024/"><u>[Updated] Live OBS Video on Instagram for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030046414-windows-media-player/"><u>「ファイル再生中のWindows Media Player 問題」: 修正方法と解決策</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-compatible-platforms-a-step-by-step-guide-to-watching-wtv-videos-anywhere/"><u>1. Compatible Platforms: A Step-by-Step Guide to Watching WTV Videos Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-step-by-step-guide-adjusting-your-sound-quality-by-changing-the-bitrate/"><u>1. Step-by-Step Guide: Adjusting Your Sound Quality by Changing the Bitrate</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-harnessing-the-full-potential-of-windows-11s-auto-hdr-feature/"><u>2024 Approved Harnessing the Full Potential of Windows 11'S Auto HDR Feature</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/achieving-top-notch-clarity-recording-pro-tips-for-firestick-users/"><u>Achieving Top-Notch Clarity: Recording Pro Tips for Firestick Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/avchd-to-mp4-conversion-top-6-recommended-free-software-picks-for-superior-video-quality/"><u>AVCHD to MP4 Conversion: Top 6 Recommended Free Software Picks for Superior Video Quality</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/chromefirefoxm3u8/"><u>ChromeとFirefoxでM3U8動画を簡単にダウンロード</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-k11x-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-from-your-iphone-x-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID From your iPhone X without Security Questions?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-space-saver-strategies-pioneering-the-best-cloud-platforms/"><u>In 2024, Space-Saver Strategies Pioneering the Best Cloud Platforms</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726029019563-insta/"><u>Insta動画を最高に見せる投稿テクニック</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Vivo S18 Pro? | Dr.fone</u></a></li>
 </ul></div>
 

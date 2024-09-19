@@ -1,7 +1,7 @@
 ---
 title: "D'Abbyy Welcomes Scott Opitz in Top Executive Positions: Now CTO & CPO"
-date: 2024-09-13T18:06:27.602Z
-updated: 2024-09-14T21:22:30.713Z
+date: 2024-09-12T18:10:16.127Z
+updated: 2024-09-19T01:44:58.555Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/71650fe6339aad7562a7ef4730d038972f077e65bec2cbda43e5ae4d18379e11.jpg
@@ -64,31 +64,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-thumbnails-unleashed-elevate-your-video-presence/"><u>[New] 2024 Approved Thumbnails Unleashed Elevate Your Video Presence</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-navigating-speedy-downloads-for-tiktok-hits/"><u>[New] In 2024, Navigating Speedy Downloads for TikTok Hits</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-future-of-sound-design-magix-music-makers-latest-upgrade/"><u>[Updated] The Future of Sound Design Magix Music Maker's Latest Upgrade</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-start-a-new-story-install-xps-videographer-tools/"><u>2024 Approved Start a New Story, Install XP’s Videographer Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-optimizing-your-site-with-smart-analytics/"><u>Cookiebot-Enhanced User Experience: Optimizing Your Site with Smart Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-advertising-with-the-power-of-cookiebot-technology/"><u>Customized Advertising with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-bookkeeping-accuracy-using-abbeys-smart-document-recognition-solutions/"><u>Elevate Your Bookkeeping Accuracy Using ABBEY’s Smart Document Recognition Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-data-insights-using-cookiebot-driven-analytics-solutions/"><u>Elevate Your Data Insights Using Cookiebot-Driven Analytics Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-marketing-strategy-using-cutting-edge-cookiebot-solutions-for-user-tracking/"><u>Elevate Your Marketing Strategy Using Cutting-Edge Cookiebot Solutions for User Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-user-experience-with-automated-conversion-tracking-the-power-of-cookiebot/"><u>Enhanced User Experience with Automated Conversion Tracking - The Power of Cookiebot</u></a></li>
-<li><a href="https://article-tips.techidaily.com/initiate-the-art-of-movie-making-xp-edition-for-2024/"><u>Initiate the Art of Movie Making Xp Edition for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/mpow-bluetooth-driver-update-guide-windows-10-8-and-7-downloads-available-now/"><u>MPOW Bluetooth Driver Update Guide - Windows 10, 8, and 7 Downloads Available Now!</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transformative-ux-building-dynamic-persons-with-chatgpt/"><u>Transformative UX: Building Dynamic Persons with ChatGPT</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-effective-strategies-for-archiving-vimeo-footage/"><u>[Updated] Effective Strategies for Archiving Vimeo Footage</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-realme-gt-neo-5-se-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Realme GT Neo 5 SE</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-strategies-to-tackle-haldll-errors-on-different-windows-editions/"><u>Comprehensive Strategies to Tackle hal.dll Errors on Different Windows Editions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/create-your-own-iphone-ringtone-with-mp4-video-a-step-by-step-guide/"><u>Create Your Own iPhone Ringtone with MP4 Video: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-transformation-of-wmv-files-turn-them-into-mp4movmp3-for-universal-compatibility/"><u>Effortless Transformation of WMV Files - Turn Them Into MP4/MOV/MP3 for Universal Compatibility!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-ways-to-access-jackie-chan-films-online/"><u>Effortless Ways to Access Jackie Chan Films Online</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/expert-tips-on-angling-videos-unlocking-full-potential-with-vlc/"><u>Expert Tips on Angling Videos Unlocking Full Potential with VLC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/get-your-free-trial-of-the-ultimate-mp4-video-converter-safe-and-secure-online-shopping/"><u>Get Your Free Trial of the Ultimate MP4 Video Converter - Safe and Secure Online Shopping</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-vivo-y27s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-synergizing-brands-on-video-platforms/"><u>In 2024, Synergizing Brands on Video Platforms</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-driver-pack-for-the-hp-m506-laser-printer-downloads-and-installation-tips/"><u>Latest Driver Pack for the HP M506 Laser Printer: Downloads and Installation Tips</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/master-the-art-of-converting-jpeg-pictures-to-gif-format-with-these-easy-to-follow-techniques/"><u>Master the Art of Converting JPEG Pictures to GIF Format with These Easy-to-Follow Techniques!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/trimming-down-m4v-file-sizes-efficiently-using-windows-macos-or-web-services/"><u>Trimming Down M4V File Sizes Efficiently Using Windows, MacOS or Web Services</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance"
-date: 2024-09-08T20:07:04.991Z
-updated: 2024-09-14T20:59:41.899Z
+date: 2024-09-13T01:49:05.266Z
+updated: 2024-09-18T21:32:41.015Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91d802feac954d9a2b7218b9de82c000f339447018e6cb53073b6a41a90f92e5.jpg
@@ -61,27 +61,23 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-top-7-inexpensive-pc-screen-recorders-ranked/"><u>[Updated] 2024 Approved Top 7 Inexpensive PC Screen Recorders Ranked</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-youtube-master-of-moneymaking-skills/"><u>[Updated] 2024 Approved YouTube Master of Moneymaking Skills</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-path-to-profitable-product-placements-on-youtube/"><u>[Updated] The Path to Profitable Product Placements on YouTube</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/17-transformative-metaverse-trials-explained/"><u>17 Transformative Metaverse Trials Explained</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-personalization-enhancing-your-websites-visitor-experience/"><u>Cookiebot-Enhanced Personalization: Enhancing Your Website's Visitor Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-sites-boost-your-websites-performance/"><u>Cookiebot-Enhanced Sites: Boost Your Website's Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience/"><u>Cookiebot-Enhanced User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-a-recipe-for-successful-site-engagement/"><u>Cookiebot-Enhanced User Experience: A Recipe for Successful Site Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-experience-personalized-advertising-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Experience Personalized Advertising with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-fueled-engagement-tailored-interactions-and-improved-analytics/"><u>Cookiebot-Fueled Engagement: Tailored Interactions & Improved Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-optimize-your-websites-seo-with-advanced-tracking-technology/"><u>Cookiebot: Optimize Your Website's SEO with Advanced Tracking Technology</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-belgian-tongue-conundrum/"><u>Decoding the Belgian Tongue Conundrum</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-official-drivers-for-your-epson-perfection-v5t-direct-download-links-here/"><u>Get the Official Drivers for Your Epson Perfection V5t - Direct Download Links Here!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-erase-private-data-from-iphone-11-pro-max-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase Private Data From iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-copyrighted-chords-navigating-music-uploads-to-insta/"><u>In 2024, Copyrighted Chords Navigating Music Uploads to Insta</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/android-usb-drivers-download-and-install-for-windows/"><u>Android USB Drivers Download and Install for Windows</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-the-script-turning-online-games-into-channel-gold-for-2024/"><u>Flipping the Script Turning Online Games Into Channel Gold for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-asus-rog-phone-7-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Asus ROG Phone 7?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-brief-basslines-video-music-mosaics/"><u>In 2024, Brief Basslines Video Music Mosaics</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-tecno-phantom-v-fold-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Tecno Phantom V Fold Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/maximize-conversions-with-cutting-edge-cookiebot-features/"><u>Maximize Conversions with Cutting-Edge Cookiebot Features</u></a></li>
+<li><a href="https://common-error.techidaily.com/quick-fix-for-pops-and-cracks-on-windows-computer-speakers-issue-resolved/"><u>Quick Fix for Pops and Cracks on Windows Computer Speakers [ISSUE RESOLVED]</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-7-screen-recording-tools-for-pcs-and-macbooks-find-the-perfect-one/"><u>Top 7 Screen Recording Tools for PCs & MacBooks - Find the Perfect One</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-avi-playback-issues-for-a-seamless-experience-on-chromebooks/"><u>Troubleshooting AVI Playback Issues for a Seamless Experience on Chromebooks</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-how-to-successfully-add-hevc-footage-in-after-effects/"><u>Troubleshooting Guide: How to Successfully Add HEVC Footage in After Effects</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
