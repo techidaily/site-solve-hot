@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhancing Your Website's User Experience with Seamless Personalization"
-date: 2024-09-07T17:37:16.554Z
-updated: 2024-09-15T00:15:35.886Z
+date: 2024-09-16T16:16:19.870Z
+updated: 2024-09-23T16:17:18.286Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/368a70a14b371c8e08eacb0b3d4a99240a39fbb092918116ea6d8f331f8e83e6.jpg
@@ -15,11 +15,25 @@ Datenblatt
 
 ![Der Digitale Zwilling für Geschäftsprozesse](https://static1.abbyy.com/abbyycommedia/34351/80b-rise-of-the-process-digital-twin-de-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Steuern Sie Ihre Daten. Verstehen Sie Ihre Prozesse. Sehen Sie die Zukunft voraus. Handeln Sie effizienter.
 
 Dieses Untersuchungsgebiet hat sich zu einer Produktklasse entwickelt, die zusammenfassend als Process-Mining- oder Process-Analytics-Anwendungen bezeichnet wird. Die Entwicklung dieses Untersuchungsgebiets hat eine neue Art von Analytik hervorgebracht; sie läuft unter dem Begriff Process Intelligence.
 
 Process Intelligence geht über einfaches Process Mining hinaus und bietet dem Benutzer im Unternehmen eine einfach zu verwendende Point-and-Click-Oberfläche ohne Programmier-Anforderungen. Es ist eine unverzichtbare und sich schnell entwickelnde Geschäftsstrategie, die es Unternehmen ermöglicht, die Kontrolle über ihre Prozesse zu übernehmen. Sie erhalten damit die Möglichkeit, auf dem Weg zu kontinuierlicher und nachhaltiger Prozessqualität voranzukommen.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
 
@@ -28,26 +42,26 @@ Wie können Sie die Vielzahl von Datenpunkten, die von diesen Betriebssystemen g
 ABBYY Timeline löst diese Herausforderung mit einem interaktiven Modell – einem Digitalen Zwilling für Prozesse.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Die eigenen Geschäftsprozesse zu verstehen, ist nun einfacher! Laden Sie unsere Broschüre herunter, um mehr zu erfahren.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
 
 [Datenblatt lesen](https://digital.abbyy.com/hubfs/documents/content/datasheet-rise-of-the-process-digital-twin-de.pdf "Datenblatt lesen") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
@@ -118,19 +132,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-unleash-your-potential-with-these-top-12-pc-clickers/"><u>[New] 2024 Approved Unleash Your Potential with These Top 12 PC Clickers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-success-the-leading-25-tagging-tactics/"><u>[New] In 2024, Instagram Success The Leading 25 Tagging Tactics</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-convert-twitter-video-to-audiomp4webm-for-2024/"><u>[Updated] Convert Twitter Video to Audio/MP4/WebM for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-und-tangro-steigern-sie-die-prozesssicherheit-im-dokumenteneingang-fur-ein-nahtloses-management/"><u>ABBYY Und Tangro®: Steigern Sie Die Prozesssicherheit Im Dokumenteneingang Für Ein Nahtloses Management</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/adaptieren-zum-new-normal-wie-fraunhofer-und-abbyy-die-prozessdigitalisierung-revolutionieren/"><u>Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ai-driven-insights-into-decoding-medical-billing-complexities-the-abbyy-healthcare-chronicle/"><u>AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/blue-prism-la-technologie-de-lintelligence-des-processus-pour-ameliorer-et-perfectionner-la-performance-dautomatisation/"><u>Blue Prism : La Technologie De L'Intelligence Des Processus Pour Améliorer Et Perfectionner La Performance D'Automatisation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-engagement-through-ai-discover-the-power-of-cookiebot-for-dynamic-content-delivery/"><u>Boosting Engagement Through AI: Discover the Power of Cookiebot for Dynamic Content Delivery</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-process-intelligence-collaborating-with-alteryx-and-abbyy-in-tandem/"><u>Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/gamer-gold-grindings-pewdiepies-profit-profile-for-2024/"><u>Gamer Gold Grindings PewDiePie's Profit Profile for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/overcoming-debit-card-errors-false-non-acceptance-on-ps5/"><u>Overcoming Debit Card Errors: False Non-Acceptance on PS5</u></a></li>
-<li><a href="https://media-tips.techidaily.com/quick-guide-making-avi-videos-playable-on-an-ipad-through-mac-based-file-conversion/"><u>Quick Guide: Making AVI Videos Playable on an iPad Through Mac-Based File Conversion</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshoot-image-loading-issues-on-safari-in-ios-top-9-solutions/"><u>Troubleshoot Image Loading Issues on Safari in iOS: Top 9 Solutions</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/unprinted-pages-issue-on-hp-printer-fixed/"><u>Unprinted Pages Issue on HP Printer Fixed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1716068859242-new-in-2024-2023-browser-snapshot-winners-announced/"><u>[New] In 2024, 2023 Browser Snapshot Winners Announced!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-art-of-photo-refreshment-how-to-tidy-up-images-on-canva/"><u>[New] The Art of Photo Refreshment How to Tidy Up Images on Canva</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-constructive-cuts-streamlined-approaches-for-length-adjustments-on-vimeo/"><u>[Updated] 2024 Approved Constructive Cuts Streamlined Approaches for Length Adjustments on Vimeo</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/youtube72024/"><u>「推薦される最強のYouTubeダウンローダー7組！2024年版ランキング完全ガイド」</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-how-can-you-convert-an-opus-file-into-ogg-format-at-no-cost/"><u>1. How Can You Convert an OPUS File Into OGG Format at No Cost?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-unlocking-the-secrets-of-irecorder/"><u>2024 Approved Unlocking the Secrets of iRecorder</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5-outstanding-no-cost-tools-to-save-your-favorite-youtube-content-on-windows-ten/"><u>5 Outstanding No-Cost Tools to Save Your Favorite YouTube Content on Windows # Ten</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726026567366-gopro/"><u>高品質なGoProフィルムに変える解像度調節手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fast-conversion-guide-transforming-webm-files-into-mkv-format/"><u>Fast Conversion Guide: Transforming WebM Files Into MKV Format</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-infinix-smart-7-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Infinix Smart 7 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restoring-audio-on-your-display-fixing-hdmi-silence-when-linking-pc-monitor-and-television/"><u>Restoring Audio on Your Display: Fixing HDMI Silence When Linking PC, Monitor & Television</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-iphone-se-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from iPhone SE</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028147002-xperia/"><u>Xperiaデバイスで動画再生に失敗する方法: パワーオフから回復</u></a></li>
 </ul></div>
 

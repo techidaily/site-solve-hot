@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhancing Your Site with Smart Tracking Technology"
-date: 2024-09-12T02:20:17.547Z
-updated: 2024-09-19T03:32:11.013Z
+date: 2024-09-19T18:07:06.930Z
+updated: 2024-09-23T18:07:37.905Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/650f46c8db195bf984ecb592d4a15814bfd7afa085c1775706e382ffb2952424.jpg
@@ -27,22 +27,35 @@ Organizations are seeing the promise of consumer-AI capabilities within the ente
 
 The biggest challenge to achieving quick results, according to Big Four firm PwC, is the availability of large volumes of labeled data to train the system. Invoices are a prime example of large volumes of labeled data, and represent an opportune area to initiate AI-enabling technology. Here are tangible ways AI can enhance accounts payable and show immediate benefits.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Beyond Invoice Automation
 
 Eliminating paper is the first step towards the digital transformation of AP. Many organizations have incorporated sophisticated capture technology that automatically extracts, validates and matches data from invoices, and seamlessly feeds the results into the AP workflow, ERP system or line-of-business application.
 
 The next generation of machine learning in AP includes the intelligent extraction of line and field data that incorporates the understanding of the overall structure of an invoice. Machine learning technology allows the system to recognize patterns, such as when a certain general ledger code is applied to a certain invoice; and learn overall structure of an invoice in order to extract all the meaningful data automatically. The system will learn these patterns and will suggest codes to the users coding them or find all the totals, amounts, and details contained within the invoice. AI recognizes the result and knows how to process, validate and recommend this data. This will reduce the amount of time AP spends on keying and correcting data.
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Lean IT support
 
 A large IT staff that can code and implement time-consuming algorithms and workflows is not a luxury that most organizations can afford. This is where robotic process automation and AI expedite the process by enabling AP operators to train systems with user-friendly interfaces. Training allows the operator to act as a facilitator of intelligence back into the application, thus eliminating the need for IT resources.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Smarter Decisions
 
@@ -59,10 +72,10 @@ Integrating AI within accounts payable (or in any part of the enterprise) is pos
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Bruce Orcutt
@@ -72,6 +85,13 @@ Senior Vice President of Product Marketing at ABBYY
 Bruce Orcutt is a veteran Product Marketing and Product Management professional with over 20 years’ experience in Enterprise Software. Bruce drives global product marketing for ABBYY's intelligent automation solutions that create business value for organizations. His go-to-market strategies accelerate the adoption of ABBYY solutions worldwide.
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -136,18 +156,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-from-download-to-usage-setting-up-obs-on-a-mac/"><u>[New] 2024 Approved From Download to Usage Setting Up OBS on a Mac</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-boost-your-instagram-with-easily-shareable-gifs-step-by-step/"><u>[New] In 2024, Boost Your Instagram with Easily Shareable GIFs (Step-by-Step)</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-selecting-video-editors-filmora-vs-democreator-compared/"><u>[Updated] 2024 Approved Selecting Video Editors Filmora Vs. Democreator Compared</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/gifand10/"><u>最新！動画化のためのGIFを効率よく変換するフリーソフト&サイトベスト10選</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/easy-tutorial-on-transforming-tivo-files-into-high-quality-mp4-videos/"><u>Easy Tutorial on Transforming TiVo Files Into High-Quality MP4 Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-conversion-guide-from-wmv-to-h264-and-back/"><u>Effortless Conversion Guide: From WMV to H.264 And Back</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-downloads-a-complete-guide-to-setting-up-advanced-download-manager-on-all-platforms/"><u>Elevate Your Downloads: A Complete Guide to Setting Up Advanced Download Manager on All Platforms</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-convert-media-files-for-optimal-playback-on-smartphones-including-nokia-samsung-htc-and-blackberry-models/"><u>How to Convert Media Files for Optimal Playback on Smartphones Including Nokia, Samsung, HTC & Blackberry Models</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-efficiently-minimize-video-files-a-guide-to-the-best-compression-techniques-and-software/"><u>How to Efficiently Minimize Video Files: A Guide to the Best Compression Techniques and Software</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-image-enhancement-made-simple-how-to-inject-text-into-pictures-on-windowsmacos/"><u>In 2024, Image Enhancement Made Simple How to Inject Text Into Pictures on Windows/MacOS</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-vivo-x100-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Vivo X100 Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-linguistic-leap-unveiling-the-top-6-gains/"><u>The Linguistic Leap: Unveiling the Top 6 Gains</u></a></li>
-<li><a href="https://some-skills.techidaily.com/tiktok-age-update-made-simple-user-friendly-techniques-for-2024/"><u>TikTok Age Update Made Simple User-Friendly Techniques for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-strategies-to-outlast-your-competitors-in-snapping/"><u>[New] 2024 Approved Strategies to Outlast Your Competitors in Snapping</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-illuminate-your-recording-setup-how-to-prevent-a-dark-screen-on-obs-for-2024/"><u>[New] Illuminate Your Recording Setup How to Prevent a Dark Screen on OBS for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-how-can-you-convert-an-opus-file-into-ogg-format-at-no-cost/"><u>1. How Can You Convert an OPUS File Into OGG Format at No Cost?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5-outstanding-no-cost-tools-to-save-your-favorite-youtube-content-on-windows-ten/"><u>5 Outstanding No-Cost Tools to Save Your Favorite YouTube Content on Windows # Ten</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726026567366-gopro/"><u>高品質なGoProフィルムに変える解像度調節手順</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-galaxy-s23plus-support-mov-videos-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Galaxy S23+ support MOV videos ?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-any-zte-nubia-z60-ultra-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any ZTE Nubia Z60 Ultra Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://fox-http.techidaily.com/natures-canvas-a-variety-of-downloads-to-enhance-cinematic-work-for-2024/"><u>Nature’s Canvas A Variety of Downloads to Enhance Cinematic Work for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-the-ultimate-list-of-free-gif-loop-creators-for-2024/"><u>New The Ultimate List of Free GIF Loop Creators for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028147002-xperia/"><u>Xperiaデバイスで動画再生に失敗する方法: パワーオフから回復</u></a></li>
 </ul></div>
 

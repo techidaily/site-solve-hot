@@ -1,7 +1,7 @@
 ---
 title: Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture
-date: 2024-09-09T20:23:32.301Z
-updated: 2024-09-14T23:24:57.163Z
+date: 2024-09-19T16:43:07.479Z
+updated: 2024-09-23T17:07:51.485Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a9de22e1aa59a5e7f9127b24.jpg
@@ -19,6 +19,13 @@ Food and Beverage | Accounts Payable Automation
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## PepsiCo automatise le traitement de ses factures avec ABBYY FlexiCapture
 
 Aliments et boissons | Comptes fournisseurs 
@@ -28,6 +35,13 @@ Aliments et boissons | Comptes fournisseurs
 #### Aperçu du client
 
 ![PepsiCo Imaging Technology](https://static2.abbyy.com/abbyycommedia/15266/pepsico_for-uk.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Prénom               | PepsiCo Imaging Technology                    |
 | -------------------- | --------------------------------------------- |
@@ -39,6 +53,19 @@ Aliments et boissons | Comptes fournisseurs
 #### Aperçu des partenaires
 
 ![Criteria First, Inc.](https://static2.abbyy.com/abbyycommedia/15267/criteria-first-logo.png) 
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Prénom         | Criteria First, Inc.                                  |
 | -------------- | ----------------------------------------------------- |
@@ -107,6 +134,13 @@ Et selon R. Kent, ce n'est qu'un début : « Pour nous, cela signiﬁe que la so
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Dématérialisation des factures](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![PepsiCo1](https://static2.abbyy.com/abbyycommedia/15765/pepsico1.png)](https://static2.abbyy.com/abbyycommedia/10532/cas-client-pepsico-aliments-boissons-fr.pdf "version PDF") [version PDF](https://static2.abbyy.com/abbyycommedia/10532/cas-client-pepsico-aliments-boissons-fr.pdf "version PDF") 
@@ -142,34 +176,24 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-decoding-the-top-rival-to-sharex-for-2024/"><u>[New] Decoding the Top Rival to ShareX for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-10-essential-methods-to-record-virtual-seminars-at-no-expense/"><u>[Updated] 2024 Approved 10 Essential Methods to Record Virtual Seminars at No Expense</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-strategies-for-skipping-virtual-learning-videos/"><u>[Updated] 2024 Approved Strategies for Skipping Virtual Learning Videos</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-harmonious-hush-for-restfulness-top-asmr-picks/"><u>2024 Approved Harmonious Hush for Restfulness Top ASMR Picks</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-easy-steps-creating-gifs-from-beginner-videos/"><u>5 Easy Steps: Creating GIFs From Beginner Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-user-experience-with-automated-tracking-inspired-by-cookiebot/"><u>Customized User Experience with Automated Tracking: Inspired by Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/driven-by-advanced-data-gathering-technology-from-cookiebot/"><u>Driven by Advanced Data-Gathering Technology From Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effective-strategies-for-claiming-due-payments-a-guide-for-medical-practices-and-hospital-networks/"><u>Effective Strategies for Claiming Due Payments: A Guide for Medical Practices and Hospital Networks</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/eliminating-frame-drops-in-obs-broadcasts-for-2024/"><u>Eliminating Frame Drops in OBS Broadcasts for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-solutions/"><u>Enhance Web Analytics with the Power of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-traffic-conversion-with-cookiebot-technology/"><u>Enhanced Traffic Conversion with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-campaigns-through-innovative-analytic-tools-beyond-traditional-cookies/"><u>Enhancing Digital Campaigns Through Innovative Analytic Tools – Beyond Traditional Cookies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-online-engagement-with-cookiebot-technology-solutions/"><u>Enhancing Online Engagement with Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/how-to-make-duet-on-tiktok-in-2024/"><u>How to Make Duet On TikToK, In 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/latest-samsung-850-evo-drive-software-and-drivers-get-them-here/"><u>Latest Samsung 850 EVO Drive Software and Drivers – Get Them Here</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-step-by-step-solution-for-non-shown-shorts-thumbnails-on-youtube/"><u>[New] 2024 Approved Step-by-Step Solution for Non-Shown Shorts Thumbnails on YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-ring-induced-voice-memo-iphone-24-for-2024/"><u>[New] Ring-Induced Voice Memo - iPhone '24 for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-best-qpr-index-for-sluggish-video-content/"><u>[Updated] Best QPR Index for Sluggish Video Content</u></a></li>
+<li><a href="https://video-capture.techidaily.com/cutting-edge-tech-analysis-the-best-screen-recorder-roundup-for-2024/"><u>Cutting Edge Tech Analysis The Best Screen Recorder Roundup for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-new-corsair-k55-printer-driver-secure-download-options/"><u>Get the New Corsair K55 Printer Driver - Secure Download Options</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-xiaomi-redmi-note-12t-pro-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Xiaomi Redmi Note 12T Pro Through Google Earth?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-initiate-direct-camera-streaming-with-vlc/"><u>In 2024, Initiate Direct Camera Streaming with VLC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-tecno-phantom-v-flip-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Tecno Phantom V Flip to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/premiere-changes-for-images-pictureshift-genius-for-2024/"><u>Premiere Changes for Images PictureShift Genius for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-playback-of-media-files-across-various-platforms-avoid-compatibility-woes/"><u>Seamless Playback of Media Files Across Various Platforms - Avoid Compatibility Woes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-steps-for-free-transforming-your-favorite-youtube-content-into-a-playable-dvd/"><u>Seamless Steps for FREE: Transforming Your Favorite YouTube Content Into a Playable DVD</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/speedy-methods-for-embedding-text-overlays-in-movies/"><u>Speedy Methods for Embedding Text Overlays in Movies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/speedy-solutions-for-converting-your-mkv-videos-to-compatible-avi-version/"><u>Speedy Solutions for Converting Your MKV Videos to Compatible AVI Version</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-fixes-for-non-working-pc-mic-in-dota-2-gameplay/"><u>Step-by-Step Fixes for Non-Working PC Mic in Dota 2 Gameplay</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-creating-a-gif-from-your-favorite-youtube-video/"><u>Step-by-Step Guide: Creating a GIF From Your Favorite YouTube Video</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/tech-rivalry-unveiled-apples-ongon-dispute-with-adobe-over-flash-support/"><u>Tech Rivalry Unveiled: Apple's Ongon Dispute with Adobe over Flash Support</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-avi-to-dvd-transcoder-for-windows-11-users-in-2e24/"><u>Top Rated AVI to DVD Transcoder for Windows 11 Users in 2E24</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-two-strategies-for-successful-amv-downloads/"><u>Top Two Strategies for Successful AMV Downloads</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

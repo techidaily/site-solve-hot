@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled Solutions: Optimize Your Online Experience"
-date: 2024-09-12T00:30:13.241Z
-updated: 2024-09-18T20:53:58.562Z
+date: 2024-09-22T17:26:11.736Z
+updated: 2024-09-23T16:57:06.981Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f96105d1405f7c845f75622429456df69e9791ebea6985dfc0c6d939ebdaa395.jpg
@@ -40,15 +40,36 @@ _Neil Murphy, Directeur channel monde, ABBYY._
 La solution d'Intelligent Process Automation d'ABBYY comprend des technologies de pointe en matière d'Intelligence Document Processing (IDP), de Process Mining et de Task Mining. Parmi ces solutions figure [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), la première plateforme Low / No Code du marché qui s’appuie sur l'IA pour analyser les documents de manière simple et rapide. Vantage rend les processus digitaux plus fluides via des fonctionnalités qui permettent de lire, analyser et extraire les informations des documents, aidant ainsi les entreprises à mener à bien leur accélération digitale. Ainsi, les entreprises sont à même de construire automatiquement un jumeau digital interactif de leur processus, de les analyser en temps réel pour identifier les points de friction, et de prédire les résultats à venir ce qui leur permet une meilleure prise de décision en matière d'investissements technologiques.   
 Pour plus d'informations, visitez <https://www.abbyy.com/solutions/intelligent-process-automation-ipa/>.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 10 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Contact presse
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Eva-Maria Hufschmitt
 
@@ -73,27 +94,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-hilarity-host-the-10-funniest-twitter-challenges/"><u>[New] Hilarity Host The 10 Funniest Twitter Challenges</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-seamlessly-observe-the-most-praised-youtube-comments/"><u>[Updated] How to Seamlessly Observe the Most Praised YouTube Comments</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726030046414-windows-media-player/"><u>「ファイル再生中のWindows Media Player 問題」: 修正方法と解決策</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-step-by-step-guide-adjusting-your-sound-quality-by-changing-the-bitrate/"><u>1. Step-by-Step Guide: Adjusting Your Sound Quality by Changing the Bitrate</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-action-replay-gopro-hero5-black-meets-hero4-silver-edition/"><u>2024 Approved Action Replay GoPro Hero5 Black Meets Hero4 Silver Edition</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/dailymotionmp3/"><u>一歩で完了！Dailymotion動画をMP3ファイルに簡単に変換する手順</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/achieving-top-notch-clarity-recording-pro-tips-for-firestick-users/"><u>Achieving Top-Notch Clarity: Recording Pro Tips for Firestick Users</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/avchd-to-mp4-conversion-top-6-recommended-free-software-picks-for-superior-video-quality/"><u>AVCHD to MP4 Conversion: Top 6 Recommended Free Software Picks for Superior Video Quality</u></a></li>
-<li><a href="https://driver-download.techidaily.com/canon-mp250-inkjet-find-your-latest-driver-download-here/"><u>Canon MP250 Inkjet - Find Your Latest Driver Download Here</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/chromefirefoxm3u8/"><u>ChromeとFirefoxでM3U8動画を簡単にダウンロード</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Vivo S18e | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/economical-cameras-rated/"><u>Economical Cameras Rated</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-solutions-for-hidden-youtube-shorts-thumbnail-problems/"><u>In 2024, Solutions for Hidden YouTube Shorts Thumbnail Problems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726029019563-insta/"><u>Insta動画を最高に見せる投稿テクニック</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/plain-screen-recorder-windows-10-edition/"><u>Plain Screen Recorder - Windows 10 Edition</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-many-viewer-thumbs-up-equals-money-youtube-tips-for-2024/"><u>[Updated] How Many Viewer Thumbs Up Equals Money? YouTube Tips for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-replay-rare-relationship-recaps/"><u>2024 Approved Replay Rare Relationship Recaps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-future-of-professional-spaces-and-their-impact-on-productivity/"><u>2024 Approved The Future of Professional Spaces and Their Impact on Productivity</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5-outstanding-no-cost-tools-to-save-your-favorite-youtube-content-on-windows-ten/"><u>5 Outstanding No-Cost Tools to Save Your Favorite YouTube Content on Windows # Ten</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fast-conversion-guide-transforming-webm-files-into-mkv-format/"><u>Fast Conversion Guide: Transforming WebM Files Into MKV Format</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-13-mini-to-ipad-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 13 mini to iPad? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mov-file-conversion-step-by-step-guide-to-transforming-into-a-3gp-format-on-your-computer/"><u>MOV File Conversion: Step-by-Step Guide to Transforming Into a 3GP Format on Your Computer</u></a></li>
+<li><a href="https://some-skills.techidaily.com/polarr-editor-unveiled-ultimate-visual-transformation-for-2024/"><u>Polarr Editor Unveiled Ultimate Visual Transformation for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-your-pubg-voice-chat-issues-with-these-simple-steps/"><u>Solve Your PUBG Voice Chat Issues with These Simple Steps</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028147002-xperia/"><u>Xperiaデバイスで動画再生に失敗する方法: パワーオフから回復</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

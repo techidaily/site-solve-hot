@@ -1,7 +1,7 @@
 ---
 title: Customized Advertising with the Power of Cookiebot Technology
-date: 2024-09-18T01:54:43.904Z
-updated: 2024-09-18T19:14:45.710Z
+date: 2024-09-16T18:05:43.684Z
+updated: 2024-09-23T18:20:41.397Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fb656afcca36e04556318b24814fb553c32e021b58e5e7b1eb34d691269dedb8.jpg
@@ -23,6 +23,19 @@ As a UiPath technology partner, ABBYY enables UiPath customers to take advantage
 
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![drawer image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-document-archiving/drawer-image.jpg?h=392&iar=0&w=696)
 
 #### How ABBYY and UiPath work together 
@@ -33,6 +46,13 @@ With ABBYY’s solution for UiPath, you can...
 * Leverage leading OCR, document classification, and data extraction technologies to automate document-centric processes.
 * Automate the classification of documents and extraction of data through continuous auto-learning and user input.
 * Expand RPA usage to automate content-centric processes involving documents, images, and text to support strategic digital transformation initiatives.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Integration benefits
 
@@ -61,10 +81,17 @@ ABBYY FlexiCapture Connector for UiPath is an activity that provides the integra
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/uipath_logo_rev_120px.png?h=43&iar=0&w=120)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -86,13 +113,15 @@ ABBYY FlexiCapture Connector for UiPath is an activity that provides the integra
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-mastering-short-form-trimming-videos-for-youtube/"><u>[Updated] 2024 Approved Mastering Short-Form Trimming Videos for YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-strategies-to-skyrocket-like-counts-in-tiktok-unpack-videos/"><u>[Updated] In 2024, Strategies to Skyrocket 'Like' Counts in TikTok Unpack Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/bypass-restrictions-the-ultimate-tutorial-on-viewing-bilibili-worldwide/"><u>Bypass Restrictions: The Ultimate Tutorial on Viewing Bilibili Worldwide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/converting-youtube-content-into-convenient-audio-format-a-step-by-step-guide/"><u>Converting YouTube Content Into Convenient Audio Format: A Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/essential-digital-helpers-to-sharpen-prompt-engineering/"><u>Essential Digital Helpers to Sharpen Prompt Engineering</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transform-your-videos-into-broadcasts-with-manycam-the-top-choice-for-virtual-camera-technology/"><u>Transform Your Videos Into Broadcasts with ManyCam - The Top Choice for Virtual Camera Technology</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-say-goodbye-to-grainy-videos-top-resolution-enhancement-tools-for-2024/"><u>Updated Say Goodbye to Grainy Videos Top Resolution Enhancement Tools for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-soar-high-and-stream-straight-dji-drone-techniques-for-facebook-live/"><u>[Updated] Soar High & Stream Straight - DJI Drone Techniques for Facebook Live</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-essence-of-burst-in-gopro-filming-techniques/"><u>[Updated] The Essence of Burst in GoPro Filming Techniques</u></a></li>
+<li><a href="https://fox-info.techidaily.com/a-beginners-guide-to-adding-depth-with-text-in-photoshop-for-2024/"><u>A Beginner's Guide to Adding Depth with Text in Photoshop for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/share-your-printer-with-different-computers-a-simple-networking-guide/"><u>Share Your Printer with Different Computers - A Simple Networking Guide</u></a></li>
+<li><a href="https://win-able.techidaily.com/solving-pc-issues-how-to-prevent-no-rest-for-the-wicked-from-crashing/"><u>Solving PC Issues: How to Prevent 'No Rest for the Wicked' From Crashing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-changing-the-dvd-region-setting-on-your-pc/"><u>Step-by-Step Guide to Changing the DVD Region Setting on Your PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-adding-subtitles-to-your-facebook-videos/"><u>Step-by-Step Guide: Adding Subtitles to Your Facebook Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-3-secure-erome-video-downloading-tools-safely-extracting-content/"><u>Top 3 Secure Erome Video Downloading Tools - Safely Extracting Content</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transformative-tools-unveiling-top-6-nft-platforms-for-artists/"><u>Transformative Tools Unveiling Top 6 NFT Platforms For Artists</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wma3/"><u>WMA音楽を巧みに編集:ベストの3つのコストフリーソフト選び</u></a></li>
 </ul></div>
 

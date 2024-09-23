@@ -1,7 +1,7 @@
 ---
 title: AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60%% - Featured in IDC Worldwide MarketScape Ranking
-date: 2024-09-09T17:58:58.376Z
-updated: 2024-09-14T18:43:45.779Z
+date: 2024-09-21T18:13:25.756Z
+updated: 2024-09-23T18:38:02.372Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9737c06562bbb999378e5773.jpg
@@ -47,13 +47,34 @@ Bruce Orcutt, Chief Marketing Officer d'ABBYY
 
 Après avoir nommé récemment Bruce Orcutt au poste de CMO, ABBYY intensifie ses efforts de R&D grâce à l'intégration d'une nouvelle équipe composée d'ingénieurs expérimentés. Sous la direction de Patrick Jean, CTO/CPO d'ABBYY, l'équipe comprend Sanju Nair, VP des opérations produits et PMO, ainsi que les VP ingénierie Morgan Logue et Andy Wahrenberger.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À PROPOS D’ABBYY
 
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Contact presse
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray
 
@@ -79,27 +100,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enjoy-youtube-music-anytime-with-these-23-essential-no-cost-audio-extractors/"><u>[New] 2024 Approved Enjoy YouTube Music Anytime with These 23 Essential, No-Cost Audio Extractors</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-automate-your-website-with-efficient-cookiebot-power-solutions/"><u>1. Automate Your Website with Efficient Cookiebot Power Solutions</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-oneplus-12r-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for OnePlus 12R | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2021-kmworld-readers-favorite-titles-unveiled/"><u>2021 KMWorld Reader's Favorite Titles Unveiled</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724312830505-uipathabbyy-flexicapture/"><u>効率的な支払処理手法：UIPath・ABBYY FlexiCaptureのパワーコンビによる自動化アップ</u></a></li>
-<li><a href="https://tools.techidaily.com/apowersoft/phone-manager/"><u>ApowerManager</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automate-your-digital-campaigns-with-precision-powered-by-advanced-cookiebot-technology/"><u>Automate Your Digital Campaigns with Precision - Powered by Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-cookiebot-enhancing-your-sites-personalization/"><u>Automated User Tracking with Cookiebot: Enhancing Your Site's Personalization</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-comprehensiveness-in-film-capture-vs-dimensionality-in-visuals/"><u>In 2024, Comprehensiveness in Film Capture vs Dimensionality in Visuals</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/love-knows-no-language-building-stronger-ties/"><u>Love Knows No Language: Building Stronger Ties</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-the-art-of-effortless-nft-design-for-2024/"><u>Mastering the Art of Effortless NFT Design for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/navigate-through-common-apple-pay-complications-using-these-10-simple-strategies/"><u>Navigate Through Common Apple Pay Complications Using These 10 Simple Strategies</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/playful-conversations-find-out-why-these-6-chatgpt-games-are-must-tries/"><u>Playful Conversations: Find Out Why These 6 ChatGPT Games Are Must-Tries</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transforming-doc-mastery-with-abbyy-marketplace-advanced-llm-and-rag-technology-unleashed/"><u>Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-how-to-detach-audio-in-premiere-pro-step-by-step-guide-for-2024/"><u>Updated How to Detach Audio in Premiere Pro? Step by Step Guide for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-take-full-page-screen-images-for-2024/"><u>[New] Take Full-Page Screen Images for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/convert-mp3-to-wav-free-a-step-by-step-guide-for-windows-users/"><u>Convert MP3 to WAV Free: A Step-by-Step Guide for Windows Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/download-free-ultimate-online-flv-and-swf-converter-tool/"><u>Download Free - Ultimate Online Flv & Swf Converter Tool</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/easy-steps-to-open-and-play-dat-files-on-any-pc/"><u>Easy Steps to Open and Play DAT Files on Any PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-mp4-videos-to-flash-compatible-swf-format-anytime-anywhere/"><u>Effortless Conversion of MP4 Videos to Flash-Compatible SWF Format Anytime, Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-technique-for-extracting-dvd-chapters-with-exclusive-subtitles-only/"><u>Effortless Technique for Extracting DVD Chapters with Exclusive Subtitles Only</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-video-editing-efficiency-with-professional-prores-file-conversion-from-mts-source/"><u>Enhance Video Editing Efficiency with Professional ProRes File Conversion From MTS Source</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/five-proven-fixes-for-when-your-onedrive-videos-wont-start-step-by-step-instructions/"><u>Five Proven Fixes for When Your OneDrive Videos Won't Start: Step-by-Step Instructions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-htc-u23-pro-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked HTC U23 Pro Phone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-updated-list-of-conversation-catalysts-for-listener-retention/"><u>In 2024, Updated List of Conversation Catalysts for Listener Retention</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1725289205522-iphone-2024/"><u>IPhone 2024 リリース直前！新モデルのスペック比べ、ユーザーレビュー集約、欠陥チェック完全ガイド</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722897172675-samsungs-revolutionary-new-device-price-points-and-comprehensive-features-of-the-upcoming-galaxy-z-fold-abookmark-6-news-and-details/"><u>Samsung's Revolutionary New Device: Price Points and Comprehensive Features of the Upcoming Galaxy Z Fold Abookmark-6 News & Details.</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/saving-your-iphone-screen-a-step-by-step-approach-for-2024/"><u>Saving Your iPhone Screen A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/solidify-your-visual-content-with-grau-gmbhs-all-in-one-video-repair-kit/"><u>Solidify Your Visual Content with Grau GmbH's All-in-One Video Repair Kit</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/windows-paper-trail-issue-error-0x00000709-solution-found/"><u>Windows Paper Trail Issue - Error 0X00000709 Solution Found</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Scott Opitz Appointed as ABBYY's New Chief Technology & Product Officer
-date: 2024-09-14T23:48:07.004Z
-updated: 2024-09-19T03:26:35.307Z
+date: 2024-09-22T18:26:07.238Z
+updated: 2024-09-23T16:49:20.465Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad3863dd1f8be14d01cc17569.jpg
@@ -33,6 +33,13 @@ Er hatte zahlreiche Führungspositionen in den Bereichen Technologie- und Gesch�
 
 \[1\] IDC, Worldwide Intelligent Process Automation Software Forecast, 2021–2025, Doc # US48015622, July 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -43,9 +50,29 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -70,32 +97,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ecoding-the-secrets-of-highly-successful-youtube-shorts-templates-for-2024/"><u>[New] Decoding the Secrets of Highly Successful YouTube Shorts Templates for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-key-aspects-of-creating-animated-visual-narratives/"><u>[New] Key Aspects of Creating Animated Visual Narratives</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-behind-the-scenes-youtube-live-thumbnail-secrets/"><u>[Updated] In 2024, Behind the Scenes YouTube Live Thumbnail Secrets</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-zoom-webinar-basics-for-beginners-and-those-new-to-virtual-events-for-2024/"><u>[Updated] Zoom Webinar Basics for Beginners & Those New to Virtual Events for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-dive-deep-into-google-meet-a-free-host-and-participants-guide/"><u>2024 Approved Dive Deep Into Google Meet A Free Host & Participant's Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unveiling-the-world-of-wide-web-watching-via-fb/"><u>2024 Approved Unveiling the World of Wide Web Watching via FB</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-transformation-of-wmv-files-turn-them-into-mp4movmp3-for-universal-compatibility/"><u>Effortless Transformation of WMV Files - Turn Them Into MP4/MOV/MP3 for Universal Compatibility!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-ways-to-access-jackie-chan-films-online/"><u>Effortless Ways to Access Jackie Chan Films Online</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevating-dashcam-experience-fun-meets-utility-in-the-ddpai-mini3-overview/"><u>Elevating Dashcam Experience - Fun Meets Utility in the Ddpai Mini3 Overview</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/get-your-free-trial-of-the-ultimate-mp4-video-converter-safe-and-secure-online-shopping/"><u>Get Your Free Trial of the Ultimate MP4 Video Converter - Safe and Secure Online Shopping</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-perfecting-the-art-of-ppt-delivery-via-google-meet-any-device/"><u>In 2024, Perfecting the Art of PPT Delivery via Google Meet (Any Device)</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/master-the-art-of-converting-jpeg-pictures-to-gif-format-with-these-easy-to-follow-techniques/"><u>Master the Art of Converting JPEG Pictures to GIF Format with These Easy-to-Follow Techniques!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/secure-methods-for-downloading-youtube-content-save-your-favorite-videos-safely/"><u>Secure Methods for Downloading YouTube Content - Save Your Favorite Videos Safely</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-from-words-to-memos-iphone-sound-guide/"><u>[New] 2024 Approved From Words to Memos IPhone Sound Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-intellectual-arena-premier-knowledge-games/"><u>[New] Intellectual Arena - Premier Knowledge Games</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-value-capture-budget-cam-essentials/"><u>[New] Value Capture Budget Cam Essentials</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-filming-in-circle-iphone-techniques-for-facebook-integration/"><u>[Updated] 2024 Approved Filming in Circle IPhone Techniques for Facebook Integration</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-avoiding-instagrams-pitfalls-crafting-perfect-puzzle-posts-for-2024/"><u>[Updated] Avoiding Instagram's Pitfalls Crafting Perfect Puzzle Posts for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-mp4-videos-to-flash-compatible-swf-format-anytime-anywhere/"><u>Effortless Conversion of MP4 Videos to Flash-Compatible SWF Format Anytime, Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-technique-for-extracting-dvd-chapters-with-exclusive-subtitles-only/"><u>Effortless Technique for Extracting DVD Chapters with Exclusive Subtitles Only</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-video-editing-efficiency-with-professional-prores-file-conversion-from-mts-source/"><u>Enhance Video Editing Efficiency with Professional ProRes File Conversion From MTS Source</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/five-proven-fixes-for-when-your-onedrive-videos-wont-start-step-by-step-instructions/"><u>Five Proven Fixes for When Your OneDrive Videos Won't Start: Step-by-Step Instructions</u></a></li>
+<li><a href="https://games-able.techidaily.com/gamers-choice-the-finest-keyboards-gaming/"><u>Gamers' Choice: The Finest Keyboards Gaming</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/hd-video-converter-factory-pro-50/"><u>HD Video Converter Factory Pro - 割引！50%オフの特別価格で獲得</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-securely-keep-your-wistia-videos-for-future-use/"><u>How To Securely Keep Your Wistia Videos For Future Use</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-iphone-8-plus-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking iPhone 8 Plus with a Broken Screen?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/no-luck-with-roku-app-on-your-smart-tv-unlock-immediate-solutions-now/"><u>No Luck with Roku App on Your Smart TV? Unlock Immediate Solutions Now!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/page-located-no-longer-missing-discover-the-new-route-with-wonderfox/"><u>Page Located - No Longer Missing! | Discover the New Route with WonderFox</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/swiftly-realign-windows-desktop-elements/"><u>Swiftly Realign Windows Desktop Elements</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-perfect-photo-safe-mix-zero-cost-cloud-with-elite-paid-options/"><u>The Perfect Photo Safe Mix Zero-Cost Cloud with Elite Paid Options</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

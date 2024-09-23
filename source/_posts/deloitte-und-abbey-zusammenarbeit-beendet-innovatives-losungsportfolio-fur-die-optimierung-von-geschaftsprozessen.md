@@ -1,7 +1,7 @@
 ---
 title: Deloitte Und ABBEY Zusammenarbeit Beendet - Innovatives Lösungsportfolio Für Die Optimierung Von Geschäftsprozessen
-date: 2024-09-10T21:41:06.547Z
-updated: 2024-09-14T16:54:06.532Z
+date: 2024-09-19T18:38:39.538Z
+updated: 2024-09-23T18:40:09.832Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822adafed338c6c5049f6c7aefb.jpg
@@ -37,9 +37,29 @@ Mehr über die Partnerschaft zwischen Deloitte Luxemburg und ABBYY sowie über d
 
 \[1\] IDC, European Intelligent Process Automation Software Forecast, 2020-2024, Doc #EUR147055020, December 2020.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über Deloitte Luxemburg
 
 Mit mehr als 130 Partnern und 2.300 Mitarbeitern ist Deloitte Luxemburg eines der größten, stärksten und ältesten professionellen Dienstleistungsunternehmen im Großherzogtum. Seit mehr als 70 Jahren sind dessen talentierte Teams für Kunden in verschiedenen Branchen tätig und bieten nationalen und internationalen Kunden einen hohen Mehrwert in den Bereichen Wirtschaftsprüfung, Consulting, Finanzberatung, Risikoberatung, Steuern und damit verbundenen Dienstleistungen. Deloitte Luxemburg ist Teil des globalen Deloitte-Netzwerks, das in mehr als 150 Ländern und Territorien vertreten ist und vier von fünf Fortune Global 500®-Unternehmen betreut. Erfahren Sie unter [www.deloitte.com/lu](http://www.deloitte.com/lu) wie die Mitarbeiter von Deloitte etwas bewegen.
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Über ABBYY
 
@@ -52,10 +72,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -63,10 +83,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -92,16 +112,20 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-is-it-legal-to-screen-record-youtube-videos/"><u>[New] In 2024, Is It Legal to Screen Record YouTube Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-process-data-optimization-fuels-improved-rpa-outcomes-perspectives-by-abbyy-team/"><u>How Process Data Optimization Fuels Improved RPA Outcomes - Perspectives by ABBYY Team</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-vivo-v29-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Vivo V29 Without Password | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-13-pro-max-to-other-iphone-11-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 13 Pro Max to other iPhone 11 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-inspiration-boost-with-leading-hr-tapes/"><u>In 2024, Inspiration Boost with Leading HR Tapes</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Xiaomi 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/innovative-receipt-management-with-ai-technology-from-abbyy-streamlined-efficiency-for-businesses/"><u>Innovative Receipt Management with AI Technology From ABBYY - Streamlined Efficiency for Businesses</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leveraging-cookiebot-technology-for-advanced-website-personalization-and-analytics/"><u>Leveraging Cookiebot Technology for Advanced Website Personalization & Analytics</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/mastering-screen-capture-io-screener-guide/"><u>Mastering Screen Capture IO Screener Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-challenges-common-missteps-in-corporate-ai-integration-and-how-to-avoid-them/"><u>Navigating the Challenges: Common Missteps in Corporate AI Integration & How to Avoid Them</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-bookkeeping-strategies-with-abbyys-advanced-content-intelligence-tools/"><u>Optimizing Your Bookkeeping Strategies with ABBYY's Advanced Content Intelligence Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-guide-to-choosing-a-screen-for-superior-4k-video-for-2024/"><u>[New] The Ultimate Guide to Choosing a Screen for Superior 4K Video for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-accelerate-profits-using-the-top-15-facebook-data-analyzers/"><u>[Updated] Accelerate Profits Using the Top 15 Facebook Data Analyzers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/10-free-and-paid-luts-for-canon-camera-for-2024/"><u>10 Free & Paid LUTs for Canon Camera for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/a-beginners-guide-to-understanding-charger-types-level-1-level-2-and-beyond/"><u>A Beginner's Guide to Understanding Charger Types - Level 1, Level 2 and Beyond</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/bypass-restrictions-the-ultimate-tutorial-on-viewing-bilibili-worldwide/"><u>Bypass Restrictions: The Ultimate Tutorial on Viewing Bilibili Worldwide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-tools-to-bypass-lock-screenspark-20-by-drfone-android-unlock-android-unlock/"><u>Bypass Tools to Bypass Lock Screen(Spark 20)</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/converting-youtube-content-into-convenient-audio-format-a-step-by-step-guide/"><u>Converting YouTube Content Into Convenient Audio Format: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/create-your-own-iphone-ringtone-with-mp4-video-a-step-by-step-guide/"><u>Create Your Own iPhone Ringtone with MP4 Video: A Step-by-Step Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-itel-a70-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Itel A70 Phone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-the-world-of-gadgets-with-tom-your-guide-to-cutting-edge-hardware/"><u>Navigating the World of Gadgets with Tom - Your Guide to Cutting-Edge Hardware</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-evolution-of-5g-spotlight-on-verizons-innovations/"><u>The Evolution of 5G: Spotlight on Verizon's Innovations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-guide-mastering-the-art-of-ai-powered-motion-detection/"><u>Ultimate Guide: Mastering the Art of AI-Powered Motion Detection</u></a></li>
 </ul></div>
 

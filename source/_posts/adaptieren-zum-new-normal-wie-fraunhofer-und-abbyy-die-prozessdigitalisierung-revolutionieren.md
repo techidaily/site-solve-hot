@@ -1,7 +1,7 @@
 ---
 title: "Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren"
-date: 2024-09-10T16:32:07.106Z
-updated: 2024-09-14T21:11:46.080Z
+date: 2024-09-21T18:27:57.332Z
+updated: 2024-09-23T18:43:23.860Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0d31f5646fe3a9a749251ddb64d10288427198f92e87a603dc09ffcf334ba8c5.jpg
@@ -13,22 +13,36 @@ Studie
 
 ## Prozessdigitalisierung für das „New Normal“
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Branchenübergreifende Studie zu Herausforderungen und Chancen der Prozessoptimierung
 
 ![Prozessdigitalisierung für das New Normal](https://static1.abbyy.com/abbyycommedia/34552/118-process-digitization-for-the-new-normal-de-360x232.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Prozesstechnologien wie Process Mining, Robotic Process Automation oder Process Monitoring finden in Unternehmen aller Branchen zunehmend mehr Akzeptanz und Anwendung. Beschleunigt wird diese Entwicklung durch Trends wie Fachkräftemangel, mehr Automatisierungs- und Innovationsdruck und nicht zuletzt die Covid-19-Pandemie.
 
 Unsere aktuelle Studie in Zusammenarbeit mit dem Fraunhofer-Institut für Angewandte Informationstechnik FIT zeigt allerdings, dass viele Unternehmen mit dem aktuellen Stand ihrer Geschäftsprozesse noch nicht zufrieden sind und großes Verbesserungspotenzial sehen. Im Rahmen der Studie wurden Unternehmen der Branchen Versicherungen und Banken sowie Logistik und Produktion befragt.
 
-### Laden Sie die Studie jetzt herunter, um mehr über den aktuellen Stand zum Einsatz von Prozesstechnologien und damit einhergehende Handlungsempfehlungen zu erfahren.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### Laden Sie die Studie jetzt herunter, um mehr über den aktuellen Stand zum Einsatz von Prozesstechnologien und damit einhergehende Handlungsempfehlungen zu erfahren.
 
 ## Danke für Ihr Interesse an ABBYY.
 
@@ -37,10 +51,10 @@ Unsere aktuelle Studie in Zusammenarbeit mit dem Fraunhofer-Institut für Angewa
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -112,17 +126,24 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-first-flight-journey-with-syma-x5c-best-start-to-uav-hobbies/"><u>[New] 2024 Approved First Flight Journey with Syma X5C Best Start to UAV Hobbies</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-metaverse-marketing-revolutionizing-customer-outreach/"><u>[New] Metaverse Marketing Revolutionizing Customer Outreach</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-premier-cycling-titles-to-try-out-for-2024/"><u>[New] Premier Cycling Titles to Try Out for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-mastering-motion-control-top-camera-gadgets/"><u>[Updated] Mastering Motion Control - Top Camera Gadgets</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/digital-preservation-with-abbyy-tools-at-the-core-of-south-koreas-archival-project/"><u>Digital Preservation with ABBYY Tools at the Core of South Korea's Archival Project</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-web-personalization-using-the-power-of-cookiebot-technology/"><u>Elevate Web Personalization Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-website-traffic-with-advanced-cookiebot-seo-solutions/"><u>Enhance Website Traffic with Advanced Cookiebot SEO Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-website-personalization-with-cookiebot-technology/"><u>Enhanced Website Personalization with Cookiebot Technology</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/freeing-yourself-from-the-mobile-tether-register-on-chatgpt-telegram-and-whatsapp-without-a-phone-number-in-easy-steps/"><u>Freeing Yourself From the Mobile Tether: Register on ChatGPT, Telegram & WhatsApp without a Phone Number in Easy Steps</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-move-custom-ringtones-from-apple-iphone-13-to-android-drfone-by-drfone-transfer-from-ios/"><u>How to Move Custom Ringtones from Apple iPhone 13 to Android? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Realme 11 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/start-filming-right-the-newbies-guide-to-video-gear/"><u>Start Filming Right The Newbie's Guide to Video Gear</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-extended-scope-camera-platforms-for-2024/"><u>[Updated] Extended Scope Camera Platforms for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-crafting-photos-into-engaging-videos-in-pixiz/"><u>[Updated] Step-by-Step Crafting Photos Into Engaging Videos in Pixiz</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027984322-avidemux/"><u>Avidemuxを使った簡単な動画編集:切り取り・区切り手順</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/brief-blueprints-sending-ios-videos-and-images/"><u>Brief Blueprints Sending iOS Videos & Images</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/drone-design-changes-experiment-for-free-subscribe-for-paid-access/"><u>Drone Design Changes - Experiment for Free, Subscribe for Paid Access</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/exploring-the-future-microsofts-early-implementation-of-wi-fi-7-technology-on-windows-11-platform/"><u>Exploring the Future: Microsoft's Early Implementation of Wi-Fi 7 Technology on Windows 11 Platform</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-effortless-production-of-fb-ad-videos-with-complimentary-kit/"><u>In 2024, Effortless Production of FB Ad Videos with Complimentary Kit</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-v30-lite-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo V30 Lite 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/iphonem4a/"><u>IPhoneで音楽ファイルM4Aをうまく再生する方法：トラブルシューティングと最適なアプリ選び</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/israelian-journey-essentials-must-know-guide-and-dialogue-tools/"><u>Israelian Journey Essentials: Must-Know Guide & Dialogue Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mov-file-conversion-step-by-step-guide-to-transforming-into-a-3gp-format-on-your-computer/"><u>MOV File Conversion: Step-by-Step Guide to Transforming Into a 3GP Format on Your Computer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/region-free-dvd-player-setup-enjoy-us-movies-in-the-uk-without-any-hassle/"><u>Region-Free DVD Player Setup: Enjoy US Movies in the UK Without Any Hassle</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-guide-to-bisecting-movies-for-every-device-desktops-laptops-ios-and-android-systems/"><u>Simple Guide to Bisecting Movies for Every Device: Desktops, Laptops, iOS and Android Systems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-flawlessly-turn-avchd-content-into-prores-files/"><u>Step-by-Step Guide to Flawlessly Turn AVCHD Content Into ProRes Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-seamlessly-changing-m4v-videos-to-webm-for-online-use/"><u>Step-by-Step Tutorial on Seamlessly Changing M4V Videos to WebM for Online Use</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transforming-the-olympic-games-the-influence-of-artificial-intelligence-with-abbyy/"><u>Transforming the Olympic Games: The Influence of Artificial Intelligence with ABBYY</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-resolving-non-playable-xvid-codec-files-in-your-plex-library/"><u>Troubleshooting Guide: Resolving Non-Playable Xvid Codec Files in Your Plex Library</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ultimate-video-editor-with-ai-optimize-convert-and-edit-videos-seamlessly-using-winxvideo/"><u>Ultimate Video Editor with AI: Optimize, Convert & Edit Videos Seamlessly Using Winxvideo</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vlcmp4mp3/"><u>VLCを使用してMP4ファイルをMP3に転記する方法</u></a></li>
 </ul></div>
 

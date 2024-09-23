@@ -1,7 +1,7 @@
 ---
 title: "Navigating the 'New Normal': How and Why Cloud IT Investments Are Set to Soar"
-date: 2024-09-12T19:10:36.472Z
-updated: 2024-09-14T20:24:40.333Z
+date: 2024-09-18T16:40:56.923Z
+updated: 2024-09-23T16:58:54.356Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/819ca37a79eec3bdd5aa4e06aa1b76048f3e0307801a786c71f9bbf8a10f29d0.jpg
@@ -21,9 +21,23 @@ September 16, 2020
 
 After many years of continuous growth, IT investments are predicted to [drop by 7.3% in 2020](https://www.gartner.com/en/newsroom/press-releases/2020-07-13-gartner-says-worldwide-it-spending-to-decline-7-point-3-percent-in-2020), according to Gartner, with the largest gaps expected in spending for hardware such as IT devices and data center infrastructure. At the same time, this renowned market research company predicts worldwide revenues that relate to public cloud IT services [to increase by 6.3% in 2020](https://www.gartner.com/en/newsroom/press-releases/2020-07-13-gartner-says-worldwide-it-spending-to-decline-7-point-3-percent-in-2020). At first glance, the reports deliver contradictory messages; but in reality, they underpin the fact that the cloud computing will continue to surge during the months ahead.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fast adoption of cloud computing IT within a slow IT market
 
 ![pursue cloud IT strategies](https://static1.abbyy.com/abbyycommedia/29600/cloud-it-spending-forecast-4.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In the beginning of 2020, the COVID-19 pandemic reached the world quickly and caught enterprise companies by surprise. Very strict lock-down regulations in many countries cut off supply chains, made customer meetings impossible, banned employees from offices, and caused an atmosphere of uncertainty. This led to shrinking revenue, investment cut-offs, and reductions in spending (including IT) in many companies.
 
@@ -32,6 +46,19 @@ As economies gradually re-open during the post-pandemic phase, the need to condu
 ### Why will enterprises move their IT into the cloud faster than ever?
 
 ![cloud-based IT systems](https://static1.abbyy.com/abbyycommedia/29598/cloud-it-spending-forecast-2.png)
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The following trends will underpin the pursuits of enterprises to move their IT infrastructure into the cloud:
 
@@ -50,10 +77,16 @@ As enterprise customers will be increasing their spending for cloud-based IT sys
 Eva Weber
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -119,20 +152,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-proficiently-upload-impressive-elongated-youtube-content/"><u>[New] 2024 Approved How to Proficiently Upload Impressive, Elongated YouTube Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-elite-15-high-definition-action-recorders/"><u>[New] In 2024, Elite 15 High-Definition Action Recorders</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-elite-nintendo-switch-fighters-showdown-max-156/"><u>[Updated] In 2024, Elite Nintendo Switch Fighters Showdown (Max 156)</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724313529513-nsdabbyy/"><u>市場のリーダー、株式会社NSD及びABBYY 日本合同銀行が認定パートナー契約を成立:関係者コメントと展望</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbeyy-software-entdeckung-im-kunsthaus-von-rotterdam/"><u>ABBEYY-Software-Entdeckung Im Kunsthaus Von Rotterdam</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-announces-smart-data-entry-solution-on-uipath-go-platform/"><u>ABBYY Announces Smart Data Entry Solution on UiPath GO Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-finereader-server50/"><u>ABBYY FineReader Serverで過去50年間の文書検索能力向上</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-treibt-carlsberg-auf-globalen-spitzenplatz-schnelle-expansion-und-marktreife/"><u>ABBYY Treibt Carlsberg Auf Globalen Spitzenplatz - Schnelle Expansion Und Marktreife</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/behind-the-scenes-navigating-multiple-viewpoints-on-facebook-live-for-2024/"><u>Behind the Scenes Navigating Multiple Viewpoints on Facebook Live for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-traffic-and-engagement-with-cookiebot-integration-the-ultimate-seo-solution/"><u>Boost Traffic and Engagement with Cookiebot Integration: The Ultimate SEO Solution</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/building-lasting-relationships-with-saas-users-5-key-techniques/"><u>Building Lasting Relationships with SaaS Users: 5 Key Techniques</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/hidden-treasures-the-undisclosed-window-11-tricks-youve-overlooked-for-2024/"><u>Hidden Treasures The Undisclosed WINDOW 11 Tricks You've Overlooked for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-emotionally-enhanced-youtube-commentary/"><u>In 2024, Emotionally-Enhanced YouTube Commentary</u></a></li>
-<li><a href="https://games-able.techidaily.com/navigating-the-refunds-fortnite-purchase-fiasco/"><u>Navigating the Refunds: Fortnite Purchase Fiasco</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/unveiling-the-best-perian-replacements-must-try-applications-for-both-macos-and-windows-users/"><u>Unveiling the Best Perian Replacements: Must-Try Applications for Both macOS and Windows Users</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-insightful-evaluation-androids-photography-tool-lightroom-for-2024/"><u>[Updated] Insightful Evaluation Android's Photography Tool, Lightroom for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-optimizing-video-posts-with-flawless-srt-file-integration-tactics/"><u>[Updated] Optimizing Video Posts with Flawless SRT File Integration Tactics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028139677-7/"><u>最新動画削減ソフトウェアリスト・日本語版上位7つ - おすすめベータサイト</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/cost-free-webm-playback-the-top-10-players-reviewed/"><u>Cost-Free WebM Playback The Top 10 Players Reviewed</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exclusive-hub-free-images-galore-across-the-web/"><u>Exclusive Hub Free Images Galore Across the Web</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/eye-catching-clues-to-fraudulent-chatgpt-websites/"><u>Eye-Catching Clues to Fraudulent ChatGPT Websites</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/kinemasters-comprehensive-guide-to-green-screen-usage/"><u>Kinemaster's Comprehensive Guide to Green Screen Usage</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolving-windows-7-back-image-issue/"><u>Resolving Windows 7 Back Image Issue</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/start-your-ai-adventure-with-these-9-community-hubs/"><u>Start Your AI Adventure with These 9 Community Hubs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tactical-approach-for-finalizing-a-dormant-linkedin-profile/"><u>Tactical Approach for Finalizing a Dormant LinkedIn Profile</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030257633-vlc/"><u>VLCメディアプレーヤーによる動画編集: 簡単な切り取りとカット手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027274485-windows-10/"><u>Windows 10向けゲーム録画の究極ガイド</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
 </ul></div>
 

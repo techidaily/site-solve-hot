@@ -1,7 +1,7 @@
 ---
 title: "Optimized with Advanced Traffic Analytics: The Cookiebot Way"
-date: 2024-09-16T20:22:13.032Z
-updated: 2024-09-19T03:18:56.030Z
+date: 2024-09-17T18:44:21.981Z
+updated: 2024-09-23T16:48:39.616Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8cc2f26346852b595fe32553f266efaeb26b116a663fa0800cea00c3335313c9.png
@@ -40,13 +40,6 @@ As for the motivation while working from home, 36.2% of our users haven’t noti
 
 ![](https://static1.abbyy.com/abbyycommedia/29710/productivity-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How long did your typical work day last?
 
 A typical work day during the quarantine mostly lasted 8 – 10 hours (33.8%). Of our respondents, 25.7% worked 6 – 8 hours a day, and 19.6% worked 4 – 6 hours.
@@ -54,34 +47,41 @@ A typical work day during the quarantine mostly lasted 8 – 10 hours (33.8%). O
 ![](https://static1.abbyy.com/abbyycommedia/29711/productivity-4.jpg)  
 Compared to pre-COVID, 43.2% of respondents worked longer hours for personal reasons while staying home, and 27.3% worked shorter hours for personal reasons. Here’s what some respondents shared:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _“Longer hours because of dissolution of work boundaries.”_  
 _“Working at home while providing full time care has resulted in extremely long work days to complete my workload.”_  
 _“I will not say I work more or less compared to when things were normal. However, I have noticed that there are lot of time-wasting activities from other colleagues or superiors which rarely comes up when working from home.”_  
 _“Longer hours due to feeling I must perform better under the circumstance of working from home rather than an office building.”_ 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What is your preferred workplace arrangement when you will be able to return to the office?
 
 Respondents (53%) said that going forward, they would prefer an arrangement that enables flexibility between working from home and working in the office. Many indicated they prefer either splitting their time 50/50 or working mostly from home with some days in the office.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Any advantages?
 
 Participants of the survey pointed out many advantages of remote work. The most popular were:
 
 ![](https://static1.abbyy.com/abbyycommedia/29712/productivity-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Also, some of our users shared their advantages:
 
@@ -99,13 +99,6 @@ _“The lack of in-person communication, in general, makes it less fun to work f
 _“I spend longer periods sitting and not moving around every so often.”_  
 _“Workstation not as powerful as in the Office.”_ 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Work-life balance
 
 The majority of respondents (56%) also noted that working from home has impacted their work-life balance positively. Only 16.3% stated that their work-life balance had been negatively impacted by the lockdown.
@@ -113,11 +106,32 @@ The majority of respondents (56%) also noted that working from home has impacted
 ![](https://static1.abbyy.com/abbyycommedia/29714/productivity-7.jpg)  
 While 40.6% of respondents preferred dispersing work and relaxation throughout the day, 24.8% experienced trouble switching from work to relaxation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Was it more stressful?
 
 The research showed that working remotely helped 43.8% of respondents to cut down on their stress level, and while 34.5% didn’t notice any changes in their stress level, unfortunately, 20.5% of our users felt more stressed while working from home.
 
 ![](https://static1.abbyy.com/abbyycommedia/29715/productivity-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What about your screen time and gadgets usage?
 
@@ -138,19 +152,19 @@ We also wanted to learn if our users follow any blogs or podcasts on meditation,
 * [BrainHQ](https://www.brainhq.com/?v4=true&fr=y)  
 … and many others.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Who are you?
 
 The majority of respondents (51.5%) are 40 – 59 years old. They are specialists, managers, and directors mostly in IT, engineering, sales, and education.  
 Thank you everyone that participated in our survey!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -215,17 +229,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-unveiling-the-best-practices-in-cds-ripping-and-burning-with-win-media/"><u>[New] Unveiling the Best Practices in Cds Ripping & Burning with Win, Media</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-fastest-route-for-srt-to-text-file-conversion/"><u>[Updated] The Fastest Route for SRT to Text File Conversion</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726028139677-7/"><u>最新動画削減ソフトウェアリスト・日本語版上位7つ - おすすめベータサイト</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On HTC U23 Pro | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-iphone-12-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your iPhone 12?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/ideal-choices-our-exclusive-top-10-gopro-case-picks-for-2024/"><u>Ideal Choices Our Exclusive Top 10 GoPro Case Picks for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Infinix Hot 40i | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/legendary-loops-leading-10-rogues-for-2024/"><u>Legendary Loops Leading 10 Rogues for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/the-ultimate-guide-to-the-most-effective-av-to-dvd-converters-of-2024-for-pcs-running-win-1011/"><u>The Ultimate Guide To The Most Effective Av To Dvd Converters of 2024 for PCs Running Win 10/11</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/vlcts-how-to-merge-ts-files-using-vlc-media-player/"><u>VLCメディアプレーヤーでTSファイル連結の手順 - How to Merge TS Files Using VLC Media Player</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726027274485-windows-10/"><u>Windows 10向けゲーム録画の究極ガイド</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windowsh2-hevc/"><u>WindowsでH.2지베이 HEVCフォーマットの動画再生に問題がある方のハウツー</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-premier-external-hard-drive-choices-for-xbox/"><u>[New] 2024 Approved Premier External Hard Drive Choices for Xbox</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-mastering-the-art-of-screen-sharing-in-zoom-for-2024/"><u>[New] Mastering the Art of Screen Sharing in Zoom for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-free-recording-tool-for-every-android-enthusiast/"><u>[Updated] 2024 Approved Free Recording Tool for Every Android Enthusiast</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-optimizing-facebooks-broadcast-platform-with-360-vids/"><u>[Updated] 2024 Approved Optimizing Facebook's Broadcast Platform with 360 Vids</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-how-to-upload-without-rt-video-tweets/"><u>[Updated] In 2024, How to Upload Without RT Video Tweets</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/44cm44ol44kz44ol44kz5yuv55s744gu44kq44o844oh44kj44kq44gg44gr5oq95ye644go5lplusd5a2y5pa55rov44cn/"><u>「ニコニコ動画のオーディオだけ抽出と保存方法」</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/comprehensive-guide-to-premium-data-reservoirs-for-2024/"><u>Comprehensive Guide to Premium Data Reservoirs for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/essential-guide-to-choosing-a-superior-gif-editor-for-seamless-cropping-across-devices/"><u>Essential Guide to Choosing a Superior GIF Editor for Seamless Cropping Across Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/goproyoutube/"><u>GoProビデオをYoutubeにアップロードしたら画質がぼやける？解消方法</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-microsoft-surface-duo-costly-yet-faulty-performance/"><u>In-Depth Analysis of Microsoft Surface Duo: Costly Yet Faulty Performance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seeking-top-sound-quality-in-compact-file-formats-what-are-your-options/"><u>Seeking Top Sound Quality in Compact File Formats - What Are Your Options?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-10-tecnicas-para-transformar-videos-em-gifs-com-a-ferramenta-do-movavi/"><u>Top 10 Técnicas Para Transformar Vídeos Em GIFs Com a Ferramenta Do Movavi</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ultimate-guide-mastering-video-scaling-techniques-in-adobe-premiere-pro/"><u>Ultimate Guide: Mastering Video Scaling Techniques in Adobe Premiere Pro</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ultimate-techniques-and-tips-for-successfully-opening-bin-files/"><u>Ultimate Techniques and Tips for Successfully Opening BIN Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028678116-windows-10/"><u>Windows 10で最適なビデオキャプチャテクニック４選：高解像度版</u></a></li>
 </ul></div>
 

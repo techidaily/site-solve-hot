@@ -1,7 +1,7 @@
 ---
 title: Automated User Tracking with the Cookiebot Solution
-date: 2024-09-12T18:35:34.556Z
-updated: 2024-09-14T20:32:47.107Z
+date: 2024-09-16T17:12:11.745Z
+updated: 2024-09-23T17:02:50.244Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1040d06f8d0aa10730551351f9cb44d3bcea699d80952a8774c562402ba30c3b.jpg
@@ -33,6 +33,13 @@ One of the critical aspects of online services involving sensitive data—such a
 
 A common misperception of identity proofing equates it with another common online security concept, _identity authentication_. Authentication is the use of a combination of credentials—generally a username and password—to gain access to a resource. However, before users can be assigned credentials, especially for access to sensitive resources, they must first verify who they are through identity proofing.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How does identity proofing work?
 
 The NIST identifies [three steps that make up the identity proofing process](https://pages.nist.gov/800-63-3/sp800-63a.html#sec5):
@@ -43,6 +50,13 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 ![](https://static1.abbyy.com/abbyycommedia/36099/2_steps-in-identity-proofing-and-identity-affirmation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
 
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
@@ -52,6 +66,13 @@ While identity proofing is a vital capability for organizations looking to secur
 Identity affirmation, [according to Gartner](https://www.gartner.com/en/documents/3990087), “describes capabilities that either assess solely whether the real-world identity exists or can provide supporting risk or trust signals to an identity claim.” Successful identity affirmation requires access to multiple outside data sources. For example, in a low-confidence, high-risk transaction, a business will want to verify an address via a utility bill, birth certificate, income statement, and credit bureau data to verify that this data corresponds to an actual human being.
 
 When businesses leverage identity proofing and identity affirmation in tandem, they can enjoy a high level of confidence that the users they interact with really are who they say they are.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is there a “one-stop shop” for identity proofing and affirmation capabilities?
 
@@ -97,10 +118,10 @@ While fraud can happen in nearly any industry, sectors with a high frequency of 
 ![abbyy proof of identity](https://static1.abbyy.com/abbyycommedia/36104/poi-gif-4_using-poi-1.gif?width=847&height=477)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Over the course of just a few years, the volume and complexity of online transactions has grown exponentially, both for better and for worse. Fortunately, identity proofing and affirmation solutions can help businesses continue to meet consumers’ demands for efficient, convenient services while also staying one step ahead of fraudulent actors.
@@ -108,13 +129,6 @@ Over the course of just a few years, the volume and complexity of online transac
 Not only can you minimize the risk of fraud—and the corresponding costs in terms of money and reputation—but you can also earn and build upon the trust of your customers, building relationships that can support business goals for years to come.
 
 Learn about ABBYY's comprehensive identity proofing solution. [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/) does it all. 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### ABBYY Proof of Identity
 
@@ -187,16 +201,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-changing-ringtones-on-an-iphone-a-user-friendly-approach/"><u>[New] Changing Ringtones on an iPhone A User-Friendly Approach</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-quick-guide-to-gopro-4k-video-enhancement/"><u>[New] Quick Guide to GoPro 4K Video Enhancement</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-compreeved-guide-to-creating-stellar-youtube-outros-for-2024/"><u>[Updated] Compreeved Guide to Creating Stellar YouTube Outros for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-virtual-lands-the-best-10-smartphone-vr-headsets/"><u>2024 Approved Explore Virtual Lands The Best 10 Smartphone VR Headsets</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/authentification-des-id-avec-trustid-et-abyeocr-un-passage-au-cloud-pour-la-validation-securisee/"><u>Authentification Des ID Avec TrustID Et ABYEOCR : Un Passage Au Cloud Pour La Validation Sécurisée</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-analytics-with-our-cookiebot-integration-solutions/"><u>Boost Analytics with Our Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-website-traffic-with-cutting-edge-cookiebot-technology/"><u>Boost Your Website Traffic with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-lintelligence-artificielle-renforce-la-motivation-des-collaborateurs-gain-dacces-a-linformation-dans-les-rapports/"><u>Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-motorola-moto-g23-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Motorola Moto G23? Try These Fixes</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-12-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme 12 5Gwith/without a PC</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-full-screen-recovered-from-obs-errors/"><u>In 2024, Full Screen Recovered From OBS Errors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/est-free-introduction-software-for-youtubers-for-2024/"><u>[New] Best Free Introduction Software for Youtubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-new-era-of-youtube-naming-unique-ideas-for-modern-blogging-and-filming-maximum-length-156-characters/"><u>[New] The New Era of Youtube Naming Unique Ideas For Modern Blogging & Filming (Maximum Length 156 Characters)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-ideal-steps-for-silent-screen-imaging/"><u>[Updated] In 2024, Ideal Steps for Silent Screen Imaging</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/dailymotionmp3/"><u>一歩で完了！Dailymotion動画をMP3ファイルに簡単に変換する手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/avchd-to-mp4-conversion-top-6-recommended-free-software-picks-for-superior-video-quality/"><u>AVCHD to MP4 Conversion: Top 6 Recommended Free Software Picks for Superior Video Quality</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/beginners-guide-converting-youtube-content-into-audio-acoustic-coding-aac-format/"><u>Beginner's Guide: Converting YouTube Content Into Audio-Acoustic Coding (AAC) Format</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/chromefirefoxm3u8/"><u>ChromeとFirefoxでM3U8動画を簡単にダウンロード</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/efficient-conversion-techniques-turning-wmv-files-into-high-quality-wav/"><u>Efficient Conversion Techniques: Turning WMV Files Into High-Quality WAV</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-vob-files-into-common-formats-like-h264-mp4-mkv-mov-and-avi/"><u>Effortless Conversion of VOB Files Into Common Formats Like H.264 MP4, MKV, MOV & AVI</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-save-your-favorite-antenna-tv-episodes-updated-techniques/"><u>How to Save Your Favorite Antenna TV Episodes: Updated Techniques</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Vivo X100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/join-wonderfoxs-lucrative-affiliate-scheme-and-earn-profits-now/"><u>Join WonderFox's Lucrative Affiliate Scheme & Earn Profits Now!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-the-digital-world-through-toms-computer-and-hardware-analysis/"><u>Navigating the Digital World Through Tom's Computer & Hardware Analysis</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-virtualdub-is-it-still-the-best-top-alternatives-revealed/"><u>New In 2024, Virtualdub Is It Still the Best? Top Alternatives Revealed</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-out-of-memory-errors-for-a-smoother-gaming-experience-in-rdr2/"><u>Troubleshoot Out-Of-Memory Errors for a Smoother Gaming Experience in RDR2</u></a></li>
 </ul></div>
 

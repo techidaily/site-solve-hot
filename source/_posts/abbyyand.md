@@ -1,7 +1,7 @@
 ---
 title: "ABBYYジャパンと共同開発した最新技術:パーソルプロセス&テクノロジーによる革新"
-date: 2024-09-12T02:38:41.827Z
-updated: 2024-09-18T22:04:46.109Z
+date: 2024-09-16T17:44:35.900Z
+updated: 2024-09-23T16:05:28.947Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c32a9023581f934b16334c5a.jpg
@@ -17,6 +17,13 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## _パーソルプロセス＆テクノロジー ABBYYジャパンと協業 紙やPDFなどの非定型の帳票をデータ化 データ処理の全自動化で圧倒的な業務の効率化を実現_ 
 
 #### _～クラウドとの組み合わせで、手軽に低コストでAI-OCRの導入を可能に～_
@@ -25,6 +32,14 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
 ![](https://static1.abbyy.com/abbyycommedia/22979/pr-japanese-partnership.jpg)
   
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
   
 本提携では、ABBYYが提供するデータキャプチャおよびドキュメント処理ソフトウェアの「ABBYY Flexi Capture（※1）」や自動化・大量の文書変換ソフトウェア「ABBYY FineReader Server（※2）」などのAIを活用した製品のライセンス販売、および導入支援をパッケージ化し、またその後のデータを基幹システムへ自動移行するためのツール開発やRPAの導入支援、製品操作におけるトレーニングにいたるまで、トータルに支援するサービスを提供いたします。
 
@@ -53,6 +68,13 @@ AI-OCRに学習させるための膨大なデータの読み込み作業、企�
 
 ![](https://static1.abbyy.com/abbyycommedia/23240/abbyy-on-azure.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ※ABBYY製品(FineReader Server及びFlexi Capture 以外のサービスも含みます)
 
 ※サービス名称はパーソルP&Tのオリジナルとなります。
@@ -66,6 +88,13 @@ AI-OCRに学習させるための膨大なデータの読み込み作業、企�
 #####  今後の予定サービス
 
 ![Data vs Knowledge Mining ABBYY](https://static1.abbyy.com/abbyycommedia/22989/abbyy-on-data-mining_abbyy-on-knowledge-mining-small.png?width=748&height=320&mode=max)
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ※ABBYY製品(FineReader Server及びFlexi Capture 以外のサービスも含みます)
   
@@ -117,26 +146,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-intova-x-reviewed-cutting-edge-action-capture/"><u>[New] Intova X Reviewed Cutting-Edge Action Capture</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-beginners-guide-to-iphone-slow-movement-videography-for-2024/"><u>[New] The Beginner's Guide to iPhone Slow Movement Videography for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-from-console-to-community-livestream-your-xbox/"><u>[Updated] In 2024, From Console to Community Livestream Your Xbox</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/5-outstanding-no-cost-tools-to-save-your-favorite-youtube-content-on-windows-ten/"><u>5 Outstanding No-Cost Tools to Save Your Favorite YouTube Content on Windows # Ten</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726026567366-gopro/"><u>高品質なGoProフィルムに変える解像度調節手順</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fast-conversion-guide-transforming-webm-files-into-mkv-format/"><u>Fast Conversion Guide: Transforming WebM Files Into MKV Format</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Vivo S18e? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-vivo-s17e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-apple-iphone-xs-max-to-other-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Photos from Apple iPhone XS Max to other iPhone without iCloud | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c67-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Realme C67 5G Phone without Any Data Loss</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mov-file-conversion-step-by-step-guide-to-transforming-into-a-3gp-format-on-your-computer/"><u>MOV File Conversion: Step-by-Step Guide to Transforming Into a 3GP Format on Your Computer</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/nvidia-driver-update-for-windows-11-made-easy-find-install-and-enjoy/"><u>NVIDIA Driver Update for Windows 11 Made Easy: Find, Install, and Enjoy!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/region-free-dvd-player-setup-enjoy-us-movies-in-the-uk-without-any-hassle/"><u>Region-Free DVD Player Setup: Enjoy US Movies in the UK Without Any Hassle</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726028147002-xperia/"><u>Xperiaデバイスで動画再生に失敗する方法: パワーオフから回復</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-achieve-balance-in-visuals-through-aspect-choices/"><u>[New] Achieve Balance in Visuals Through Aspect Choices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-spectrum-sync-master/"><u>[New] Spectrum Sync Master</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-deciphering-youtubes-shorts-funding-mechanism/"><u>[Updated] 2024 Approved Deciphering YouTube's Shorts Funding Mechanism</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-mastering-rl-recording-techniques/"><u>[Updated] 2024 Approved Mastering RL Recording Techniques</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-speeding-up-live-instagram-broadcasts-on-desktop/"><u>2024 Approved Speeding Up Live Instagram Broadcasts on Desktop</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/discover-top-10-camcorders-in-depth-analysis/"><u>Discover Top 10 Camcorders – In-Depth Analysis</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-nokia-c02-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Nokia C02 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-oneplus-12-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On OnePlus 12? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/secure-methods-for-downloading-youtube-content-save-your-favorite-videos-safely/"><u>Secure Methods for Downloading YouTube Content - Save Your Favorite Videos Safely</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-combining-multiple-videos-into-one-with-google-photos-for-windowsmac-users/"><u>Step-by-Step Guide to Combining Multiple Videos Into One with Google Photos for Windows/Mac Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-downloading-tweets-as-video-files-from-any-smartphone-or-computer/"><u>Step-by-Step Guide: Downloading Tweets as Video Files From Any Smartphone or Computer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-3gp-videos-into-high-quality-mov-formats/"><u>Step-by-Step Guide: Transforming 3GP Videos Into High-Quality MOV Formats</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-how-to-listen-to-and-transform-fsb-recordings-into-mp3-files/"><u>Step-by-Step Tutorial on How to Listen to and Transform FSB Recordings Into MP3 Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-14-free-mobile-anime-viewing-apps-best-picks-for-android-and-ios-devices/"><u>Top 14 FREE Mobile Anime Viewing Apps: Best Picks for Android & iOS Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-7-screen-recording-tools-for-pcs-and-macbooks-find-the-perfect-one/"><u>Top 7 Screen Recording Tools for PCs & MacBooks - Find the Perfect One</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

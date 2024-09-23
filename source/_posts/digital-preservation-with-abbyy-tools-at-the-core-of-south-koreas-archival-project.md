@@ -1,7 +1,7 @@
 ---
 title: Digital Preservation with ABBYY Tools at the Core of South Korea's Archival Project
-date: 2024-09-08T21:45:06.263Z
-updated: 2024-09-14T20:57:15.740Z
+date: 2024-09-19T18:07:04.977Z
+updated: 2024-09-23T18:09:13.115Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8a0450f4fd7bc300e9114c673cd1aaae00e28e53efb0dd838d2ce71919e2b2da.jpg
@@ -19,6 +19,13 @@ Other | Digital Archiving
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ABBYY Recognition Server® digitizes the National Assembly Library of Korea
 
 Other | Library Conversion 
@@ -28,6 +35,13 @@ Other | Library Conversion
 #### Customer Overview
 
 ![National Assembly Library of Korea](https://static1.abbyy.com/abbyycommedia/15025/library-logo.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | National Assembly Library of Korea |
 | ------------ | ---------------------------------- |
@@ -100,6 +114,13 @@ The easy-to-use search function of the database, as well as the range of voice s
 
 [![15-education](https://static1.abbyy.com/abbyycommedia/14365/15-education.jpg)](https://tools.techidaily.com/abbyy/products/) [Education](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![library-pic2](https://static1.abbyy.com/abbyycommedia/15019/library-pic2.jpg)](https://static2.abbyy.com/abbyycommedia/9010/case-study-national-assembly-library-of-korea-education-en.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/9010/case-study-national-assembly-library-of-korea-education-en.pdf "PDF version") 
@@ -113,6 +134,19 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -135,25 +169,25 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-laughters-launchpad-7-funny-video-frameworks-for-comedians/"><u>[New] 2024 Approved Laughter's Launchpad 7 Funny Video Frameworks for Comedians</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-discovering-direct-conversations-on-snapchat-in-a-click/"><u>[New] In 2024, Discovering Direct Conversations on Snapchat in a Click</u></a></li>
-<li><a href="https://techtrends.techidaily.com/achieve-a-seamless-visual-experience-presenting-whole-photos-on-instagram-effortlessly/"><u>Achieve a Seamless Visual Experience: Presenting Whole Photos on Instagram Effortlessly</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-fueled-personalization-tailoring-user-experience-with-smart-tracking/"><u>Cookiebot-Fueled Personalization: Tailoring User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionize-your-sites-personalization-and-analytics-effortlessly/"><u>Cookiebot: Revolutionize Your Site's Personalization and Analytics Effortlessly</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionizing-personalized-engagement-and-retargeting/"><u>Cookiebot: Revolutionizing Personalized Engagement and Retargeting</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebots-intelligent-technology-propelling-success-in-digital-marketing/"><u>Cookiebot's Intelligent Technology Propelling Success in Digital Marketing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/data-management-in-the-cloud-by-abbyy-select-your-region-wisely/"><u>Data Management in the Cloud by ABBYY - Select Your Region Wisely</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/demystifying-spreadsheet-complexities-with-chatgpt-excel/"><u>Demystifying Spreadsheet Complexities with ChatGPT-Excel</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/drive-more-traffic-using-cookiebots-advanced-analytics-tools/"><u>Drive More Traffic Using Cookiebot's Advanced Analytics Tools</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/fine-tuning-windows-photos-app-incorporate-filters-and-sync-music-streaming/"><u>Fine-Tuning Windows Photos App Incorporate Filters & Sync Music Streaming</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-afternoons-examination-alternative-perspectives/"><u>In 2024, Afternoon's Examination Alternative Perspectives</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unleash-the-power-of-engaging-headline-crafting/"><u>Unleash the Power of Engaging Headline Crafting</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-creating-a-visual-statement-with-stellar-podcast-artwork/"><u>[New] In 2024, Creating a Visual Statement with Stellar Podcast Artwork</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1717708499749-updated-2024-approved-how-to-block-youtube-channels-on-computer-and-mobile-phones/"><u>[Updated] 2024 Approved How to Block Youtube Channels on Computer and Mobile Phones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-crafting-captivating-real-time-tweets-for-maximum-impact/"><u>[Updated] Crafting Captivating Real-Time Tweets for Maximum Impact</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-from-fanfare-to-fame-facebook-features-for-viral-voyages-for-2024/"><u>[Updated] From Fanfare to Fame Facebook Features for Viral Voyages for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-boosting-video-appeal-implementing-neon-borders-in-thumbnails/"><u>2024 Approved Boosting Video Appeal Implementing Neon Borders in Thumbnails</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-optimizing-nintendo-switch-controller-for-steam-games/"><u>2024 Approved Optimizing Nintendo Switch Controller for Steam Games</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/5-speedy-fixes-to-restore-your-oculus-rift-ss-microphone-features-2024-update/"><u>5 Speedy Fixes to Restore Your Oculus Rift S's Microphone Features - 2024 Update</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/dailymotionmp3/"><u>一歩で完了！Dailymotion動画をMP3ファイルに簡単に変換する手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/avchd-to-mp4-conversion-top-6-recommended-free-software-picks-for-superior-video-quality/"><u>AVCHD to MP4 Conversion: Top 6 Recommended Free Software Picks for Superior Video Quality</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/chromefirefoxm3u8/"><u>ChromeとFirefoxでM3U8動画を簡単にダウンロード</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/efficient-conversion-techniques-turning-wmv-files-into-high-quality-wav/"><u>Efficient Conversion Techniques: Turning WMV Files Into High-Quality WAV</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-vob-files-into-common-formats-like-h264-mp4-mkv-mov-and-avi/"><u>Effortless Conversion of VOB Files Into Common Formats Like H.264 MP4, MKV, MOV & AVI</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-save-your-favorite-antenna-tv-episodes-updated-techniques/"><u>How to Save Your Favorite Antenna TV Episodes: Updated Techniques</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/join-wonderfoxs-lucrative-affiliate-scheme-and-earn-profits-now/"><u>Join WonderFox's Lucrative Affiliate Scheme & Earn Profits Now!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1721886428524-look-at-the-performance-trend-over-time-to-see-if-its-improving-or-declining-also-analyze-how-different-pages-rank-for-this-query-on-your-site/"><u>Look at the Performance Trend over Time to See if It's Improving or Declining. Also, Analyze How Different Pages Rank for This Query on Your Site.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mgs/"><u>MGSアニメーションのクリップ撮りテクニック</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-steps-recording-teamviewer-meetings-on-windows-11/"><u>Simple Steps: Recording TeamViewer Meetings on Windows 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-capturing-your-powerpoint-slides-with-hd-audio-and-video/"><u>Step-by-Step Guide: Capturing Your PowerPoint Slides with HD Audio & Video</u></a></li>
+<li><a href="https://program-issues.techidaily.com/top-solutions-to-prevent-and-fix-crashes-in-guilty-gear-strive-on-pc-platforms/"><u>Top Solutions to Prevent and Fix Crashes in Guilty Gear Strive on PC Platforms</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-honor-magic-5-pro-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Honor Magic 5 Pro Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

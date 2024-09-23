@@ -1,7 +1,7 @@
 ---
 title: "Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog"
-date: 2024-09-07T17:14:28.273Z
-updated: 2024-09-14T21:06:40.653Z
+date: 2024-09-20T18:43:00.288Z
+updated: 2024-09-23T17:04:28.418Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae77072947e6de85d2a8d631e24f7937491d0d11e8e4a458198601a87eb9beb.jpg
@@ -27,6 +27,13 @@ Nehmen wir einmal die Verpflichtung zur [elektronischen Rechnungstellung der EU]
 
 Im Folgenden werde ich daher anhand des Beispiels ABBYY versuchen, etwas Transparenz in die Welt der Abkürzungen (LLM, CNN, ML, NLP, IDP) zu bringen.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### KI-Innovation als Grundlage für ABBYY Intelligent Document Processing (IDP) 
 
 Grundsätzlich kann man sagen, dass Intelligente Dokumentenverarbeitung (IDP) eine hochentwickelte Automatisierungstechnologie zur Erfassung, Auswertung, Extraktion, Kategorisierung und Verarbeitung aussagekräftiger Daten aus großen Dokumenten-Strömen in leicht zugänglichen Formaten ist. Diese Technologie kann verschiedene Arten von Dokumenten verarbeiten, darunter Papier, PDFs, Word-Dokumente, Tabellenkalkulationen und viele andere Formate. IDP zielt vor allem darauf ab, nützliche Informationen aus großen Dokumenten zu extrahieren, ohne dass menschliche Eingaben erforderlich sind. 
@@ -42,6 +49,13 @@ Die [IDP-Plattform von ABBYY](https://tools.techidaily.com/abbyy/products/) ist 
 
 Mit der richtigen Kombination von Technologien und Techniken können die [IDP-Lösungen von ABBYY jede Art von Dokument verarbeiten](https://tools.techidaily.com/abbyy/products/) \- jedes Format, jede Sprache, jede Struktur. Alle spezialisierten Techniken wurden für die bestmöglichen Schlussfolgerungen und den geringstmöglichen Ressourcenbedarf optimiert, so dass die Kosten und der ROI für die Kunden optimiert werden können.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Large Language Models (LLMs) und Kontext bezogene Antworten. 
 
 Kaum überraschend, aber die Geschäftsprozesse laufen weiterhin auf Basis zahlreichen Dokumenten ab. Der Bedarf an intelligenter Dokumentenverarbeitung (IDP) reißt auch nicht ab, denn die IDP ist ein wesentliches Instrument in einem RAG-Projekt. RAG? Wieder eine Abkürzung, die nach Erklärung ruft. RAG bedeutet wörtlich „Retrieval Augmented Generation“. RAG verwendet vorhandene Unternehmensdokumente zur Anreicherung von Datenbanken und zur Feinabstimmung von KI-Modellen, um genauere und kontextspezifische Antworten zu ermöglichen. Durch den Einsatz unternehmensspezifischer Informationen gehen die RAG-Modelle über generische Antworten hinaus, die auf zuvor trainierten Daten basieren, und liefern stattdessen maßgeschneiderte Antworten, die den einzigartigen Kontext und die Bedürfnisse des Unternehmens widerspiegeln und zusätzlich die Zuverlässigkeit erhöhen, indem u.a. auch sog. Hallucination – eine in der KI auftretende Halluzination (auch Konfabulation genannt) verhindert werden. 
@@ -51,10 +65,10 @@ Dies ist somit eine kostengünstige Methode, die die Fähigkeiten großer Sprach
 So unterstützt ABBYY die Unternehmen, mit generativer KI erfolgreich zu sein: Daten liegen oft in Silos innerhalb des Unternehmens vor, sind aber größtenteils in Geschäftsdokumenten eingeschlossen. Eine intelligente Dokumentenverarbeitung extrahiert Dokumentendaten und stellt sie in einen Kontext. Diese Daten und der Kontext werden dann mit der Benutzer-Prompot an das LLM kombiniert, um sie inhaltsbezogen zu machen. Das bedeutet, Genauigkeit, Qualität und Zuverlässigkeit.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Convolutional Neural Networks (CNN) und Transformatoren
@@ -65,24 +79,18 @@ Das LLM, das ABBYY einsetzt, ist sehr spezifisch auf die Bedürfnisse der Kunden
 
 Diese Technik verbessert die Leistung und Genauigkeit unserer OCR-Funktionen insgesamt drastisch und wird in Kombination mit unserem statistischen Ansatz eingesetzt. Die KI entscheidet automatisch, welcher Ansatz für Ihre Dokumente am besten geeignet ist, um sie im Hinblick auf Konsistenz, Genauigkeit und Geschwindigkeit zu optimieren, was zu besseren Durchsatzraten führt. 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Deep Learning und schnelles maschinelles Lernen (ML) 
 
 Deep Learning ermöglicht es ABBYY, KI-Modelle in seiner Plattform für einen ganz bestimmten Zweck vorzutrainieren. Das ist etwas anderes als bei Open-Source-LLMs oder Anbietern generativer KI, die diese als API anbieten. Während generative KI erstaunliche neue Möglichkeiten schafft, wie man mit Technologien interagiert, wird sie nicht bei allem gut funktionieren. Durch Deep Learning werden Modelle für einen ganz bestimmten Zweck trainiert, und darin ist es hervorragend, denn es ist zweckgebunden. Wie oben erwähnt, setzt ABBYY eine Kombination aus vielen verschiedenen Technologien ein, um eine intelligente Dokumentenverarbeitung der Spitzenklasse zu bieten. 
 
 Im ABBYY Produkt „Vantage“ vereint ABBYY eine Kombination aus Deep Learning und schnellem maschinellem Lernen auf einer Low-Code-IDP-Plattform, um die Durchsatzrate zu maximieren. Mit Deep Learning allein können die Kunden mit den von ABBYY trainierten Modellen sofort eine Genauigkeit von oftmals bis zu 90 Prozent erreichen. Durch die Einbeziehung des schnellen maschinellen Lernens kann die Genauigkeit sogar auf über 95 Prozent steigen. Schnelles maschinelles Lernen merkt sich die Ausreißer, die tiefes maschinelles Lernen (Deep Learning) nicht erreichen konnte, und arbeitet schnell, mit nur wenigen Variationen der fraglichen Dokumente. Das Modell verbessert sich kontinuierlich anhand der verarbeiteten Dokumente -und deren Variationen-, sowie basierend auf manuellem Input während des sogenannten HITL (Human in the Loop). Was so viel bedeutet wie manuelle Verifikation. Somit erzielen die Modelle mit der Zeit eine immer höhere Genauigkeit.
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Natural Language Processing (NLP) 
 
@@ -169,13 +177,20 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-optimal-ram-assignment-for-superior-minecraft-gaming-for-2024/"><u>[Updated] Optimal Ram Assignment for Superior Minecraft Gaming for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/clova-ocr/"><u>「CLOVA OCRとフレックスキャプチャーを組み合わせた日本語手書き読み取り」</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-homogeneiser-la-gestion-des-factures-dans-sap-a-laide-dabbyy-solutions-innovantes-pour-le-traitement-comptable-chez-rochling/"><u>Comment Homogénéiser La Gestion Des Factures Dans SAP À L'aide D'ABBYY : Solutions Innovantes Pour Le Traitement Comptable Chez Röchling</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-enhance-your-websites-performance/"><u>Cookiebot-Driven Solutions: Enhance Your Website's Performance</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/filmora-scrn-tutorial-how-to-record-your-computer-screen-like-a-pro-for-2024/"><u>Filmora Scrn Tutorial How to Record Your Computer Screen Like a Pro for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-decision-time-choose-your-dream-video-editor-filmora-or-democracy-creator/"><u>In 2024, Decision Time! Choose Your Dream Video Editor (Filmora or Democracy Creator)</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/logitech-g-pro-x-microphone-problems-resolved-expert-tips-and-tricks/"><u>Logitech G Pro X Microphone Problems Resolved: Expert Tips & Tricks</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-nokia-c210-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Nokia C210 Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-accelerate-engagement-the-best-12-ways-to-increase-video-popularity-for-2024/"><u>[New] Accelerate Engagement - The Best 12 Ways to Increase Video Popularity for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-transition-from-mobile-screen-to-big-tv-with-fb-videos/"><u>[New] In 2024, Transition From Mobile Screen to Big TV with FB Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-indoor-games-galore-top-9-screen-less-titles-for-android-gamers/"><u>[Updated] 2024 Approved Indoor Games Galore Top 9 Screen-Less Titles for Android Gamers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-visual-verve-new-era-of-radeon/"><u>[Updated] In 2024, Visual Verve New Era of Radeon</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-photo-story-platinum-best-photo-movie-story-maker-wondershare/"><u>[Updated] Photo Story Platinum - Best Photo Movie Story Maker | Wondershare</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-art-of-filmmaking-demystified-on-youtube/"><u>[Updated] The Art of Filmmaking Demystified on YouTube</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/bypass-restrictions-the-ultimate-tutorial-on-viewing-bilibili-worldwide/"><u>Bypass Restrictions: The Ultimate Tutorial on Viewing Bilibili Worldwide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/converting-youtube-content-into-convenient-audio-format-a-step-by-step-guide/"><u>Converting YouTube Content Into Convenient Audio Format: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/create-your-own-iphone-ringtone-with-mp4-video-a-step-by-step-guide/"><u>Create Your Own iPhone Ringtone with MP4 Video: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-transformation-of-wmv-files-turn-them-into-mp4movmp3-for-universal-compatibility/"><u>Effortless Transformation of WMV Files - Turn Them Into MP4/MOV/MP3 for Universal Compatibility!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-ways-to-access-jackie-chan-films-online/"><u>Effortless Ways to Access Jackie Chan Films Online</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/get-your-free-trial-of-the-ultimate-mp4-video-converter-safe-and-secure-online-shopping/"><u>Get Your Free Trial of the Ultimate MP4 Video Converter - Safe and Secure Online Shopping</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-oppo-a56s-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Lava Yuva 3 | Dr.fone</u></a></li>
 </ul></div>
 

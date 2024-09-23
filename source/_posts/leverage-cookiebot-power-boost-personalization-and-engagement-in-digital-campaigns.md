@@ -1,7 +1,7 @@
 ---
 title: "Leverage Cookiebot Power: Boost Personalization & Engagement in Digital Campaigns"
-date: 2024-09-08T16:40:31.228Z
-updated: 2024-09-14T17:40:55.562Z
+date: 2024-09-22T18:43:26.446Z
+updated: 2024-09-23T17:55:19.721Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2e36ccbc985ffa8060cba8099c01adb9e0bc227482cd4647ba2ea8d61ea0fe4.png
@@ -33,6 +33,13 @@ However, ad hoc case management processes are more like combining numerous easil
 News
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The challenges faced when managing ad hoc case management processes are multifaceted
 
@@ -66,6 +73,13 @@ In conclusion, while process intelligence is undoubtedly valuable for regular an
 
 ![02a-ScottOpitz-99x99.png](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -77,16 +91,16 @@ A 30-year veteran of the computer industry, Scott has founded and built companie
 In previous positions, Scott served as Senior Vice President, Worldwide Marketing & Business Development for webMethods (now Software AG), where he was responsible for webMethods’ marketing, business development, and strategic product planning. He joined webMethods as a result of its acquisition of IntelliFrame Corporation, a provider of data integration products and the InVista integrated workflow and BPM platform that he co-founded. Scott has also held numerous executive-level positions in technology, marketing and business development roles for public and private companies.
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Additional Insights:
@@ -96,10 +110,10 @@ In previous positions, Scott served as Senior Vice President, Worldwide Marketin
 [![Customer Point of View: Highs and Lows of the Intelligent Automation Journey](https://static3.abbyy.com/abbyycommedia/38066/ds-191_customer-point-of-view_tn_848x444-1.jpg) **Customer Point of View: Highs and Lows of the Intelligent Automation Journey** Read more](https://tools.techidaily.com/abbyy/products/) [![ICYMI: 5 Reasons Why Process Intelligence Is Replacing Process Mining—Our Conversation with Doculabs](https://static1.abbyy.com/abbyycommedia/38052/ds-191_5-reasons-why_848x444.jpg) **ICYMI: 5 Reasons Why Process Intelligence Is Replacing Process Mining—Our Conversation with Doculabs** Read more](https://tools.techidaily.com/abbyy/products/) [![Introducing the AI-Driven Enterprise Podcast](https://static1.abbyy.com/abbyycommedia/38057/ds-191_introducing-the-ai-driven_848x444.jpg) **Introducing the AI-Driven Enterprise Podcast** Read more](https://tools.techidaily.com/abbyy/products/) [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Subscribe for updates
@@ -159,14 +173,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-no-paywalls-here-learn-how-to-record-and-save-your-youtube-experience-for-free/"><u>[New] No Paywalls Here! Learn How To Record and Save Your YouTube Experience For Free</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-picks-excellent-4k-displays-for-playing-games/"><u>2024 Approved Top Picks Excellent 4K Displays for Playing Games</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-automation-enhance-your-sites-seo/"><u>Cookiebot-Driven Automation: Enhance Your Site's SEO</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-insights-for-website-optimization/"><u>Cookiebot-Driven Insights for Website Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-elevate-your-website-engagement-and-rankings/"><u>Cookiebot-Driven Success: Elevate Your Website Engagement and Rankings</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-apple-id-from-apple-iphone-12-pro-max-without-password-by-drfone-ios/"><u>How to Remove Apple ID from Apple iPhone 12 Pro Max without Password?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-tecno-spark-go-2023-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Tecno Spark Go (2023) without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-edge-40-pro-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Motorola Edge 40 Pro Phone with Broken Screen</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722973896150-update-your-wacom-artpen-driver-with-these-simple-steps-get-downloading-now/"><u>Update Your Wacom Artpen Driver with These Simple Steps – Get Downloading Now</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-the-best-practices-for-silent-film-making/"><u>[New] In 2024, The Best Practices for Silent Film Making</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-olympic-thrills-amidst-snowy-bliss-in-beijing-2022/"><u>[New] Olympic Thrills Amidst Snowy Bliss in Beijing 2022</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-using-movavi-video-editor-2024/"><u>[New] The Ultimate Guide to Using Movavi Video Editor 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-ultimate-question-in-cameras-can-a-dslr-surpass-a-hero-4-for-2024/"><u>[Updated] The Ultimate Question in Cameras Can a DSLR Surpass a Hero 4 for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/44cm44ol44kz44ol44kz5yuv55s744gu44kq44o844oh44kj44kq44gg44gr5oq95ye644go5lplusd5a2y5pa55rov44cn/"><u>「ニコニコ動画のオーディオだけ抽出と保存方法」</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/finding-and-downloading-free-yoruba-films-online/"><u>Finding & Downloading Free Yoruba Films Online</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-honor-x50i-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Honor X50i Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-successfully-rip-a-handbrake-dvd-with-scrambled-content-and-avoid-video-distortion/"><u>How to Successfully Rip a Handbrake DVD with Scrambled Content & Avoid Video Distortion?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mp4mkvmovmtsm2ts/"><u>MP4とMKVのようなMOVやMTS/M2TS形式のビデオファイルをスマートに分割するテクニック</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-top-imovie-alternatives-for-windows-10-free-and-premium-options/"><u>New 2024 Approved Top iMovie Alternatives for Windows 10 Free and Premium Options</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-changing-the-dvd-region-setting-on-your-pc/"><u>Step-by-Step Guide to Changing the DVD Region Setting on Your PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-adding-subtitles-to-your-facebook-videos/"><u>Step-by-Step Guide: Adding Subtitles to Your Facebook Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-3-secure-erome-video-downloading-tools-safely-extracting-content/"><u>Top 3 Secure Erome Video Downloading Tools - Safely Extracting Content</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/top-6-outstanding-ai-video-enlargement-software-options/"><u>Top 6 Outstanding AI Video Enlargement Software Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723053241983-ultimate-buyers-guide-selecting-the-perfect-tablet-by-dimensions-and-mass/"><u>Ultimate Buyer's Guide: Selecting the Perfect Tablet by Dimensions and Mass</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-graphics-card-download-latest-nvidia-drivers/"><u>Update Your Graphics Card: Download Latest NVIDIA Drivers</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-1011youtube/"><u>Windows 10/11に最適化したYouTubeコンテンツダウンロード手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028678116-windows-10/"><u>Windows 10で最適なビデオキャプチャテクニック４選：高解像度版</u></a></li>
 </ul></div>
 

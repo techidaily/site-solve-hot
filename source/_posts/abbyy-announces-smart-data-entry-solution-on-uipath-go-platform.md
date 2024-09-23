@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Smart Data Entry Solution on UiPath GO Platform
-date: 2024-09-18T03:25:05.294Z
-updated: 2024-09-19T02:35:21.612Z
+date: 2024-09-19T17:34:02.308Z
+updated: 2024-09-23T18:44:33.305Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2ad6cf886d90c9a4679357e1.jpg
@@ -79,27 +79,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-groundbre-folio-of-gaming-loggers-alternatives-to-fbx/"><u>[New] 2024 Approved Groundbre Folio of Gaming Loggers Alternatives to FBX</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-streaming-success-optimizing-your-logitech-cam/"><u>[Updated] In 2024, Streaming Success Optimizing Your Logitech Cam</u></a></li>
-<li><a href="https://article-helps.techidaily.com/audiophiles-dilemma-podcast-or-youtube-dominance/"><u>Audiophile's Dilemma Podcast or YouTube Dominance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726027984322-avidemux/"><u>Avidemuxを使った簡単な動画編集:切り取り・区切り手順</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1721982411538-chatgpt-unleashed-on-desktop-explore-how-it-outshines-its-online-alternative/"><u>ChatGPT Unleashed on Desktop - Explore How It Outshines Its Online Alternative!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/essential-guide-to-choosing-a-superior-gif-editor-for-seamless-cropping-across-devices/"><u>Essential Guide to Choosing a Superior GIF Editor for Seamless Cropping Across Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/goproyoutube/"><u>GoProビデオをYoutubeにアップロードしたら画質がぼやける？解消方法</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-freemacos-the-ultimate-screen-logger/"><u>In 2024, FreeMacOS The Ultimate Screen Logger</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-tecno-pova-5-pro-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Tecno Pova 5 Pro Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/iphonem4a/"><u>IPhoneで音楽ファイルM4Aをうまく再生する方法：トラブルシューティングと最適なアプリ選び</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/riconversione-gratuita-dei-video-3gpp-in-wmv-con-movavi-converting-guide-online/"><u>Riconversione Gratuita Dei Video 3GPP in WMV Con Movavi - Converting Guide Online</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seeking-top-sound-quality-in-compact-file-formats-what-are-your-options/"><u>Seeking Top Sound Quality in Compact File Formats - What Are Your Options?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ultimate-guide-mastering-video-scaling-techniques-in-adobe-premiere-pro/"><u>Ultimate Guide: Mastering Video Scaling Techniques in Adobe Premiere Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/vlcmp4mp3/"><u>VLCを使用してMP4ファイルをMP3に転記する方法</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-must-visit-websites-for-obtaining-desired-youtube-ringtones/"><u>[Updated] Must-Visit Websites for Obtaining Desired YouTube Ringtones</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-timelapse-excellence-iphones-quick-guide/"><u>[Updated] Timelapse Excellence IPhone's Quick Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-efficient-conversion-techniques-transforming-aiff-files-into-high-quality-aacapple-lossless-m4a-audio/"><u>1. Efficient Conversion Techniques: Transforming AIFF Files Into High-Quality AAC/Apple Lossless M4A Audio</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-ultimate-guide-effortless-conversion-of-avchd-files-into-multiple-formats/"><u>1. Ultimate Guide: Effortless Conversion of AVCHD Files Into Multiple Formats</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-nokia-c210-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Nokia C210 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mobile-methods-download-gifs-from-twitter-on-devices/"><u>2024 Approved Mobile Methods Download GIFs From Twitter on Devices</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-into-visual-storytelling-xp-edition-installation/"><u>2024 Approved Step Into Visual Storytelling XP Edition Installation</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027045701-avidemux/"><u>Avidemux 用ビデオからオーディオを分離・抽出する手順</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ce-visibility-the-power-of-customized-youtube-templates-for-2024/"><u>Enhance Visibility The Power of Customized YouTube Templates for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-oppo-reno-8t-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Oppo Reno 8T Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-honor-magic-6-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fb-vids-effortless-mp4-extraction-at-your-fingertips/"><u>In 2024, FB Vids Effortless MP4 Extraction at Your Fingertips</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-realme-12-proplus-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Realme 12 Pro+ 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/speedy-solutions-for-converting-your-mkv-videos-to-compatible-avi-version/"><u>Speedy Solutions for Converting Your MKV Videos to Compatible AVI Version</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-creating-a-gif-from-your-favorite-youtube-video/"><u>Step-by-Step Guide: Creating a GIF From Your Favorite YouTube Video</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/tech-rivalry-unveiled-apples-ongon-dispute-with-adobe-over-flash-support/"><u>Tech Rivalry Unveiled: Apple's Ongon Dispute with Adobe over Flash Support</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-avi-to-dvd-transcoder-for-windows-11-users-in-2e24/"><u>Top Rated AVI to DVD Transcoder for Windows 11 Users in 2E24</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-two-strategies-for-successful-amv-downloads/"><u>Top Two Strategies for Successful AMV Downloads</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

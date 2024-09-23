@@ -1,7 +1,7 @@
 ---
 title: "D'Abbyy Welcomes Scott Opitz in Top Executive Positions: Now CTO & CPO"
-date: 2024-09-12T18:10:16.127Z
-updated: 2024-09-19T01:44:58.555Z
+date: 2024-09-20T16:30:39.477Z
+updated: 2024-09-23T17:58:42.822Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/71650fe6339aad7562a7ef4730d038972f077e65bec2cbda43e5ae4d18379e11.jpg
@@ -31,15 +31,42 @@ Scott Opitz a rejoint ABBYY en 2019, lors de l’[acquisition de TimelinePI](htt
 
 Scott a également occupé plusieurs fonctions de direction au sein d’entreprises publiques et privées. Il est inventeur et détient 13 brevets et demandes de brevets relatifs aux technologies de Process Intelligence.
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 5 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -64,27 +91,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/updated-effective-strategies-for-archiving-vimeo-footage/"><u>[Updated] Effective Strategies for Archiving Vimeo Footage</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-realme-gt-neo-5-se-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Realme GT Neo 5 SE</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehensive-strategies-to-tackle-haldll-errors-on-different-windows-editions/"><u>Comprehensive Strategies to Tackle hal.dll Errors on Different Windows Editions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/create-your-own-iphone-ringtone-with-mp4-video-a-step-by-step-guide/"><u>Create Your Own iPhone Ringtone with MP4 Video: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-transformation-of-wmv-files-turn-them-into-mp4movmp3-for-universal-compatibility/"><u>Effortless Transformation of WMV Files - Turn Them Into MP4/MOV/MP3 for Universal Compatibility!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-ways-to-access-jackie-chan-films-online/"><u>Effortless Ways to Access Jackie Chan Films Online</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/expert-tips-on-angling-videos-unlocking-full-potential-with-vlc/"><u>Expert Tips on Angling Videos Unlocking Full Potential with VLC</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/get-your-free-trial-of-the-ultimate-mp4-video-converter-safe-and-secure-online-shopping/"><u>Get Your Free Trial of the Ultimate MP4 Video Converter - Safe and Secure Online Shopping</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-vivo-y27s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Vivo Y27s | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Oppo F23 5G | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-synergizing-brands-on-video-platforms/"><u>In 2024, Synergizing Brands on Video Platforms</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-driver-pack-for-the-hp-m506-laser-printer-downloads-and-installation-tips/"><u>Latest Driver Pack for the HP M506 Laser Printer: Downloads and Installation Tips</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/master-the-art-of-converting-jpeg-pictures-to-gif-format-with-these-easy-to-follow-techniques/"><u>Master the Art of Converting JPEG Pictures to GIF Format with These Easy-to-Follow Techniques!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/trimming-down-m4v-file-sizes-efficiently-using-windows-macos-or-web-services/"><u>Trimming Down M4V File Sizes Efficiently Using Windows, MacOS or Web Services</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5yuv55s744gm44or44ov44o844od44kk44oz44oi44gn5yan55sf44gn44gn44gq44ge55cg55sx44go5aplusplus562w6kmz5acx/"><u>動画がパワーポイントで再生できない理由と対策詳報</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comprehensive-tutorial-converting-3g2-media-files-to-mp4-avi-and-additional-formats-easily/"><u>Comprehensive Tutorial: Converting 3G2 Media Files to MP4, AVI, and Additional Formats Easily</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/convert-mp3-to-wav-free-a-step-by-step-guide-for-windows-users/"><u>Convert MP3 to WAV Free: A Step-by-Step Guide for Windows Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/download-free-ultimate-online-flv-and-swf-converter-tool/"><u>Download Free - Ultimate Online Flv & Swf Converter Tool</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/easy-steps-to-open-and-play-dat-files-on-any-pc/"><u>Easy Steps to Open and Play DAT Files on Any PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-mp4-videos-to-flash-compatible-swf-format-anytime-anywhere/"><u>Effortless Conversion of MP4 Videos to Flash-Compatible SWF Format Anytime, Anywhere</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixes-and-solutions-how-to-stop-assassins-creed-valhalla-from-continuously-freezing-or-crashing-on-your-pc/"><u>Fixes & Solutions: How to Stop Assassin's Creed Valhalla From Continuously Freezing or Crashing on Your PC</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-spark-10c-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Tecno Spark 10C Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/in-depth-evaluation-of-the-latest-snappydriver-install-v113/"><u>In-Depth Evaluation of the Latest SnappyDriver Install V1.13</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-nfts-a-novices-quick-start-strategy/"><u>Mastering NFTs A Novice's Quick-Start Strategy</u></a></li>
+<li><a href="https://driver-error.techidaily.com/overcoming-incompatibility-ensuring-your-hardware-works-with-the-latest-idt-software-package/"><u>Overcoming Incompatibility: Ensuring Your Hardware Works with the Latest IDT Software Package</u></a></li>
+<li><a href="https://win11.techidaily.com/remedying-directories-not-empty-error-on-win11-with-0x80070091/"><u>Remedying Directories Not Empty Error on Win11 with #0X80070091</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/streamlined-approach-transforming-your-audio-impression-in-pubg/"><u>Streamlined Approach Transforming Your Audio Impression in PUBG</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-ultimate-resource-for-your-tech-enthusiasm-toms-insider-knowledge/"><u>The Ultimate Resource for Your Tech Enthusiasm - Tom's Insider Knowledge</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

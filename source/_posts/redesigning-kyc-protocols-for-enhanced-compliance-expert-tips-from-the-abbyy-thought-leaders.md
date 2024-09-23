@@ -1,7 +1,7 @@
 ---
 title: "Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders"
-date: 2024-09-11T19:24:58.542Z
-updated: 2024-09-14T18:31:01.332Z
+date: 2024-09-17T18:08:41.828Z
+updated: 2024-09-23T16:52:27.682Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07877b725aebcc26ce626860ff1aa31b598ca62f4a725eae923eeb25fe929021.jpg
@@ -29,6 +29,13 @@ Financial institutions are under pressure to deliver a seamless [KYC compliance 
 
 ![woman in yellow sweater with credit card and tablet](https://static1.abbyy.com/abbyycommedia/31751/contactless-business.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Onboarding](https://tools.techidaily.com/abbyy/products/) can often be the gateway to money laundering and other fraud because customer-facing workers are conducting transactions with people they’ve never seen and with documents they never physically handled, all while working from their computers at home. There may be gaps in the process that can create vulnerabilities for attacks because it involves many human touches. Also, fraudsters go through pains to ensure they know transaction limits and thresholds so that they can stay under the radar.
 
 ### Know Your Customer (KYC) and tech strategy need to evolve
@@ -40,10 +47,10 @@ Chief information security officers (CISOs) and risk and compliance officers nee
 Another area that can cause a great deal of friction is manual document review. Not only is it cumbersome and error-prone, it is expensive, with some estimates saying each document can cost as much as $1.25 to handle. And document scans are no obstacle for fraudsters, as there is an abundance of photoshopping services that easily create a document scan, and even offer to combine them with a real selfie picture.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Respond with intelligent process automation
@@ -51,6 +58,13 @@ Another area that can cause a great deal of friction is manual document review. 
 To address the challenge of complying with anti-money Laundering (AML) regulations, maintaining [KYC compliance](https://tools.techidaily.com/abbyy/products/), and thwart the evolving threat from fraudsters, financial institutions need a multi-front battle plan that addresses people, processes, and documents. First, you must have a means of scrutinizing documents to detect the signs of attempted fraud. Second, you need visibility into processes that enables continuous monitoring for irregularities that could indicate fraudulent behaviors. Third, you need insight into the ways that people are interacting with the processes and the documents that could indicate suspicious behavior. This approach will arm financial institutions with the insights needed to protect their institutions both from fraud and from regulation violations.
 
 ![financial institution working professionals](https://static1.abbyy.com/abbyycommedia/31781/2_gettyimages-498323251.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Intelligent automation is a new approach to KYC/AML, using the latest [Intelligent Document Processin�g](https://tools.techidaily.com/abbyy/products/) technologies to deliver key capabilities that provide banks with the tools they need:
 
@@ -67,10 +81,10 @@ When applied to fraud prevention, Digital Intelligence offers financial institut
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Cheryl Chiodi
@@ -138,15 +152,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-imaginefx-editor/"><u>[Updated] ImagineFX Editor</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/best-editor-apps-to-polish-your-webcam-recordings-for-2024/"><u>Best Editor Apps to Polish Your Webcam Recordings for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/erweiterte-texterfassungsfunktionen-in-echtzeit-von-abbyy-ein-leistungsfahigeres-kundenerlebnis-im-digitalen-raum/"><u>Erweiterte Texterfassungsfunktionen in Echtzeit Von ABBYY: Ein Leistungsfähigeres Kundenerlebnis Im Digitalen Raum</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-abbyys-findings-the-future-landscape-of-cognitive-automation-solutions/"><u>Exploring ABBYY's Findings: The Future Landscape of Cognitive Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-the-power-of-cookiebot-elevate-seo-and-user-experience-on-your-website/"><u>Harnessing the Power of Cookiebot: Elevate SEO and User Experience on Your Website</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-oppo-k11-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Oppo K11 5G without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-capturing-counter-strike-global-offensive-play-seamlessly/"><u>In 2024, Capturing Counter-Strike Global Offensive Play Seamlessly</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-fixing-recurring-bugs-in-age-of-wonders-planetfall-for-windows-users/"><u>Troubleshooting Guide: Fixing Recurring Bugs in Age of Wonders: Planetfall for Windows Users</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-your-csgo-headset-and-mic-solutions-guide/"><u>Troubleshooting Your CS:GO Headset and Mic - Solutions Guide</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/xiaomis-new-smartphone-screenshot-tool-a-game-changer-in-recording-tech-for-2024/"><u>Xiaomi's New Smartphone Screenshot Tool A Game Changer in Recording Tech for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-excellence-in-entertainment-the-finest-offline-ios-games-for-2024/"><u>[New] Excellence in Entertainment - The Finest Offline iOS Games for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-comprehensive-techniques-recording-movies-with-windowsmacosios/"><u>[Updated] In 2024, Comprehensive Techniques Recording Movies with Windows/macOS/iOS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-through-the-best-picks-in-instagram-ringtone-and-exceptional-alerts/"><u>[Updated] Navigating Through the Best Picks in Instagram Ringtone & Exceptional Alerts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-save-and-stream-gotomeet-on-desktops-and-phones-for-2024/"><u>[Updated] Save and Stream GoToMeet on Desktops & Phones for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-swiftly-upgrade-your-videos-with-professional-level-fb-subtitle-making/"><u>[Updated] Swiftly Upgrade Your Videos with Professional-Level FB Subtitle Making</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tricks-for-transferring-twitter-video-to-your-phone/"><u>[Updated] Tricks for Transferring Twitter Video to Your Phone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-samsung-galaxy-a15-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Samsung Galaxy A15 5G Phone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-excel-2016-files-by-stellar-guide/"><u>How to Repair Corrupt Excel 2016 Files</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-steps-recording-teamviewer-meetings-on-windows-11/"><u>Simple Steps: Recording TeamViewer Meetings on Windows 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-capturing-your-powerpoint-slides-with-hd-audio-and-video/"><u>Step-by-Step Guide: Capturing Your PowerPoint Slides with HD Audio & Video</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-strategies-for-securely-grabbing-premium-udemy-classes-without-breaking-a-sweat/"><u>Top Strategies for Securely Grabbing Premium Udemy Classes Without Breaking a Sweat!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-mp4-converter-from-dvd-for-windows-10-and-11-users/"><u>Top-Rated MP4 Converter From DVD for Windows 10 & 11 Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ultimate-guide-choosing-the-1-dvd-to-mp4-conversion-software-in-202er-for-windows-11/"><u>Ultimate Guide: Choosing the #1 DVD to MP4 Conversion Software in 202Er for WINDOWS 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wavmp3windowsmac/"><u>WAVからMP3への変換方法：WindowsとMac両方で使える手軽な解決策</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-11-hd4k/"><u>Windows 11でフリーマガジン: HDや4Kにビデオ解像度調整の簡単ガイド</u></a></li>
 </ul></div>
 

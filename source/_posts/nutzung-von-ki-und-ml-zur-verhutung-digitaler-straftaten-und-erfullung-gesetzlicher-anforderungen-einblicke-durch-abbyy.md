@@ -1,7 +1,7 @@
 ---
 title: Nutzung Von KI Und ML Zur Verhütung Digitaler Straftaten Und Erfüllung Gesetzlicher Anforderungen – Einblicke Durch ABBYY
-date: 2024-09-11T19:06:52.853Z
-updated: 2024-09-14T21:38:54.039Z
+date: 2024-09-21T16:07:44.028Z
+updated: 2024-09-23T16:21:04.764Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/febc5e8eb723097c959ee0c4369a98c541397c828606f3e607457279dcc62863.jpg
@@ -19,6 +19,13 @@ Im Bankwesen sind die jährlichen Kosten für Cyberangriffe unter allen Branchen
 
 Um ihre Produktivität zu erhöhen, setzen Finanzinstitute mehr und mehr auf Automatisierung, mobile Technologien und kontaktlose Interaktionen. Diese Maßnahmen können aber neue Schwachstellen schaffen, die sich Cyberkriminelle zunutze machen. Was können Finanzinstitute gegen die ständigen Angriffe unternehmen?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Jetzt herunterladen!
 
 Um raffinierte Verbrechen zu verhindern, braucht es raffinierte Maßnahmen. Digital Intelligence ist ein neuer Ansatz zur Verwendung der neuesten Technologien für künstliche Intelligenz und maschinelles Lernen, um Schlüsselfunktionen bereitzustellen, die Banken die nötigen Mittel an die Hand geben, um sich vor Betrug und anderen Gesetzesverstößen zu schützen.
@@ -29,11 +36,25 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 * Einblick zu bekommen, wie die Interaktion zwischen Menschen und Dokumenten abläuft
 * verdächtige Verhaltensmuster in Prozessen zu entdecken
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Danke für Ihr Interesse an ABBYY.
 
 [E-Book lesen](https://digital.abbyy.com/hubfs/content/ebook-financialservices-banking-on-intelligence-de.pdf "E-Book lesen") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
@@ -104,27 +125,19 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/updated-pioneering-personalized-voices-on-ps-games/"><u>[Updated] Pioneering Personalized Voices on PS Games</u></a></li>
-<li><a href="https://extra-information.techidaily.com/comprehensive-walkthrough-using-every-feature-in-macs-preview-software-for-2024/"><u>Comprehensive Walkthrough Using Every Feature in Mac's Preview Software for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-traffic-conversion-with-cookiebot-technology/"><u>Enhanced Traffic Conversion with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-campaigns-through-innovative-analytic-tools-beyond-traditional-cookies/"><u>Enhancing Digital Campaigns Through Innovative Analytic Tools – Beyond Traditional Cookies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-online-engagement-with-cookiebot-technology-solutions/"><u>Enhancing Online Engagement with Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-vivo-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Vivo Phones with/without a PC</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/in-depth-analysis-and-interview-decoding-process-intelligence-through-the-lens-of-the-automation-fabric-a-conversation-with-forrester-experts/"><u>In-Depth Analysis & Interview: Decoding Process Intelligence Through The Lens of the Automation Fabric - A Conversation With Forrester Experts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/lintegration-de-lia-dabbyy-par-les-solutions-m-files-revolutionner-les-processus-documentaires/"><u>L'intégration De L'IA D'Abbyy Par Les Solutions M-Files : Révolutionner Les Processus Documentaires</u></a></li>
-<li><a href="https://techtrends.techidaily.com/live-streaming-pro-discover-manycams-advanced-virtual-webcam-and-editing-tools/"><u>Live Streaming Pro: Discover ManyCam's Advanced Virtual Webcam and Editing Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-the-art-of-web-pages-boost-your-online-presence/"><u>Mastering the Art of Web Pages: Boost Your Online Presence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimize-with-cookiebot-a-leap-forward-in-personalized-marketing/"><u>Optimize With Cookiebot: A Leap Forward in Personalized Marketing</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-art-of-engaging-viewers-alive-in-the-age-of-virtual-gatherings/"><u>The Art of Engaging Viewers Alive in the Age of Virtual Gatherings</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-realme-12-pro-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Realme 12 Pro 5G Location | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-cut-trim-and-merge-videos-for-free-the-ultimate-beginners-toolset/"><u>Updated In 2024, Cut, Trim, and Merge Videos for Free The Ultimate Beginners Toolset</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/visionaries-inventing-new-marvel-worlds/"><u>Visionaries Inventing New Marvel Worlds</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-calculating-monetary-gain-for-a-milion-of-youtube-watchers-for-2024/"><u>[New] Calculating Monetary Gain for a Milion of YouTube Watchers for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-advanced-color-correction-utilizing-luts-in-ae/"><u>[Updated] Advanced Color Correction Utilizing LUTs in AE</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-crafting-compelling-instagram-videos-that-stand-out/"><u>2024 Approved Crafting Compelling Instagram Videos That Stand Out</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-content-visibility-discover-6-thumbnail-designers-best-tools/"><u>2024 Approved Elevate Your Content Visibility - Discover 6 Thumbnail Designers' Best Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/hd-video-converter-factory-pro-50/"><u>HD Video Converter Factory Pro - 割引！50%オフの特別価格で獲得</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-securely-keep-your-wistia-videos-for-future-use/"><u>How To Securely Keep Your Wistia Videos For Future Use</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-3-ways-to-unlock-your-iphone-15-pro-for-free-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Your iPhone 15 Pro for Free</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtubers-spotlighting-niche-gaming-subcultures/"><u>In 2024, Youtubers Spotlighting Niche Gaming Subcultures</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/no-luck-with-roku-app-on-your-smart-tv-unlock-immediate-solutions-now/"><u>No Luck with Roku App on Your Smart TV? Unlock Immediate Solutions Now!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/page-located-no-longer-missing-discover-the-new-route-with-wonderfox/"><u>Page Located - No Longer Missing! | Discover the New Route with WonderFox</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/quick-and-easy-mp3-audio-adjuster-instantly-boost-or-reduce-your-music-volume/"><u>Quick & Easy MP3 Audio Adjuster - Instantly Boost or Reduce Your Music Volume</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-14-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of 14 on Mac</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-playback-of-media-files-across-various-platforms-avoid-compatibility-woes/"><u>Seamless Playback of Media Files Across Various Platforms - Avoid Compatibility Woes</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-how-to-activate-wi-fi-on-any-gadget/"><u>Troubleshooting Guide: How to Activate Wi-Fi on Any Gadget</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

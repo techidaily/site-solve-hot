@@ -1,7 +1,7 @@
 ---
 title: Enhance Web Analytics with the Power of Cookiebot Technology
-date: 2024-09-11T17:52:38.820Z
-updated: 2024-09-14T16:53:52.978Z
+date: 2024-09-20T18:16:07.476Z
+updated: 2024-09-23T18:12:55.812Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f780668281f43de469309d641324f16afda3a68eb738e8c283227d7e47f57830.jpg
@@ -33,6 +33,19 @@ Gehe direkt zu:
 
 **Process Intelligence ist eine Kombination von datengesteuerten Fähigkeiten, die der Analyse und Verbesserung von Geschäftsabläufen dienen.**  Sie nutzt die Daten aus unternehmenseigenen Informationssystemen, um Muster und Erkenntnisse zu finden, die den Weg zu neuen betrieblichen Effizienzen weisen. **Die fünf wesentlichen Säulen für nachhaltige Process Intelligence sind Prozesserkennung, Prozessanalyse, Prozessüberwachung, Prozessvorhersage und Prozesssimulation.**  Unternehmen können die daraus resultierenden Erkenntnisse nutzen, um ihre Prozesse zu erkennen, zu verstehen und effektiver zu verwalten.
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Die fünf Säulen von Process Intelligence
 
 #### 1\. Prozesserkennung
@@ -58,10 +71,10 @@ Die Prozessvorhersage (Process Prediction) nutzt historische Ausführungsmuster,
 Die Prozesssimulation (Process Simulation) bietet einen Mechanismus zur Nutzung von Prozessverläufen/-historie zur automatischen Modellierung einer Simulation. Dieses Modell kann dann angepasst werden, um vorgeschlagene Änderungen am Prozess oder an der Ressourcenzuweisung zu berücksichtigen, mit dem Ziel, die Auswirkungen dieser Änderungen zu verstehen, bevor sie umgesetzt werden. Eine Bank kann diesen Ansatz zum Beispiel nutzen, um die Auswirkungen einer veränderten Personalausstattung in ihrer Kreditgenehmigungsabteilung zu verstehen. Dies unterstützt Führungskräfte dabei, informierte Entscheidungen über die Ressourcenzuweisung und Prozessänderungen zu treffen, was letztlich zu einer optimierten betrieblichen Effizienz und mehr Kundenzufriedenheit führt.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Was sind die Vorteile von Process Intelligence?
@@ -80,37 +93,31 @@ Durch die Nutzung von Process Intelligence können Unternehmen ein breites Spekt
 
 **Kosteneinsparungen** Durch die Ermittlung und Beseitigung von Prozessineffizienzen können Unternehmen ihre Betriebskosten senken. Process Intelligence ermöglicht eine kosteneffiziente Ressourcenzuweisung und hilft, unnötige Kosten zu vermeiden, die durch manuelle Eingriffe oder Fehler entstehen.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Anwendungsfälle für Process Intelligence
 
 In jeder Branche ermöglicht [die Integration von Process Intelligence in eine digitale Transformationsstrategie](https://tools.techidaily.com/abbyy/products/) den Unternehmen, die zukünftigen Auswirkungen von vorgeschlagenen Änderungen zu bewerten, den Übergang effektiver zu gestalten, die Leistung der implementierten Automatisierungsschritte zu gewährleisten und eine Feedbackschleife für kontinuierliche Verbesserungen zu schaffen. Unternehmen aller Branchen nutzen Process Intelligence, um in einer Vielzahl von Anwendungsfällen bessere Ergebnisse zu erzielen.
-
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Gesundheitswesen
 
 Krankenhäuser und andere Gesundheitsdienstleister können Process Intelligence nutzen, um das Patientenerlebnis und die klinische Effektivität zu verbessern, Qualitätsstandards aufrechtzuerhalten und Compliance-Risiken zu vermeiden. Sie können die Einhaltung von Vorschriften erleichtern, indem sie klinische Abläufe in Echtzeit überwachen und das Personal proaktiv warnen, wenn Protokolle nicht eingehalten oder Prozessabweichungen festgestellt werden.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Banken
 
 Process Intelligence ermöglicht es Banken und anderen Finanzinstituten, die digitale Transformation voranzutreiben und Prioritäten bei der Risikokontrolle und der Einhaltung von Vorschriften zu unterstützen. Sie können Transaktionsdaten nahezu in Echtzeit analysieren, um den Kundenservice zu verbessern, die Genauigkeit der Berichterstattung zu erhöhen und das Risiko kostspieliger Fehler zu verringern. Prozessüberwachung hilft ihnen, sicherzustellen, dass SLAs, Compliance-Mandate und gesetzliche Anforderungen eingehalten werden, und verringert so das Risiko kostspieliger Fehler, die andernfalls übersehen werden könnten.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Versicherungen
 
@@ -139,19 +146,6 @@ Viele Process-Mining- oder Task-Mining-Tools geben zwar vor, umfassende Lösunge
 Unternehmen auf der ganzen Welt automatisieren zeitaufwendige Routineabläufe, damit sich die Mitarbeitenden auf wichtigere Aufgaben konzentrieren können, die zur Umsatzsteigerung beitragen. Mit ABBYY Timeline, unserer [Process-Intelligence-Plattform](https://tools.techidaily.com/abbyy/products/), können Sie die Zukunft der Arbeit verbessern. Bauen Sie auf der Grundlage von Process Mining auf, verstehen Sie den Prozess mit fortschrittlicher Analytik und nutzen Sie maschinelles Lernen, um Ihre Prozesse zu verbessern und zu optimieren. Keine andere Lösung bietet auf nur einer Plattform die gleiche Menge an Prozesserkenntnissen und -analysen.
 
 [Demo anfordern](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Häufig gestellte Fragen
 
@@ -210,13 +204,19 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-best-9-screen-free-adventures-in-mobile-gaming-android-edition/"><u>[New] In 2024, Best 9 Screen-Free Adventures in Mobile Gaming (Android Edition)</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-photo-booth-woes-why-videos-halt-in-2024/"><u>[New] Photo Booth Woes Why Videos Halt, In 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-deep-dive-into-du-recorders-design-and-functionality-for-2024/"><u>[Updated] Deep Dive Into Du Recorder's Design and Functionality for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-inside-instagrams-maximum-video-restriction-policy/"><u>[Updated] In 2024, Inside Instagram's Maximum Video Restriction Policy</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-custom-whatsapp-ringtone-for-ios-and-android-users/"><u>[Updated] Mastering Custom WhatsApp Ringtone for iOS and Android Users</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-customization-enhancing-user-experience/"><u>Cookiebot-Driven Customization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-personalization-enhance-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhance Your Website's User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Tracking Technology</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-professional-edge-adding-letterbox-frame-to-your-fb-videos/"><u>[Updated] 2024 Approved Professional Edge Adding Letterbox Frame to Your FB Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-netflix-subtitle-translation-methods-comprehensive-guide/"><u>2024 Approved Netflix Subtitle Translation Methods Comprehensive Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/erase-yourself-from-the-streaming-world-deleting-a-twitch-account-thoroughly-covered/"><u>Erase Yourself From the Streaming World: Deleting a Twitch Account Thoroughly Covered</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-flash-dead-xiaomi-redmi-note-13-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Xiaomi Redmi Note 13 5G Safely | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-laughter-lane-navigating-to-the-top-15-funny-youtubers/"><u>In 2024, Laughter Lane Navigating to the Top 15 Funny YouTubers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leading-audio-editing-software-in-shaping-your-vtuber-image-for-2024/"><u>Leading Audio Editing Software in Shaping Your VTuber Image for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-mastering-pip-in-final-cut-pro-a-step-by-step-guide/"><u>New 2024 Approved Mastering PiP in Final Cut Pro A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
 </ul></div>
 

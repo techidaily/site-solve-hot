@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP"
-date: 2024-09-10T21:08:37.777Z
-updated: 2024-09-14T16:12:23.597Z
+date: 2024-09-16T17:01:25.897Z
+updated: 2024-09-23T17:08:21.834Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fb8053ac7214659fa378f042df998d4365da978dd3a640439d6ee68045b0a185.jpg
@@ -67,27 +67,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-fix-frozen-mobile-youtube-videos-on-multiple-devices/"><u>[New] In 2024, Fix Frozen Mobile YouTube Videos on Multiple Devices</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-high-fidelity-screen-recorder-for-windows-11/"><u>[New] In 2024, High-Fidelity Screen Recorder for Windows 11</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-best-5-digital-recorder-selects/"><u>[Updated] Best 5 Digital Recorder Selects</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-a-guide-to-conveniently-documenting-your-gaming-victories/"><u>[Updated] In 2024, A Guide to Conveniently Documenting Your Gaming Victories</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-netgear-nighthawk-x4-wi-fi-mesh-extender-seamless-network-expansion/"><u>Comprehensive Review of the Netgear Nighthawk X4 Wi-Fi Mesh Extender - Seamless Network Expansion</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/james-ritter-named-abbyys-new-cfo-strategic-leadership-in-finance/"><u>James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leveraging-pitch-insights-for-successful-implementation-of-ai-driven-processes/"><u>Leveraging Pitch Insights for Successful Implementation of AI-Driven Processes</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-medicine-with-the-cloud-how-digitalization-is-shaping-the-future-of-health-services/"><u>Revolutionizing Medicine with the Cloud: How Digitalization Is Shaping the Future of Health Services</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-medical-practice-enhancing-patient-care-through-abbyy-paperless-data-solutions/"><u>Transform Your Medical Practice: Enhancing Patient Care Through ABBYY Paperless Data Solutions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-alternative-cinema-highlights-audiences/"><u>[New] 2024 Approved Alternative Cinema Highlights Audiences</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-starter-gopro-gear-essentials/"><u>[New] Top Starter GoPro Gear Essentials</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-camera-enthusiasts-top-list-ultimate-6-4k-dslr-cameras/"><u>2024 Approved Camera Enthusiasts' Top List Ultimate 6 4K DSLR Cameras</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5yuv55s744gm44or44ov44o844od44kk44oz44oi44gn5yan55sf44gn44gn44gq44ge55cg55sx44go5aplusplus562w6kmz5acx/"><u>動画がパワーポイントで再生できない理由と対策詳報</u></a></li>
+<li><a href="https://win11.techidaily.com/combatting-insufficient-privilege-error-during-windows-setup/"><u>Combatting Insufficient Privilege Error During Windows Setup</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comprehensive-tutorial-converting-3g2-media-files-to-mp4-avi-and-additional-formats-easily/"><u>Comprehensive Tutorial: Converting 3G2 Media Files to MP4, AVI, and Additional Formats Easily</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-successfully-rip-a-handbrake-dvd-with-scrambled-content-and-avoid-video-distortion/"><u>How to Successfully Rip a Handbrake DVD with Scrambled Content & Avoid Video Distortion?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-x-flip-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo X Flip</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mp4mkvmovmtsm2ts/"><u>MP4とMKVのようなMOVやMTS/M2TS形式のビデオファイルをスマートに分割するテクニック</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/netgear-orbi-review-the-best-mesh-router-you-can-buy-today/"><u>Netgear Orbi Review: The Best Mesh Router You Can Buy Today</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-sony-xperia-5-v-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Sony Xperia 5 V with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-changing-the-dvd-region-setting-on-your-pc/"><u>Step-by-Step Guide to Changing the DVD Region Setting on Your PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-adding-subtitles-to-your-facebook-videos/"><u>Step-by-Step Guide: Adding Subtitles to Your Facebook Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-3-secure-erome-video-downloading-tools-safely-extracting-content/"><u>Top 3 Secure Erome Video Downloading Tools - Safely Extracting Content</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wma3/"><u>WMA音楽を巧みに編集:ベストの3つのコストフリーソフト選び</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports"
-date: 2024-09-14T22:31:12.310Z
-updated: 2024-09-18T21:50:43.186Z
+date: 2024-09-19T18:09:22.284Z
+updated: 2024-09-23T16:49:10.310Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be090a3ce22bfc91cc23bb5f7.jpg
@@ -47,13 +47,34 @@ Pour en apprendre davantage sur l’approche No/Low code d’ABBYY ainsi que sur
 
 Cette étude a été menée par ABBYY en collaboration avec Sapio Research en septembre-octobre 2021 auprès de 5 025 employés répartis en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon et travaillant au sein d'entreprises comptant plus de 500 employés. L’étude porte sur les défis rencontrés par les travailleurs en matière d'extraction de données ainsi que sur l’impact de l'avènement de l'automatisation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À propos d’ABBYY
 
 ABBYY permet aux entreprises d’appréhender de manière précise leurs process et contenus via sa plateforme d'[intelligence digitale](https://tools.techidaily.com/abbyy/products/). Les technologies d'ABBYY équipent plus de 5 000 entreprises, dont un grand nombre figurent dans le classement Fortune 500\. L’entreprise est reconnue pour ses solutions de pointe dans les domaines du [Content Intelligence](https://tools.techidaily.com/abbyy/products/) et du [Process Intelligence](https://tools.techidaily.com/abbyy/products/) qui ont pour vocation d’améliorer l'efficacité, la rentabilité et la compétitivité des entreprises ainsi que l’expérience client. ABBYY possède des bureaux dans 14 pays. Pour davantage d'informations, veuillez consulter le site <https://www.abbyy.com/fr/>
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Contact presse :
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -78,25 +99,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-effortless-youtube-live-with-step-by-step-obs-guide-for-beginners/"><u>[Updated] 2024 Approved Effortless YouTube Live with Step-by-Step OBS Guide for Beginners</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-how-to-edit-your-video-with-youtube-studio-editor/"><u>[Updated] How to Edit Your Video with YouTube Studio Editor</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-ideal-culmination-in-virtual-ventures-for-2024/"><u>[Updated] Ideal Culmination in Virtual Ventures for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-legends-of-arcade-combat-nintendos-top-ten-on-switch-for-2024/"><u>[Updated] Legends of Arcade Combat Nintendo's Top Ten on Switch for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-oneplus-ace-2-pro-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset OnePlus Ace 2 Pro Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/bypass-restrictions-the-ultimate-tutorial-on-viewing-bilibili-worldwide/"><u>Bypass Restrictions: The Ultimate Tutorial on Viewing Bilibili Worldwide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/converting-youtube-content-into-convenient-audio-format-a-step-by-step-guide/"><u>Converting YouTube Content Into Convenient Audio Format: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/create-your-own-iphone-ringtone-with-mp4-video-a-step-by-step-guide/"><u>Create Your Own iPhone Ringtone with MP4 Video: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-transformation-of-wmv-files-turn-them-into-mp4movmp3-for-universal-compatibility/"><u>Effortless Transformation of WMV Files - Turn Them Into MP4/MOV/MP3 for Universal Compatibility!</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/enhance-your-kodi-experience-with-the-easy-groku-addon-setup-tutorial/"><u>Enhance Your Kodi Experience with the Easy Groku Addon Setup Tutorial</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/mkv-oggi-3gp-domani-come-converti-file-gratuitamente-online-con-movavi/"><u>MKV Oggi, 3GP Domani: Come Converti File Gratuitamente Online Con Movavi!</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-top-video-editors-for-4k-proxy-workflow-2023-edition/"><u>Updated 2024 Approved Top Video Editors for 4K Proxy Workflow 2023 Edition</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-convincing-openers-stellar-podcast-entries/"><u>[New] Convincing Openers Stellar Podcast Entries</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-streamlined-aesthetics-incorporating-visual-effects-in-videos-pcmobile/"><u>[Updated] 2024 Approved Streamlined Aesthetics Incorporating Visual Effects in Videos (PC/Mobile)</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-poco-x5-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-the-problem-of-non-opened-nvidia-control-panel-w11/"><u>Addressing the Problem of Non-Opened NVidia Control Panel, W11</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-iphone-14-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For iPhone 14</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/get-your-free-trial-of-the-ultimate-mp4-video-converter-safe-and-secure-online-shopping/"><u>Get Your Free Trial of the Ultimate MP4 Video Converter - Safe and Secure Online Shopping</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/master-the-art-of-converting-jpeg-pictures-to-gif-format-with-these-easy-to-follow-techniques/"><u>Master the Art of Converting JPEG Pictures to GIF Format with These Easy-to-Follow Techniques!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolved-how-to-enable-sounds-on-your-firefox-browser-again/"><u>Resolved: How to Enable Sounds on Your Firefox Browser Again</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/secure-methods-for-downloading-youtube-content-save-your-favorite-videos-safely/"><u>Secure Methods for Downloading YouTube Content - Save Your Favorite Videos Safely</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/smooth-steps-top-20-chill-out-country-hits-for-grooving-tiktok/"><u>Smooth Steps Top 20 Chill-Out Country Hits for Grooving (TikTok)</u></a></li>
+<li><a href="https://common-error.techidaily.com/solve-windows-10-font-clarity-issues-easy-steps-to-improve-text-sharpness/"><u>Solve Windows 10 Font Clarity Issues: Easy Steps to Improve Text Sharpness</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-downloading-tweets-as-video-files-from-any-smartphone-or-computer/"><u>Step-by-Step Guide: Downloading Tweets as Video Files From Any Smartphone or Computer</u></a></li>
+<li><a href="https://driver-error.techidaily.com/unraveling-the-mystery-behind-nvidia-crashes/"><u>Unraveling the Mystery Behind Nvidia Crashes</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Understanding Intelligent Process Automation: An Overview"
-date: 2024-09-11T23:25:44.028Z
-updated: 2024-09-14T17:16:24.762Z
+date: 2024-09-21T17:21:57.709Z
+updated: 2024-09-23T18:01:25.458Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dba9ef92930f5d20237b2a75fb5ee76b8bab75f866f82161cefcc63f630df758.jpg
@@ -39,6 +39,13 @@ Organizations must understand processes before they can successfully implement p
 
 ![process mining gif](https://static1.abbyy.com/abbyycommedia/35773/ipa-blog-meme-1.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After automation is in place, Process Intelligence enables continuous monitoring to flag deviations or inefficiencies as they arise, enabling businesses to address small problems before they become big ones.
 
 [Learn more about ABBYY Timeline, a cloud-based, AI-driven Process Intelligence (process and task mining) platform.](https://tools.techidaily.com/abbyy/products/)
@@ -50,10 +57,10 @@ While many traditional approaches to process automation focused on data flows, m
 ![what is IDP vs legacy tech](https://static1.abbyy.com/abbyycommedia/34935/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Intelligent Document Processing (IDP)](https://tools.techidaily.com/abbyy/products/) applies AI-based document processing “skills” to read and understand documents in a way that humans understand and manage content. As a result, the information contained in documents becomes immediately available and actionable, when and where it's needed, with little to no human intervention required. In addition to saving time and money, IDP reduces the risk of costly errors and frees employees to focus on more challenging work.
@@ -74,26 +81,13 @@ There’s no question that [robotic process automation](https://tools.techidaily
 
 ![Icon with gears, paper, and a head representing how intelligent process automation encompasses the &quot;big picture&quot; of applying AI technologies to mirror human decision-making at every stage with Intelligent Process Automation. And a description of what is IPA, text repeated below.](https://static1.abbyy.com/abbyycommedia/35771/what-is-ipa-technology-lg-2.png)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Intelligent Process Automation encompasses the “big picture” of business processes, applying AI technologies (e.g., Intelligent Document Processing, process mining, task mining, natural language processing, machine learning, advanced analytics) to mirror human decision-making at every stage. When and where relatively simple, rules-based decision-making is required, RPA can be an appropriate solution and may be used quite successfully. IPA capabilities allow you to [scale RPA projects](https://tools.techidaily.com/abbyy/products/) by expanding automation further.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What can Intelligent Process Automation do for businesses?
@@ -101,16 +95,10 @@ Intelligent Process Automation encompasses the “big picture” of business pro
 By combining the capabilities of Process Intelligence and Intelligent Document Processing, Intelligent Process Automation helps businesses understand processes before, during, and after automation. It identifies deviations or inefficiencies that can waste time and resources. This means businesses can use real-world data from their own operations to identify and prioritize processes most likely to benefit from automation. They also gain insight into how documents function as the basis for skilled decision-making at every stage of the process. These insights enable the business to determine how they can manage documents to make the process work more efficiently, and then apply the document skills needed to optimize content processing.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which industries can benefit from Intelligent Process Automation?
@@ -134,6 +122,13 @@ While earlier approaches to automation required significant infrastructure inves
 2. Understand the big picture of how data drives the process, with an emphasis on how unstructured data from documents fuels the process.
 3. Intelligently automate where it makes sense, prioritizing processes that offer the greatest potential ROI from automation
 4. Automate monitoring of results to enable continuous improvement.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The future of process automation is intelligent
 
@@ -208,18 +203,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/idden-treasures-non-top-films-that-shine/"><u>[New] Hidden Treasures Non-Top Films That Shine</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-increase-your-videos-impact-essential-keyword-analysis-resources/"><u>[Updated] Increase Your Video's Impact Essential Keyword Analysis Resources</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-camtasia-9-unlock-the-art-of-ken-burns-easing/"><u>2024 Approved Camtasia 9 Unlock the Art of Ken Burns Easing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-brazils-surge-in-intelligent-tech-solutions-during-infoshow-2nv-2018-expert-analysis-by-abbyy-blog-team/"><u>Exploring Brazil's Surge in Intelligent Tech Solutions During InfoShow 2Nv 2018 | Expert Analysis by ABBYY Blog Team</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-innovative-tech-smartwatch-capabilities-real-time-language-conversion-and-secure-cloud-storage-solutions-on-the-abbyy-platform/"><u>Exploring Innovative Tech: Smartwatch Capabilities, Real-Time Language Conversion & Secure Cloud Storage Solutions on the ABBYY Platform</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016675659-fixing-the-irritating-speaker-crackle-issue-on-your-windows-107-device-solved/"><u>Fixing the Irritating Speaker Crackle Issue on Your Windows 10/7 Device – Solved!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/get-your-free-abyy-alteryx-bridge-tool-now/"><u>Get Your Free ABYY Alteryx Bridge Tool Now!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-ai-commerce-insights-tips-and-trends-on-the-abbyy-platform/"><u>Mastering AI Commerce Insights - Tips & Trends on the ABBYY Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-process-insight-with-abbyys-advanced-neat-analysis-solutions-by-nelsonhallcom/"><u>Mastering Process Insight with ABBYY's Advanced Neat Analysis Solutions by Nelsonhall.com</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/neoml-von-abbyy-jetzt-mit-python-unterstutzt-erleben-sie-die-10x-schnellere-open-source-bibliothek/"><u>NeoML Von ABBYY Jetzt Mit Python Unterstützt - Erleben Sie Die 10X Schnellere Open-Source-Bibliothek</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/quick-file-formatting-magic-turning-srt-into-txt-in-minutes/"><u>Quick File Formatting Magic Turning SRT Into TXT in Minutes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sumind-bt7/"><u>Sumind BT7</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-google-pixel-8-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Google Pixel 8 Android SIM Unlock APK</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-going-back-in-time-your-android-movie-method/"><u>[New] Going Back in Time Your Android Movie Method</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-expert-review-dynamic-action-recording-tools/"><u>[Updated] 2024 Approved Expert Review Dynamic Action Recording Tools</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-crafting-dissolves-with-ableton-live/"><u>[Updated] Crafting Dissolves with Ableton Live</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/bypass-restrictions-the-ultimate-tutorial-on-viewing-bilibili-worldwide/"><u>Bypass Restrictions: The Ultimate Tutorial on Viewing Bilibili Worldwide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-21-vegas-pro-roundup-from-beginner-to-expert-tips/"><u>In 2024, '21 Vegas Pro Roundup – From Beginner to Expert Tips</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-question-collection-for-lively-podcast-discussions/"><u>In 2024, Innovative Question Collection for Lively Podcast Discussions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/pursuitofhigherqualitycams-for-2024/"><u>PursuitOfHigherQualityCams for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reactivate-your-razer-headset-microphone-with-these-5-steps/"><u>Reactivate Your Razer Headset Microphone with These 5 Steps</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/tdr-alert-deactivated-with-nvidias-immediate-action/"><u>TDR Alert Deactivated with Nvidia's Immediate Action</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030257633-vlc/"><u>VLCメディアプレーヤーによる動画編集: 簡単な切り取りとカット手順</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-realme-10t-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Realme 10T 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
 </ul></div>
 

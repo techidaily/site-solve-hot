@@ -1,7 +1,7 @@
 ---
 title: "Enhance Efficiency in the ABBYY Procurement Cycle: Expert AP Automation Tools for Businesses"
-date: 2024-09-12T23:06:18.808Z
-updated: 2024-09-14T19:27:16.556Z
+date: 2024-09-20T16:54:27.880Z
+updated: 2024-09-23T17:40:18.249Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6404644d3e1ec95170f598da6ea66bbff597c34cc3f9580cc8d7755b3643dcab.png
@@ -26,6 +26,13 @@ Procure-to-Pay (P2P) has become the Holy Grail of Accounts Payable (AP) automati
 Most P2P projects either fail to deliver on expectations or even fail to get started for a simple reason: Document-driven processes. Most (65 percent, [according to Levvel Research](https://tools.techidaily.com/abbyy/products/)) AP organizations still live in paper-based processes, even when invoices arrive electronically. Furthermore, most AP operations do not have visibility into shipping and receiving to verify receipt of goods.
 
 Getting control over document processing is essential to delivering on P2P, but many AP organizations do not have the right tools to adapt their processes to digitization or to automate the processing of all the documents required to run it. Only by gaining visibility and control over the content of your Supply Chain operations (from ordering to shipping, receiving, and ultimately payment) can P2P be achievable.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Adding “document skills” transforms AP operations
 
@@ -52,16 +59,10 @@ Why do so many attempts at P2P fail despite having modern technologies like RPA,
 Containerized low-code / no-code skills allow you to add Intelligent Document Processing without laying down its own infrastructure and custom integration to run it. Procure-to-pay is a real-time control of cashflow that always knows all outstanding invoices, receipts, receivables, terms, and opportunities. Understanding cash flow as document-driven events and processes is the first step. Adding [Vantage skills](https://tools.techidaily.com/abbyy/products/) for [invoices](https://tools.techidaily.com/abbyy/products/), [receipts](https://tools.techidaily.com/abbyy/products/), [commercial invoices](https://tools.techidaily.com/abbyy/products/), [customs declarations and more](https://tools.techidaily.com/abbyy/products/)—all using your existing infrastructure—completes the foundation for real-time cashflow control. Now, P2P can become reality.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Want to optimize your AP operations for rapid change?
@@ -69,6 +70,13 @@ Containerized low-code / no-code skills allow you to add Intelligent Document Pr
 We have a skill for that.
 
 [Visit ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## A marketplace approach
 
@@ -92,14 +100,14 @@ For more information, [read the press release](https://tools.techidaily.com/abby
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Reginald J. Twigg
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -164,18 +172,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-elevate-your-digital-footprint-strategies-for-effective-fb-video-marketing/"><u>[New] In 2024, Elevate Your Digital Footprint Strategies for Effective FB Video Marketing</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-mastering-zoom-the-ultimate-guide-to-audio-recording-for-podcasts/"><u>[Updated] In 2024, Mastering Zoom The Ultimate Guide to Audio Recording for Podcasts</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-cut-the-redundancy-a-step-by-step-to-adding-times-in-your-videos/"><u>2024 Approved Cut the Redundancy A Step-by-Step to Adding Times in Your Videos</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/evaluating-the-mophie-powerstation-ac-charger-balancing-cost-and-convenience-for-tech-enthusiasts/"><u>Evaluating the Mophie Powerstation AC Charger - Balancing Cost and Convenience for Tech Enthusiasts</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-stolen-iphone-xs-max-in-different-conditionsin-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Stolen iPhone XS Max In Different Conditionsin | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-infinix-hot-30i-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Infinix Hot 30i? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-power-management-configuring-wake-on-lan-on-windows-11-systems/"><u>Mastering Power Management: Configuring Wake-on-LAN on Windows 11 Systems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/pioneering-intelligence-driven-tools-to-revolutionize-your-operations/"><u>Pioneering Intelligence-Driven Tools to Revolutionize Your Operations</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/shaping-tomorrows-businesses-with-advanced-large-language-models/"><u>Shaping Tomorrow's Businesses with Advanced Large Language Models</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/system-graphics-init-error-reported/"><u>System Graphics Init Error Reported</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-5-strategies-for-enhanced-law-firm-document-control-with-abbyy/"><u>Top 5 Strategies for Enhanced Law Firm Document Control with ABBYY</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/top-heavy-lift-uavs-for-global-industrial-use/"><u>Top Heavy-Lift UAVs for Global Industrial Use</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-achieve-clean-canvases-the-picart-backdrop-removal-art/"><u>[New] Achieve Clean Canvases The PicArt Backdrop Removal Art</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-soft-sonata-reducing-volume-in-os/"><u>[Updated] Soft Sonata Reducing Volume in OS</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-set-of-free-photo-screen-shifts/"><u>2024 Approved Ultimate Set of Free Photo Screen Shifts</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/decoding-the-european-unions-approach-to-ai-with-a-focus-on-how-it-might-influence-tools-like-chatgpt/"><u>Decoding the European Union’s Approach to AI with a Focus on How It Might Influence Tools Like ChatGPT</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-transformation-of-wmv-files-turn-them-into-mp4movmp3-for-universal-compatibility/"><u>Effortless Transformation of WMV Files - Turn Them Into MP4/MOV/MP3 for Universal Compatibility!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-ways-to-access-jackie-chan-films-online/"><u>Effortless Ways to Access Jackie Chan Films Online</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/get-your-free-trial-of-the-ultimate-mp4-video-converter-safe-and-secure-online-shopping/"><u>Get Your Free Trial of the Ultimate MP4 Video Converter - Safe and Secure Online Shopping</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-nokia-c12-plus-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Nokia C12 Plus Phone Screen?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-from-your-iphone-xr-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID From your iPhone XR?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/master-the-art-of-converting-jpeg-pictures-to-gif-format-with-these-easy-to-follow-techniques/"><u>Master the Art of Converting JPEG Pictures to GIF Format with These Easy-to-Follow Techniques!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/secure-methods-for-downloading-youtube-content-save-your-favorite-videos-safely/"><u>Secure Methods for Downloading YouTube Content - Save Your Favorite Videos Safely</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlock-hidden-features-amazing-secrets-of-macos-preview-tool/"><u>Unlock Hidden Features: Amazing Secrets of macOS Preview Tool</u></a></li>
+<li><a href="https://techidaily.com/will-huawei-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will Huawei play AVCHD mts files?</u></a></li>
 </ul></div>
 

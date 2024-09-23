@@ -1,7 +1,7 @@
 ---
 title: ABBYY Solution - Optimiser Les Services De Traduction Pour Le Droit Et La Finance
-date: 2024-09-12T21:14:06.669Z
-updated: 2024-09-14T17:54:20.306Z
+date: 2024-09-17T17:16:48.066Z
+updated: 2024-09-23T16:38:29.291Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d87088006ba977c8519d5351.jpg
@@ -19,11 +19,25 @@ Consulting
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ABBYY aide les agences de traduction dans le secteur du droit et de la finance à proposer des services de qualité à leurs clients
 
 [Afficher ou télécharger une version imprimable de cet article (PDF 302 kb)](https://static4.abbyy.com/abbyycommedia/10186/cs-hl-trad-fr-f.pdf) 
 
 _![](https://tools.techidaily.com/abbyy/products/)HL TRAD est une agence de traduction et d´interprétariat, spécialisée auprès des acteurs du droit, de la finance et du conseil, qui propose à ses clients des traductions libres ou assermentées, des interprètes et des services de relecture. Pour mieux répondre aux besoins de ses clients, HL TRAD constitue des équipes dont l'objectif est de mettre au point des solutions sur mesure. HL TRAD est implantée en France, en Angleterre et en Belgique. L´agence a récemment investi dans une solution permettant d'améliorer les procédures associées au traitement de documents importants à traduire._
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Contexte
 
@@ -34,10 +48,10 @@ HL TRAD doit convertir des documents régulièrement pour répondre aux besoins 
 Eric Le Poole, gérant de HL TRAD, explique la raison pour laquelle trouver une solution de reconnaissance de texte (OCR) devenait essentielle: « Les documents sont au centre de notre activité, qu'il s'agisse de conclusions, de comptes annuels, de rapports de gestion, ou encore, de rapports de due diligence. La possibilité de convertir ces documents devait nous permettre de récupérer du texte, des tableaux et des graphiques en évitant une ressaisie fastidieuse et source d´erreurs. Les avantages recherchés étaient de faciliter le travail de nos collaborateurs et d´assurer un meilleur service à nos clients.»
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution
@@ -72,6 +86,19 @@ Tél.: +33 (0)1 30 09 41 90
 
 ---
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### A propos d’ABBYY et contact
 
 [Vers la description d’ABBYY ›](https://tools.techidaily.com/abbyy/products/)
@@ -79,13 +106,6 @@ Tél.: +33 (0)1 30 09 41 90
 [Contacts ›](https://tools.techidaily.com/abbyy/products/)
 
 Partager 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Prêt à parler à un expert ?
 
@@ -108,18 +128,25 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-choosing-the-finest-webcams-our-expert-guide-for-2024/"><u>[New] Choosing the Finest Webcams - Our Expert Guide for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-from-scribbles-to-spectacle-personalized-effect-crafting-for-2024/"><u>[New] From Scribbles to Spectacle Personalized Effect Crafting for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-comprehensive-list-of-vimeo-downloader-utilities/"><u>[Updated] 2024 Approved Comprehensive List of Vimeo Downloader Utilities</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-step-by-step-for-macos-sierras-system-return-to-el-capitan/"><u>[Updated] Step-by-Step for MacOS Sierra's System Return to El Capitan</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-mastering-ppt-a-comprehensive-voice-guidance-manual/"><u>2024 Approved Mastering PPT A Comprehensive Voice Guidance Manual</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-process-intelligence-collaborating-with-alteryx-and-abbyy-in-tandem/"><u>Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/carlsberg-beschleunigung-zur-weltweiten-bierbraukronung-durch-abbyy/"><u>Carlsberg: Beschleunigung Zur Weltweiten Bierbraukrönung Durch ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comprehensive-guide-on-eula-notification-policies/"><u>Comprehensive Guide on EULA Notification Policies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-customization-enhancing-user-experience/"><u>Cookiebot-Driven Customization: Enhancing User Experience</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/original-tape-review-study-guide/"><u>Original Tape Review Study Guide</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-11-essential-gpt-3-triggers-for-crafting-book-characters/"><u>Top 11 Essential GPT-3 Triggers for Crafting Book Characters</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/videocapture-analysis-hub/"><u>VideoCapture Analysis Hub</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-the-battle-of-screen-capture-supremacy-obs-vs-fraps/"><u>[New] 2024 Approved The Battle of Screen Capture Supremacy OBS vs Fraps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-integrating-zoom-for-professional-tiktok-content/"><u>[New] Integrating Zoom for Professional TikTok Content</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-syma-x5c-exploration-top-choice-for-novice-aerial-enthusiasts/"><u>[New] Syma X5C Exploration Top Choice for Novice Aerial Enthusiasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-stream-success-beginners-roadmap/"><u>[New] Twitter Stream Success Beginner's Roadmap</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/complete-tutorial-with-steps-to-securely-downloading-the-focusrite-scarlett-solo-software-for-windows-users/"><u>Complete Tutorial with Steps to Securely Downloading the Focusrite Scarlett Solo Software for Windows Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/data-disappears-in-excel-2019-how-to-get-it-back-by-stellar-guide/"><u>Data Disappears in Excel 2019 - How to get it back</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-solutions-for-lameencdll-errors-when-using-audacity-to-convert-audio-files/"><u>Effective Solutions for lame_enc.dll Errors when Using Audacity to Convert Audio Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-save-your-favorite-antenna-tv-episodes-updated-techniques/"><u>How to Save Your Favorite Antenna TV Episodes: Updated Techniques</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/in-depth-techniques-for-correcting-msvcr110dll-deficiency-on-windows-systems/"><u>In-Depth Techniques for Correcting MSVCR110.dll Deficiency on Windows Systems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/join-wonderfoxs-lucrative-affiliate-scheme-and-earn-profits-now/"><u>Join WonderFox's Lucrative Affiliate Scheme & Earn Profits Now!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mgs/"><u>MGSアニメーションのクリップ撮りテクニック</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/micro-movie-maker-for-2024/"><u>Micro Movie Maker for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-steps-recording-teamviewer-meetings-on-windows-11/"><u>Simple Steps: Recording TeamViewer Meetings on Windows 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-capturing-your-powerpoint-slides-with-hd-audio-and-video/"><u>Step-by-Step Guide: Capturing Your PowerPoint Slides with HD Audio & Video</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-strategies-for-securely-grabbing-premium-udemy-classes-without-breaking-a-sweat/"><u>Top Strategies for Securely Grabbing Premium Udemy Classes Without Breaking a Sweat!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-mp4-converter-from-dvd-for-windows-10-and-11-users/"><u>Top-Rated MP4 Converter From DVD for Windows 10 & 11 Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ultimate-guide-choosing-the-1-dvd-to-mp4-conversion-software-in-202er-for-windows-11/"><u>Ultimate Guide: Choosing the #1 DVD to MP4 Conversion Software in 202Er for WINDOWS 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wavmp3windowsmac/"><u>WAVからMP3への変換方法：WindowsとMac両方で使える手軽な解決策</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-11-hd4k/"><u>Windows 11でフリーマガジン: HDや4Kにビデオ解像度調整の簡単ガイド</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems"
-date: 2024-09-13T23:00:51.132Z
-updated: 2024-09-14T18:44:17.525Z
+date: 2024-09-17T16:24:24.743Z
+updated: 2024-09-23T16:49:52.359Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b444eae6e981167865c0c0478.jpg
@@ -10,6 +10,13 @@ thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b4
 ## Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems
 
 ## 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ABBYY | Pegasystems 
 
@@ -22,6 +29,13 @@ Permettre aux BPM et RPA de Pega de transformer automatiquement des documents et
 En tant que partenaire technologique de Pega, ABBYY fournit des solutions de traitement intelligent des documents qui permettent aux clients Pega d’ajouter un nouveau niveau d’automatisation à leur gestion de documents et de contenu non structuré. La technologie ABBYY classe et extrait automatiquement les données des documents pour convertir le contenu en informations exploitables et structurées qui rendent vos processus Pega plus intelligents, ce qui permet d’améliorer grandement l’expérience client et l’efficacité opérationnelle.
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Avantages de l’intégration 
 
@@ -46,10 +60,16 @@ Le connecteur ABBYY FlexiCapture pour Pega permet aux BPM et RPA de Pega de tran
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/pegasystems_logo_rev_120px.png?h=26&iar=0&w=120)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Cas d’utilisation
@@ -75,10 +95,10 @@ L’ajout de FlexiCapture aux processus de comptabilité fournisseurs Pega perme
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Prêt à parler à un expert ?
@@ -100,13 +120,18 @@ L’ajout de FlexiCapture aux processus de comptabilité fournisseurs Pega perme
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-new-developments-in-facebook-2023-edition/"><u>[New] In 2024, New Developments in Facebook - 2023 Edition</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-permanent-capture-sustaining-facebook-live-footage/"><u>[New] Permanent Capture Sustaining Facebook Live Footage</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-tailoring-content-creating-ideal-instagram-video-experiences-for-2024/"><u>[New] Tailoring Content Creating Ideal Instagram Video Experiences for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-and-m-files-bolster-synergistic-alliance/"><u>Abbyy & M-Files Bolster Synergistic Alliance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-innovates-at-tech-summit-unveiling-the-top-7-smart-scanning-breakthroughs/"><u>ABBYY Innovates at Tech Summit: Unveiling the Top 7 Smart Scanning Breakthroughs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-upgrades-sdk-to-offer-immediate-capture-capabilities-for-faster-data-processing/"><u>ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/premier-playwrights-lair-for-2024/"><u>Premier Playwright's Lair for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-motorola-moto-e13-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Motorola Moto E13 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-how-to-sculpt-the-perfect-youtube-moniker-tips-and-tricks/"><u>[New] How to Sculpt the Perfect YouTube Moniker Tips & Tricks</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030046414-windows-media-player/"><u>「ファイル再生中のWindows Media Player 問題」: 修正方法と解決策</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-compatible-platforms-a-step-by-step-guide-to-watching-wtv-videos-anywhere/"><u>1. Compatible Platforms: A Step-by-Step Guide to Watching WTV Videos Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-step-by-step-guide-adjusting-your-sound-quality-by-changing-the-bitrate/"><u>1. Step-by-Step Guide: Adjusting Your Sound Quality by Changing the Bitrate</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-streaming-star-status-buttons-and-growth-accolades/"><u>2024 Approved Streaming Star Status - Buttons & Growth Accolades</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/achieving-top-notch-clarity-recording-pro-tips-for-firestick-users/"><u>Achieving Top-Notch Clarity: Recording Pro Tips for Firestick Users</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/amazon-eero-max-6-harness-the-power-of-wi-fi-7-and-up-to-10-gigabit-speeds-for-unmatched-connectivity/"><u>Amazon Eero Max 6: Harness the Power of Wi-Fi 7 & Up to 10 Gigabit Speeds for Unmatched Connectivity</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-11-pro-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 11 Pro Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-oleaut32dll-is-absent-or-inaccessible-expert-tips-and-tricks/"><u>Fixing 'Oleaut32.dll Is Absent or Inaccessible': Expert Tips & Tricks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-scoping-out-the-12-most-popular-flip-screen-video-cameras/"><u>In 2024, Scoping Out the 12 Most Popular Flip-Screen Video Cameras</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726029019563-insta/"><u>Insta動画を最高に見せる投稿テクニック</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-path-forward-for-responsible-ai-development/"><u>The Path Forward for Responsible AI Development</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-how-to-successfully-add-hevc-footage-in-after-effects/"><u>Troubleshooting Guide: How to Successfully Add HEVC Footage in After Effects</u></a></li>
 </ul></div>
 

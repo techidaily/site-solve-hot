@@ -1,7 +1,7 @@
 ---
 title: "Future-Proofing Insurance with Data: A Key Component for Change"
-date: 2024-09-16T21:22:18.947Z
-updated: 2024-09-18T22:04:21.604Z
+date: 2024-09-16T18:08:07.636Z
+updated: 2024-09-23T17:40:06.074Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c9c3286561c0cb162a6f36b6b19f491a65ddd3daf244f3f3d4ecee0cf92b0349.jpg
@@ -21,6 +21,13 @@ French
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25106/04-lindaameur-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Linda Ameur
 
 Directrice Commerciale, **ABBYY France**
@@ -33,49 +40,28 @@ Directeur data et digital, **Groupe MALAKOFF HUMANIS**
 
 ![69 Franсoisely 198X198](https://static4.abbyy.com/abbyycommedia/32016/69-franсoisely-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Françoise Ly
 
 Head of Digital Transformation, **GROUPAMA**
 
 ![68 Franсoislimoge 198X198](https://static5.abbyy.com/abbyycommedia/32018/68-franсoislimoge-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### François Limoge
 
 Rédacteur en chef, **L’Argus de l'Assurance**
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Description
 
 D’une data simple à « smart », le chemin semble long en assurance pour acquérir un processus de transformation efficient. Le plein potentiel serait abouti lorsque cette smart data est utilisée pour repenser les processus existants ou mieux encore, en définir de nouveaux. L’entreprise intelligente serait alors celle qui saura utiliser son capital métier, la mémoire et l’exploitation de « l’acquis » : données et process.
 
 La maitrise de la donnée est un enjeu stratégique aujourd’hui en assurance.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Les sujets :
 
@@ -85,16 +71,44 @@ Nous vous proposons, par ce rendez-vous proposé par L’Argus de l’assurance 
 * Comment digitaliser les process pour une UX optimisée ?
 * L’analyse de donnée, nouvel outil d’aide à la décision pour mieux piloter le changement ?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Regardez maintenant
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Merci et bon webinaire !
 
 [![21 L’Assurance De Demain](https://static3.abbyy.com/abbyycommedia/31972/21-l-assurance-de-demain.jpg)](https://www.youtube.com/watch?v=kwgRHhKXymA) 
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
@@ -163,16 +177,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-discover-the-next-wave-of-effective-facebook-ad-techniques/"><u>[New] 2024 Approved Discover the Next Wave of Effective Facebook Ad Techniques</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-camstudio-full-features-analysis/"><u>[Updated] In 2024, CamStudio Full Features Analysis</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-leveraging-live-tweets-strategies-unveiled-for-2024/"><u>[Updated] Leveraging Live Tweets Strategies Unveiled for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-ways-to-access-jackie-chan-films-online/"><u>Effortless Ways to Access Jackie Chan Films Online</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/get-your-free-trial-of-the-ultimate-mp4-video-converter-safe-and-secure-online-shopping/"><u>Get Your Free Trial of the Ultimate MP4 Video Converter - Safe and Secure Online Shopping</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-does-bitrate-affect-your-listening-experience-unveiling-the-importance-of-data-transmission-rate/"><u>How Does Bitrate Affect Your Listening Experience? Unveiling the Importance of Data Transmission Rate</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-realme-note-50-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Realme Note 50</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-xiaomi-redmi-13c-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Xiaomi Redmi 13C to New Android? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/master-the-art-of-converting-jpeg-pictures-to-gif-format-with-these-easy-to-follow-techniques/"><u>Master the Art of Converting JPEG Pictures to GIF Format with These Easy-to-Follow Techniques!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/understanding-and-solving-random-disconnections-a-guide-for-windows-users-with-a-faulty-wireless-mouse/"><u>Understanding & Solving Random Disconnections: A Guide for Windows Users with a Faulty Wireless Mouse</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-best-virtual-background-for-google-meet-video-call/"><u>[New] Best Virtual Background for Google Meet Video Call</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-dominance-index-top-ten-royale-survival-games/"><u>[New] In 2024, Dominance Index Top Ten Royale Survival Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-best-biz-youtubes-top-10-for-quick-channel-setup-for-2024/"><u>[Updated] Best Biz YouTubes Top 10 for Quick Channel Setup for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-top-best-background-erase-software/"><u>[Updated] Top Best Background Erase Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030046414-windows-media-player/"><u>「ファイル再生中のWindows Media Player 問題」: 修正方法と解決策</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-compatible-platforms-a-step-by-step-guide-to-watching-wtv-videos-anywhere/"><u>1. Compatible Platforms: A Step-by-Step Guide to Watching WTV Videos Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-step-by-step-guide-adjusting-your-sound-quality-by-changing-the-bitrate/"><u>1. Step-by-Step Guide: Adjusting Your Sound Quality by Changing the Bitrate</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-top-12-vlogger-friendly-cameras-unveiled/"><u>2024 Approved Top 12 Vlogger-Friendly Cameras Unveiled!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726029019563-insta/"><u>Insta動画を最高に見せる投稿テクニック</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-how-to-successfully-add-hevc-footage-in-after-effects/"><u>Troubleshooting Guide: How to Successfully Add HEVC Footage in After Effects</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unlock-ig-success-with-expert-insights-on-loop-videos/"><u>Unlock IG Success with Expert Insights on Loop Videos</u></a></li>
 </ul></div>
 

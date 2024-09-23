@@ -1,7 +1,7 @@
 ---
 title: Revolutionize Your Online Advertising Strategy Like a Pro Using Techniques Similar to Cookiebot's Methodology
-date: 2024-09-13T20:01:14.589Z
-updated: 2024-09-14T22:07:32.498Z
+date: 2024-09-16T18:27:21.520Z
+updated: 2024-09-23T17:58:27.718Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/92e9b29713cc88b11300b903399854331375d2de8a951965b47ae1bc4c0fa3c6.jpg
@@ -15,9 +15,23 @@ Whitepaper
 
 ![Von „ETL“ zu „ELT“ und warum das für die nächste Generation von Process Mining und Process Discovery wichtig ist](https://static1.abbyy.com/abbyycommedia/30286/83b-from-etl-to-elt-de-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Wie die verschiedenen Methoden der Datentransformation das Ergebnis des Process Minings und der Process Discovery beeinflussen
 
 Eine wichtige Voraussetzung für ein effektives Process Mining ist die Fähigkeit, auf Ereignisprotokolle unterschiedlicher Aufzeichnungssysteme zuzugreifen, noch während diese Ereignisse ablaufen. Diese Ereignisprotokolldaten bilden die Grundlage für neue Erkenntnisse, Prognosen und Entscheidungsprozesse. Doch zunächst einmal müssen die Daten umgewandelt werden.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
 
@@ -26,10 +40,10 @@ Dieses Whitepaper erläutert die verschiedenen Ansätze der Datentransformation 
 Erfahren Sie, warum der Wechsel von ETL zu ELT für die nächste Generation des Process Discovery, Mining und Analysis einen echten Unterschied macht.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -39,10 +53,10 @@ Erfahren Sie, warum der Wechsel von ETL zu ELT für die nächste Generation des 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -114,21 +128,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-seamless-snapchat-lens-creation/"><u>[New] In 2024, The Ultimate Guide to Seamless Snapchat Lens Creation</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-10-must-use-photo-watermark-tools/"><u>[Updated] 2024 Approved 10 Must-Use Photo Watermark Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/10-exciting-neural-network-options-for-your-phone-beyond-gpt/"><u>10 Exciting Neural Network Options for Your Phone Beyond GPT</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1722013703357-beware-these-sham-ai-tools-risky-for-data-security/"><u>Beware: These Sham AI Tools Risky for Data Security!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722898790286-fire-stick-woes-heres-how-to-get-your-remote-working-again/"><u>Fire Stick Woes? Here's How to Get Your Remote Working Again</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-process-data-optimization-fuels-improved-rpa-outcomes-perspectives-by-abbyy-team/"><u>How Process Data Optimization Fuels Improved RPA Outcomes - Perspectives by ABBYY Team</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-rog-phone-8-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on ROG Phone 8</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Teleport Your GPS Location On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/innovative-receipt-management-with-ai-technology-from-abbyy-streamlined-efficiency-for-businesses/"><u>Innovative Receipt Management with AI Technology From ABBYY - Streamlined Efficiency for Businesses</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leveraging-cookiebot-technology-for-advanced-website-personalization-and-analytics/"><u>Leveraging Cookiebot Technology for Advanced Website Personalization & Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-challenges-common-missteps-in-corporate-ai-integration-and-how-to-avoid-them/"><u>Navigating the Challenges: Common Missteps in Corporate AI Integration & How to Avoid Them</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-bookkeeping-strategies-with-abbyys-advanced-content-intelligence-tools/"><u>Optimizing Your Bookkeeping Strategies with ABBYY's Advanced Content Intelligence Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/pioneering-intelligence-driven-tools-to-revolutionize-your-operations/"><u>Pioneering Intelligence-Driven Tools to Revolutionize Your Operations</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/shaping-tomorrows-businesses-with-advanced-large-language-models/"><u>Shaping Tomorrow's Businesses with Advanced Large Language Models</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-essence-of-depth-crafting-3d-text-art/"><u>The Essence of Depth Crafting 3D Text Art</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-television-streaming-services/"><u>Top Rated Television Streaming Services</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-seek-all-sharing-in-a-group-chat-via-messenger/"><u>[New] In 2024, Seek All Sharing in a Group Chat via Messenger</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/m4bmp3-movavi/"><u>「気軽に変換! M4BファイルをMP3無料ダウンロード - Movavi」</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/youtube72024/"><u>「推薦される最強のYouTubeダウンローダー7組！2024年版ランキング完全ガイド」</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-how-can-you-convert-an-opus-file-into-ogg-format-at-no-cost/"><u>1. How Can You Convert an OPUS File Into OGG Format at No Cost?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-3-free-video-players-face-off-vlc-vs-mpc-showdown/"><u>2024 Approved Top 3 FREE Video Players Face Off VLC Vs. MPC Showdown</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5-outstanding-no-cost-tools-to-save-your-favorite-youtube-content-on-windows-ten/"><u>5 Outstanding No-Cost Tools to Save Your Favorite YouTube Content on Windows # Ten</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726026567366-gopro/"><u>高品質なGoProフィルムに変える解像度調節手順</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-champions-the-best-of-self-driving-car-manufacturing/"><u>Discover the Champions: The Best of Self-Driving Car Manufacturing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fast-conversion-guide-transforming-webm-files-into-mkv-format/"><u>Fast Conversion Guide: Transforming WebM Files Into MKV Format</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-iphone-se-2020-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>How to Unlock Apple iPhone SE (2020) When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mov-file-conversion-step-by-step-guide-to-transforming-into-a-3gp-format-on-your-computer/"><u>MOV File Conversion: Step-by-Step Guide to Transforming Into a 3GP Format on Your Computer</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-this-case-you-would-prefer-to-rotate-3gp-videos-90-degrees-for-a-better-viewing-here-is-a-list-of-top-5-free-3gp-video-rotators/"><u>New In This Case, You Would Prefer to Rotate 3GP Videos 90 Degrees for a Better Viewing. Here Is a List of Top 5 Free 3GP Video Rotators</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/region-free-dvd-player-setup-enjoy-us-movies-in-the-uk-without-any-hassle/"><u>Region-Free DVD Player Setup: Enjoy US Movies in the UK Without Any Hassle</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-tutorial-setup-and-update-epson-ds-510-software-on-a-windows-laptop-or-desktop/"><u>Step by Step Tutorial: Setup & Update Epson DS-510 Software on a Windows Laptop or Desktop</u></a></li>
+<li><a href="https://driver-error.techidaily.com/successfully-installed-nvidia-drivers-2024/"><u>Successfully Installed Nvidia Drivers - 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-a14-4g-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy A14 4G Phone Hassle-Free</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028147002-xperia/"><u>Xperiaデバイスで動画再生に失敗する方法: パワーオフから回復</u></a></li>
 </ul></div>
 

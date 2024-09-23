@@ -1,7 +1,7 @@
 ---
 title: "Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses"
-date: 2024-09-11T18:26:59.084Z
-updated: 2024-09-14T21:05:01.153Z
+date: 2024-09-16T18:35:20.665Z
+updated: 2024-09-23T16:13:49.154Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b074d81c3008e2f891a827245d.jpg
@@ -105,24 +105,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-become-a-gif-whisperer-crafting-images-from-vimeo-videos/"><u>[New] Become a GIF Whisperer Crafting Images From Vimeo Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-pixeljudge-quality-analyzer-for-2024/"><u>[Updated] PixelJudge Quality Analyzer for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-organize-content-streamlined-tips-for-building-your-personal-youtube-watch-later-collection/"><u>2024 Approved Organize Content Streamlined Tips for Building Your Personal YouTube Watch Later Collection</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-groups-latest-update-insights-from-ulf-persson-ceo-regarding-the-current-covid-19-pandemic-breaking-news/"><u>ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-lance-5-amelioration-avec-la-fonctionnalite-integree-de-mining-des-taches/"><u>ABBYY Lance 5 : Amélioration Avec La Fonctionnalité Intégrée De Mining Des Tâches</u></a></li>
-<li><a href="https://article-files.techidaily.com/boost-efficiency-learning-free-timers-functionality/"><u>Boost Efficiency Learning FREE Timers' Functionality</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724313333073-cookiebot-enabled-enhance-your-websites-personalization-and-analytics/"><u>Cookiebot-Enabled: Enhance Your Website's Personalization & Analytics</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/copiez-vos-films-sans-restriction-avec-la-demonstration-gratuite-du-rippage-de-dvd-macx-sur-windows/"><u>Copiez Vos Films Sans Restriction Avec La Démonstration Gratuite Du Rippage De DVD MacX Sur Windows</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-y100t-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo Y100t to Outlook | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-key-elements-in-transforming-your-youtube-channels-visibility/"><u>The Key Elements in Transforming Your YouTube Channels' Visibility</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-5-strategies-for-enhanced-law-firm-document-control-with-abbyy/"><u>Top 5 Strategies for Enhanced Law Firm Document Control with ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-from-end-to-start-on-instagram-vids-guide/"><u>[New] 2024 Approved From End to Start on Instagram Vids [Guide]</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-goovision-xtreme-cam-high-res-screen-capturer/"><u>2024 Approved GooVision Xtreme Cam High-Res Screen Capturer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027984322-avidemux/"><u>Avidemuxを使った簡単な動画編集:切り取り・区切り手順</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-realme-gt-neo-5-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Realme GT Neo 5 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-6s-ios-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 6s iOS? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-getting-started-with-seamless-sound-transitions/"><u>In 2024, Getting Started with Seamless Sound Transitions</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-making-simple-text-pop-in-videos-without-costs/"><u>In 2024, Making Simple Text Pop in Videos without Costs</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/iphonem4a/"><u>IPhoneで音楽ファイルM4Aをうまく再生する方法：トラブルシューティングと最適なアプリ選び</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-poco-x5frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Poco X5FRP Lock</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-guide-to-bisecting-movies-for-every-device-desktops-laptops-ios-and-android-systems/"><u>Simple Guide to Bisecting Movies for Every Device: Desktops, Laptops, iOS and Android Systems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-flawlessly-turn-avchd-content-into-prores-files/"><u>Step-by-Step Guide to Flawlessly Turn AVCHD Content Into ProRes Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-seamlessly-changing-m4v-videos-to-webm-for-online-use/"><u>Step-by-Step Tutorial on Seamlessly Changing M4V Videos to WebM for Online Use</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-resolving-non-playable-xvid-codec-files-in-your-plex-library/"><u>Troubleshooting Guide: Resolving Non-Playable Xvid Codec Files in Your Plex Library</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vlcmp4mp3/"><u>VLCを使用してMP4ファイルをMP3に転記する方法</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Blue Prism : La Technologie De L'Intelligence Des Processus Pour Améliorer Et Perfectionner La Performance D'Automatisation"
-date: 2024-09-12T16:25:11.096Z
-updated: 2024-09-14T21:49:15.170Z
+date: 2024-09-22T18:04:19.420Z
+updated: 2024-09-23T17:53:24.913Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/43a1f72d8140b4852b3ec1b168bf1a5fdf9e93b16a9fa8da6c72d7e20d694e32.jpg
@@ -49,18 +49,18 @@ Cette nouvelle offre est essentielle à la réussite de toute entreprise engagé
 
 ### Informations pour les rédacteurs : 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### À propos de Blue Prism
 
 Blue Prism est un leader mondial de la robotisation automatisée des processus (RPA) et de l’automatisation intelligente, et transforme le travail. Chez Blue Prism, nous comptons plus de 2 000 clients dans plus de 170 pays et 70 secteurs, dont 30 % appartiennent au _classement Forbes Global 2 000_. Nos clients créent de la valeur avec de nouvelles méthodes de travail et restituent des millions d’heures de travail à leur entreprise. Notre solution d’automatisation digitale intelligente sécurisée est accessible à tous, et libère les humains pour qu’ils puissent réimaginer leur travail. Pour en savoir plus, rendez-vous sur [www.blueprism.com](https://www.blueprism.com/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-brand-2021-fy-5-13-boilerplate) ou suivez-nous sur Twitter [@blue\_prism](https://twitter.com/blue%5Fprism) et sur [LinkedIn](https://www.linkedin.com/company/blue-prism-limited).
 
 © 2021 Blue Prism Limited. « Blue Prism », le logo « Blue Prism » et l’image de prisme sont des marques commerciales ou des marques déposées par les entreprises du groupe Blue Prism. Tous droits réservés. 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### À propos d’ABBYY
 
@@ -68,15 +68,22 @@ ABBYY permet aux entreprises d’appréhender de manière précise leurs process
 
 ABBYY et le logo ABBYY sont des marques déposées par ABBYY Software Ltd. Les produits mentionnés ici peuvent être des marques et/ou des marques enregistrées par leurs propriétaires reconnus.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Contact presse :
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Paul Taylor 
@@ -86,6 +93,13 @@ ABBYY et le logo ABBYY sont des marques déposées par ABBYY Software Ltd. Les p
 [paul.taylor@blueprism.com](https://tools.techidaily.com/abbyy/products/)
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -110,18 +124,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-co-create-content-to-maximize-youtube-follower-count/"><u>[New] 2024 Approved Co-Create Content to Maximize YouTube Follower Count</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-datadeliverers-professional-view/"><u>[New] DataDeliverers Professional View</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-rewiring-windows-photo-viewer-on-windows-10-two-methods-explored-for-2024/"><u>[New] Rewiring Windows Photo Viewer on Windows 10 - Two Methods Explored for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevate-your-brand-discovering-the-essential-5-youtube-strategies/"><u>[Updated] 2024 Approved Elevate Your Brand Discovering the Essential 5 YouTube Strategies</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-sound-shift-secrets-revealed-uncover-the-best-voice-recorder-changer-apps/"><u>[Updated] 2024 Approved Sound Shift Secrets Revealed Uncover the Best Voice Recorder Changer Apps</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-automated-tracking-with-cookiebot-technology/"><u>Harness the Power of Automated Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-for-effective-online-marketing-campaigns/"><u>Harness the Power of Cookiebot for Effective Online Marketing Campaigns</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-xiaomi-redmi-note-13-proplus-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Xiaomi Redmi Note 13 Pro+ 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/insightful-strategies-on-customer-knowledge-by-abbyy-presented-at-the-2017-aiim-conference/"><u>Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leading-innovations-in-voice-recognition-abbyy-laut-secures-everest-groups-2024-market-pinnacle-with-idp-peak-matrix-test/"><u>Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-the-power-of-cookiebot-for-advanced-user-experience-optimization/"><u>Leverage the Power of Cookiebot for Advanced User Experience Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/markus-pichler-head-of-sales-at-abbyy-europe-strategies-and-achievements/"><u>Markus Pichler - Head of Sales at ABBYY Europe: Strategies and Achievements</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-master-your-tunes-the-best-iphone-and-android-applications-for-music-arrangement/"><u>New Master Your Tunes The Best iPhone & Android Applications for Music Arrangement</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-top-10-boosting-tiktok-success-with-key-analytics-for-2024/"><u>[New] TOP 10 Boosting TikTok Success with Key Analytics for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-content-maker-to-cash-magnet-youtubes-guide-to-ad-revenue/"><u>[Updated] 2024 Approved From Content Maker to Cash Magnet Youtube's Guide to Ad Revenue</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-captivating-copy-creator-pro/"><u>[Updated] Captivating Copy Creator Pro</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/44cm44ol44kz44ol44kz5yuv55s744gu44kq44o844oh44kj44kq44gg44gr5oq95ye644go5lplusd5a2y5pa55rov44cn/"><u>「ニコニコ動画のオーディオだけ抽出と保存方法」</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/crafting-visibility-on-youtube-the-ultimate-guide-to-featured-channel-placement-for-2024/"><u>Crafting Visibility on YouTube The Ultimate Guide to Featured Channel Placement for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/finding-and-downloading-free-yoruba-films-online/"><u>Finding & Downloading Free Yoruba Films Online</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-from-apple-iphone-14-pro-max-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email From Apple iPhone 14 Pro Max? Heres the Best Fixes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-successfully-rip-a-handbrake-dvd-with-scrambled-content-and-avoid-video-distortion/"><u>How to Successfully Rip a Handbrake DVD with Scrambled Content & Avoid Video Distortion?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-from-followers-to-fans-a-strategic-approach-to-instagram-brand-alliances/"><u>In 2024, From Followers to Fans A Strategic Approach to Instagram Brand Alliances</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-from-script-to-screen-a-kids-adventure-in-movie-making/"><u>In 2024, From Script to Screen A Kids Adventure in Movie Making</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oppo-a18-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Oppo A18 Phone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mp4mkvmovmtsm2ts/"><u>MP4とMKVのようなMOVやMTS/M2TS形式のビデオファイルをスマートに分割するテクニック</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revolutionary-ai-tools-transforming-online-information-hunts/"><u>Revolutionary AI Tools Transforming Online Information Hunts</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-changing-the-dvd-region-setting-on-your-pc/"><u>Step-by-Step Guide to Changing the DVD Region Setting on Your PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-adding-subtitles-to-your-facebook-videos/"><u>Step-by-Step Guide: Adding Subtitles to Your Facebook Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-3-secure-erome-video-downloading-tools-safely-extracting-content/"><u>Top 3 Secure Erome Video Downloading Tools - Safely Extracting Content</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/video-file-issues-after-stellar-repairing/"><u>Video File Issues After Stellar Repairing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-1011youtube/"><u>Windows 10/11に最適化したYouTubeコンテンツダウンロード手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028678116-windows-10/"><u>Windows 10で最適なビデオキャプチャテクニック４選：高解像度版</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wma3/"><u>WMA音楽を巧みに編集:ベストの3つのコストフリーソフト選び</u></a></li>
 </ul></div>
 

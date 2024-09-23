@@ -1,7 +1,7 @@
 ---
 title: "Driven with Automated Bots: A Deep Dive Into Smart Marketing Technology"
-date: 2024-09-08T19:20:31.879Z
-updated: 2024-09-15T00:09:18.257Z
+date: 2024-09-17T17:17:21.589Z
+updated: 2024-09-23T17:59:17.596Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b5866ca0d81d1cb562971c20.jpg
@@ -19,6 +19,13 @@ BPO/Service Providers | Document Processing
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/ja/160747.png?h=40&iar=0&w=120)
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## パーソルグループ名刺管理システムにABBYYのモバイル対応AI OCRソリューションを採用   
 名刺を４枚まとめて取り込める上、読み取り精度が向上
@@ -117,13 +124,40 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ABBYY Mobile Web Capture](https://static4.abbyy.com/abbyycommedia/21986/12-mobile-capture-sdk.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Mobile Web Capture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static2.abbyy.com/abbyycommedia/33439/06d-persol-ja-cover-360x162.jpg)](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") [PDF版](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") 
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [詳細を読む](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") 
 
@@ -156,28 +190,24 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-quickcapture-simplified-windows-screen-record/"><u>[New] QuickCapture Simplified Windows Screen Record</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-embark-into-the-best-youtube-vr-content-ever-in-2024/"><u>[Updated] Embark Into the Best YouTube VR Content Ever, In 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-exploring-video-edits-is-inshot-top-choice/"><u>[Updated] Exploring Video Edits Is InShot Top Choice?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-mastering-quadcopter-power-5-premium-engine-choices/"><u>[Updated] Mastering Quadcopter Power 5 Premium Engine Choices</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-understanding-sudden-account-lockdowns-on-copyright-violations-for-2024/"><u>[Updated] Understanding Sudden Account Lockdowns on Copyright Violations for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724312931265-abbyy/"><u>先端的な機械学習：ビジネスにおける情報理解の新たな要請 - ABBYYの革新技術</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-digital-intelligence-revolutioniert-den-automatisierten-rechnungseingang-bei-bunting-effiziente-und-zuverlassige-unternehmenssoftware-fur-die-geschaft5/"><u>ABBYY Digital Intelligence Revolutioniert Den Automatisierten Rechnungseingang Bei Bünting - Effiziente Und Zuverlässige Unternehmenssoftware Für Die Geschäftsabwicklung</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-transformation-von-tausenden-von-druckseiten-in-digitale-daten-durch-fortschrittliche-software-rastertechnologie/"><u>ABBYY: Transformation Von Tausenden Von Druckseiten in Digitale Daten Durch Fortschrittliche Software-Rastertechnologie</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/accelerate-po-management-and-elevate-service-quality-through-gemluxs-advanced-abbyy-idp-solutions-within-netsuite/"><u>Accelerate PO Management and Elevate Service Quality Through GEMLUX’s Advanced ABBYY IDP Solutions Within NetSuite</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/advanced-docu-ai-techniques-mastering-smart-scanning-with-abbyy-and-pegasystems/"><u>Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-google-pixel-8-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Google Pixel 8 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-the-cookiebot-solution/"><u>Automated User Tracking with the Cookiebot Solution</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automatisierte-veranderung-wie-traditionelle-unternehmen-in-digitale-strukturen-ubergehen/"><u>Automatisierte Veränderung: Wie Traditionelle Unternehmen in Digitale Strukturen Übergehen</u></a></li>
-<li><a href="https://fox-that.techidaily.com/essential-upgrade-alert-unveiling-five-compelling-reasons-to-adopt-ios-n-153-right-this-moment/"><u>Essential Upgrade Alert: Unveiling Five Compelling Reasons to Adopt iOS N 15.3 Right This Moment</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/masterfb-mp4-the-ultimate-downloader-for-vids-for-2024/"><u>MasterFB-MP4 The Ultimate Downloader for Vids for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-xiaomi-14-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Xiaomi 14 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-rise-to-success-with-these-essential-15-fb-sales-insights/"><u>[New] 2024 Approved Rise to Success with These Essential 15 FB Sales Insights</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ultimate-windows-edition-toolkit-for-videos/"><u>[New] Ultimate Windows Edition Toolkit for Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-comprehensive-overview-of-whatsapp-voice-calls/"><u>[Updated] In 2024, Comprehensive Overview of WhatsApp Voice Calls</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-mp4-videos-to-flash-compatible-swf-format-anytime-anywhere/"><u>Effortless Conversion of MP4 Videos to Flash-Compatible SWF Format Anytime, Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-technique-for-extracting-dvd-chapters-with-exclusive-subtitles-only/"><u>Effortless Technique for Extracting DVD Chapters with Exclusive Subtitles Only</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-video-editing-efficiency-with-professional-prores-file-conversion-from-mts-source/"><u>Enhance Video Editing Efficiency with Professional ProRes File Conversion From MTS Source</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/five-proven-fixes-for-when-your-onedrive-videos-wont-start-step-by-step-instructions/"><u>Five Proven Fixes for When Your OneDrive Videos Won't Start: Step-by-Step Instructions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/hd-video-converter-factory-pro-50/"><u>HD Video Converter Factory Pro - 割引！50%オフの特別価格で獲得</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-obtain-and-setup-latest-sony-vaio-drivers-for-enhanced-pc-performance-in-windows/"><u>How to Obtain & Setup Latest Sony VAIO Drivers for Enhanced PC Performance in Windows</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-securely-keep-your-wistia-videos-for-future-use/"><u>How To Securely Keep Your Wistia Videos For Future Use</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-select-a-premium-360-camera-today-for-2024/"><u>How to Select a Premium 360 Camera Today for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-elevating-gameplay-with-optimized-ram-assignment-for-minecraft/"><u>In 2024, Elevating Gameplay with Optimized Ram Assignment for Minecraft</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/no-luck-with-roku-app-on-your-smart-tv-unlock-immediate-solutions-now/"><u>No Luck with Roku App on Your Smart TV? Unlock Immediate Solutions Now!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/page-located-no-longer-missing-discover-the-new-route-with-wonderfox/"><u>Page Located - No Longer Missing! | Discover the New Route with WonderFox</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/quick-and-easy-mp3-audio-adjuster-instantly-boost-or-reduce-your-music-volume/"><u>Quick & Easy MP3 Audio Adjuster - Instantly Boost or Reduce Your Music Volume</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/the-ultimate-guide-to-vertical-video-editing-on-mobile-devices-for-2024/"><u>The Ultimate Guide to Vertical Video Editing on Mobile Devices for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/top-ten-image-amplifiers-for-social-media/"><u>Top Ten Image Amplifiers for Social Media</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/k-your-marketing-potential-with-our-50plus-free-youtube-banners-for-2024/"><u>Unlock Your Marketing Potential with Our 50+ Free YouTube Banners for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/updated-canon-lbp6030-series-printer-drivers-for-windows-compatible-with-1087/"><u>Updated Canon LBP6030 Series Printer Drivers for Windows: Compatible with 10/8/7</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

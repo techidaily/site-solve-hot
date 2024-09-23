@@ -1,7 +1,7 @@
 ---
 title: ABBYY Digital Intelligence Revolutioniert Den Automatisierten Rechnungseingang Bei Bünting - Effiziente Und Zuverlässige Unternehmenssoftware Für Die Geschäftsabwicklung
-date: 2024-09-12T19:35:33.526Z
-updated: 2024-09-14T22:51:01.511Z
+date: 2024-09-16T16:38:32.487Z
+updated: 2024-09-23T17:40:06.883Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/01734b8ef062c5f42913179297294f7a33898d76f5f56b23f4fc2e8e00dd6cb9.jpg
@@ -25,9 +25,23 @@ Groß- und Einzelhandel | Automatisierung der Kreditorenbuchhaltung
 
 ![](https://static1.abbyy.com/abbyycommedia/31808/01-bunting-cover-556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Über den Kunden
 
 ![Bünting Gruppe](https://static4.abbyy.com/abbyycommedia/31810/01c-bunting-logo-158x52.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name      | Bünting Gruppe                               |
 | --------- | -------------------------------------------- |
@@ -80,6 +94,13 @@ _→ Mitarbeiterressourcen werden somit frei und können für strategischere Auf
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Content Intelligence](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [Content Intelligence](https://tools.techidaily.com/abbyy/products/) 
@@ -87,6 +108,13 @@ _→ Mitarbeiterressourcen werden somit frei und können für strategischere Auf
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/31809/01d-bunting-cover-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/31764/buenting-customer-story-de.pdf "PDF-Version") [PDF-Version](https://static5.abbyy.com/abbyycommedia/31764/buenting-customer-story-de.pdf "PDF-Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Zum Dokument](https://static5.abbyy.com/abbyycommedia/31764/buenting-customer-story-de.pdf "PDF-Version") 
 
@@ -115,25 +143,20 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-top-strategies-for-in-depth-nba-game-watching/"><u>[New] 2024 Approved Top Strategies for In-Depth NBA Game Watching</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-join-the-metaverse-meme-movement-funny-fresh-and-easy-to-create-content/"><u>2024 Approved Join the Metaverse Meme Movement Funny, Fresh & Easy-to-Create Content</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-online-presence-with-cookiebot-seo-solutions-for-maximum-organic-visibility/"><u>Elevate Your Online Presence with Cookiebot SEO Solutions for Maximum Organic Visibility</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-analytics-and-roi-through-ai-driven-conversions-unleash-the-potential-of-cookiebot-solutions/"><u>Enhance Analytics and ROI Through AI-Driven Conversions: Unleash the Potential of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-site-traffic-with-our-advanced-technology-experience-the-power-of-cookiebot/"><u>Enhance Site Traffic with Our Advanced Technology - Experience the Power of Cookiebot!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-technology/"><u>Enhance Web Analytics with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-next-level-text-capture-with-abbyys-ai-powered-finescanner-utilizing-cutting-edge-neural-network-solutions/"><u>Experience Next-Level Text Capture with ABBYY's AI-Powered FineScanner Utilizing Cutting-Edge Neural Network Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-predictions-for-ai-how-focused-ml-techniques-will-transform-industry-specific-business-problems-in-224/"><u>Future Predictions for AI: How Focused ML Techniques Will Transform Industry-Specific Business Problems in 2#24</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-many-attempts-to-unlock-apple-iphone-12-mini-drfone-by-drfone-ios/"><u>How Many Attempts To Unlock Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-honor-x8b-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Honor X8b Phone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-8-to-other-iphone-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 8 to other iPhone? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-ringtone-riches-where-to-acquire-vintage-melodies-online/"><u>In 2024, Ringtone Riches Where to Acquire Vintage Melodies Online</u></a></li>
-<li><a href="https://media-tips.techidaily.com/ultimate-guide-transforming-wmv-files-into-flv-format-top-6-techniques/"><u>Ultimate Guide: Transforming WMV Files Into FLV Format - Top 6 Techniques</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-how-to-activate-a-virtual-grid-display-for-meet-users/"><u>[New] 2024 Approved How to Activate a Virtual Grid Display for Meet Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-seeing-beyond-our-elite-rankings-of-camera-lenses-1-10/"><u>[New] In 2024, Seeing Beyond Our Elite Rankings of Camera Lenses #1-10</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/bypass-restrictions-the-ultimate-tutorial-on-viewing-bilibili-worldwide/"><u>Bypass Restrictions: The Ultimate Tutorial on Viewing Bilibili Worldwide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/converting-youtube-content-into-convenient-audio-format-a-step-by-step-guide/"><u>Converting YouTube Content Into Convenient Audio Format: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/create-your-own-iphone-ringtone-with-mp4-video-a-step-by-step-guide/"><u>Create Your Own iPhone Ringtone with MP4 Video: A Step-by-Step Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-iphone-15-plus-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Plus When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-tecno-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Tecno FRP Without Computer</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-windows-10-webcam-recording-the-top-10-software-options/"><u>New In 2024, Windows 10 Webcam Recording The Top 10 Software Options</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/speedy-transformation-from-matroska-mkv-to-mp4-format-without-quality-loss/"><u>Speedy Transformation From Matroska (MKV) to MP4 Format Without Quality Loss</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/tricking-out-genuine-from-fraudulent-instagram-pals-for-2024/"><u>Tricking Out Genuine From Fraudulent Instagram Pals for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

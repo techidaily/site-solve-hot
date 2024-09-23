@@ -1,7 +1,7 @@
 ---
 title: "Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen"
-date: 2024-09-11T21:22:21.945Z
-updated: 2024-09-18T18:07:11.566Z
+date: 2024-09-17T17:53:41.352Z
+updated: 2024-09-23T18:36:22.732Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e808122dfec490930e9df565.jpg
@@ -19,6 +19,13 @@ Im Bankwesen sind die jährlichen Kosten für Cyberangriffe unter allen Branchen
 
 Um ihre Produktivität zu erhöhen, setzen Finanzinstitute mehr und mehr auf Automatisierung, mobile Technologien und kontaktlose Interaktionen. Diese Maßnahmen können aber neue Schwachstellen schaffen, die sich Cyberkriminelle zunutze machen. Was können Finanzinstitute gegen die ständigen Angriffe unternehmen?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Jetzt herunterladen!
 
 Um raffinierte Verbrechen zu verhindern, braucht es raffinierte Maßnahmen. Digital Intelligence ist ein neuer Ansatz zur Verwendung der neuesten Technologien für künstliche Intelligenz und maschinelles Lernen, um Schlüsselfunktionen bereitzustellen, die Banken die nötigen Mittel an die Hand geben, um sich vor Betrug und anderen Gesetzesverstößen zu schützen.
@@ -29,11 +36,25 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 * Einblick zu bekommen, wie die Interaktion zwischen Menschen und Dokumenten abläuft
 * verdächtige Verhaltensmuster in Prozessen zu entdecken
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Danke für Ihr Interesse an ABBYY.
 
 [E-Book lesen](https://digital.abbyy.com/hubfs/content/ebook-financialservices-banking-on-intelligence-de.pdf "E-Book lesen") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
@@ -104,23 +125,20 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-from-good-to-great-elevating-your-ads-facebook-impact/"><u>[New] From Good to Great Elevating Your Ads' Facebook Impact</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-expert-techniques-for-superior-quality-in-zoom-meetings/"><u>[Updated] 2024 Approved Expert Techniques for Superior Quality in Zoom Meetings</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-streamline-your-multimedia-browsing-in-chrome-using-pip/"><u>[Updated] 2024 Approved Streamline Your Multimedia Browsing in Chrome Using PIP</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-green-thumbs-united-top-10-farm-titles-for-friendly-playtime-for-2024/"><u>[Updated] Green Thumbs United Top 10 Farm Titles for Friendly Playtime for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-efficient-conversion-techniques-transforming-aiff-files-into-high-quality-aacapple-lossless-m4a-audio/"><u>1. Efficient Conversion Techniques: Transforming AIFF Files Into High-Quality AAC/Apple Lossless M4A Audio</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/1-secure-your-memories-3-essential-methods-for-saving-your-ipad-images/"><u>1. Secure Your Memories: 3 Essential Methods for Saving Your iPad Images</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/introducing-herve-laurandin-the-new-leader-of-abbyys-french-operations/"><u>Introducing Hervé Laurandin, the New Leader of ABBYY's French Operations</u></a></li>
-<li><a href="https://facebook.techidaily.com/say-no-to-facebook-keep-your-online-movements-private/"><u>Say No to Facebook: Keep Your Online Movements Private</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-two-strategies-for-successful-amv-downloads/"><u>Top Two Strategies for Successful AMV Downloads</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-hosting-an-epic-karaoke-night-in-your-living-room/"><u>Ultimate Guide: Hosting an Epic Karaoke Night in Your Living Room</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-content-with-effective-video-seo-for-2024/"><u>[Updated] Elevate Your Content with Effective Video SEO for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-screencast-strategies-unleashed-powerful-ideas-inside/"><u>[Updated] In 2024, Screencast Strategies Unleashed Powerful Ideas Inside</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/5-things-to-consider-before-you-buy-a-gaming-console/"><u>5 Things to Consider Before You Buy a Gaming Console</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/easy-steps-to-open-and-play-dat-files-on-any-pc/"><u>Easy Steps to Open and Play DAT Files on Any PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-mp4-videos-to-flash-compatible-swf-format-anytime-anywhere/"><u>Effortless Conversion of MP4 Videos to Flash-Compatible SWF Format Anytime, Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-technique-for-extracting-dvd-chapters-with-exclusive-subtitles-only/"><u>Effortless Technique for Extracting DVD Chapters with Exclusive Subtitles Only</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-video-editing-efficiency-with-professional-prores-file-conversion-from-mts-source/"><u>Enhance Video Editing Efficiency with Professional ProRes File Conversion From MTS Source</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/five-proven-fixes-for-when-your-onedrive-videos-wont-start-step-by-step-instructions/"><u>Five Proven Fixes for When Your OneDrive Videos Won't Start: Step-by-Step Instructions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/from-stills-to-movement-examining-the-action-potential-of-camplus/"><u>From Stills to Movement Examining the Action Potential of Cam+</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/hd-video-converter-factory-pro-50/"><u>HD Video Converter Factory Pro - 割引！50%オフの特別価格で獲得</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-securely-keep-your-wistia-videos-for-future-use/"><u>How To Securely Keep Your Wistia Videos For Future Use</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-architecting-authoritative-adjuncts/"><u>In 2024, Architecting Authoritative Adjuncts</u></a></li>
+<li><a href="https://win-dash.techidaily.com/mpow-universal-bluetooth-software-free-downloads-and-updates-for-windows-1087/"><u>MPOW Universal Bluetooth Software: Free Downloads and Updates for Windows 10/8/7</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-future-of-education-can-ai-replace-classic-essay-writing-for-students/"><u>The Future of Education: Can AI Replace Classic Essay Writing for Students?</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース"
-date: 2024-09-11T22:15:55.545Z
-updated: 2024-09-18T17:52:20.864Z
+date: 2024-09-20T16:50:29.567Z
+updated: 2024-09-23T17:56:39.633Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/00e1438c22966a36d893eecd9042143ec66d342044498e4db45f5bcf754631a6.jpg
@@ -64,25 +64,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-build-a-thriving-biz-channel-proven-strategies-and-examples/"><u>[New] In 2024, Build a Thriving Biz Channel Proven Strategies and Examples</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-efficient-conversion-techniques-transforming-aiff-files-into-high-quality-aacapple-lossless-m4a-audio/"><u>1. Efficient Conversion Techniques: Transforming AIFF Files Into High-Quality AAC/Apple Lossless M4A Audio</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-ultimate-guide-effortless-conversion-of-avchd-files-into-multiple-formats/"><u>1. Ultimate Guide: Effortless Conversion of AVCHD Files Into Multiple Formats</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726027045701-avidemux/"><u>Avidemux 用ビデオからオーディオを分離・抽出する手順</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/mastering-youtube-short-troubleshooting-for-2024/"><u>Mastering YouTube Short Troubleshooting for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/overcome-jabra-earphone-problems-effective-solutions-and-troubleshooting-techniques/"><u>Overcome Jabra Earphone Problems : Effective Solutions and Troubleshooting Techniques</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/producing-channel-trailer-synopses-a-guide-for-2024/"><u>Producing Channel Trailer Synopses A Guide for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/reliable-user-guide-to-fix-motorola-defy-2-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Motorola Defy 2 Running Slow and Freezing | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/rumors-confirmed-detailed-analysis-on-apple-cars-price-tag-availability-and-technical-specs-uncovered/"><u>Rumors Confirmed? Detailed Analysis on Apple Car's Price Tag, Availability, and Technical Specs Uncovered!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-rated-avi-to-dvd-transcoder-for-windows-11-users-in-2e24/"><u>Top Rated AVI to DVD Transcoder for Windows 11 Users in 2E24</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-two-strategies-for-successful-amv-downloads/"><u>Top Two Strategies for Successful AMV Downloads</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/veiled-voice-in-group-chats-how-to/"><u>Veiled Voice in Group Chats, How-To</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-picks-no-charging-high-definition-video-players-for-pcmacos/"><u>[New] Best Picks No-Charging, High Definition Video Players for PC/MacOS</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030046414-windows-media-player/"><u>「ファイル再生中のWindows Media Player 問題」: 修正方法と解決策</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-compatible-platforms-a-step-by-step-guide-to-watching-wtv-videos-anywhere/"><u>1. Compatible Platforms: A Step-by-Step Guide to Watching WTV Videos Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-step-by-step-guide-adjusting-your-sound-quality-by-changing-the-bitrate/"><u>1. Step-by-Step Guide: Adjusting Your Sound Quality by Changing the Bitrate</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-comprehensive-quick-start-to-mastering-video-editing-win11s-movie-maker/"><u>A Comprehensive Quick Start to Mastering Video Editing Win11's Movie Maker</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/achieving-top-notch-clarity-recording-pro-tips-for-firestick-users/"><u>Achieving Top-Notch Clarity: Recording Pro Tips for Firestick Users</u></a></li>
+<li><a href="https://win11.techidaily.com/configuring-reset-count-for-unsuccessful-logins-on-windows-11-systems/"><u>Configuring Reset Count for Unsuccessful Logins on Windows 11 Systems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726029019563-insta/"><u>Insta動画を最高に見せる投稿テクニック</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/step-by-step-guide-to-create-flawless-animation-movies/"><u>Step-by-Step Guide to Create Flawless Animation Movies</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-checklist-for-ideal-podcast-title-creation-for-2024/"><u>The Ultimate Checklist for Ideal Podcast Title Creation for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transforma-tu-audio-de-w64-a-wav-por-internet-libre-y-sin-costo-mediante-movavi/"><u>Transforma Tu Audio De W64 a WAV Por Internet Libre Y Sin Costo Mediante Movavi</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-guide-fix-your-iphone-apps-crash-issues-with-these-tips/"><u>Ultimate Guide - Fix Your iPhone Apps' Crash Issues with These Tips!</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
