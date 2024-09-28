@@ -1,7 +1,7 @@
 ---
 title: Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture
-date: 2024-09-19T16:43:07.479Z
-updated: 2024-09-23T17:07:51.485Z
+date: 2024-09-26T21:05:50.695Z
+updated: 2024-09-27T16:01:34.259Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a9de22e1aa59a5e7f9127b24.jpg
@@ -20,10 +20,10 @@ Food and Beverage | Accounts Payable Automation
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## PepsiCo automatise le traitement de ses factures avec ABBYY FlexiCapture
@@ -37,10 +37,10 @@ Aliments et boissons | Comptes fournisseurs
 ![PepsiCo Imaging Technology](https://static2.abbyy.com/abbyycommedia/15266/pepsico_for-uk.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Prénom               | PepsiCo Imaging Technology                    |
@@ -55,16 +55,10 @@ Aliments et boissons | Comptes fournisseurs
 ![Criteria First, Inc.](https://static2.abbyy.com/abbyycommedia/15267/criteria-first-logo.png) 
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Prénom         | Criteria First, Inc.                                  |
@@ -134,13 +128,6 @@ Et selon R. Kent, ce n'est qu'un début : « Pour nous, cela signiﬁe que la so
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Dématérialisation des factures](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![PepsiCo1](https://static2.abbyy.com/abbyycommedia/15765/pepsico1.png)](https://static2.abbyy.com/abbyycommedia/10532/cas-client-pepsico-aliments-boissons-fr.pdf "version PDF") [version PDF](https://static2.abbyy.com/abbyycommedia/10532/cas-client-pepsico-aliments-boissons-fr.pdf "version PDF") 
@@ -154,6 +141,13 @@ Partager  True ?  : ""
 [À propos d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Prêt à parler à un expert ?
 
@@ -174,5 +168,17 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-a-step-by-step-approach-to-best-youtube-thumbnails-for-2024/"><u>[Updated] A Step-by-Step Approach to Best YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-dissecting-deceptive-accounts-in-your-ad-audience/"><u>2024 Approved Dissecting Deceptive Accounts in Your Ad Audience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-boost-your-sites-traffic-efficiently/"><u>Cookiebot-Driven Success: Boost Your Site's Traffic Efficiently</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-websites-engagement-with-advanced-analytics/"><u>Cookiebot-Enabled Site: Enhance Your Website's Engagement with Advanced Analytics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-the-secret-ingredient-for-supercharging-your-site-performance/"><u>Cookiebot: The Secret Ingredient for Supercharging Your Site Performance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/crafting-impactful-digital-content-strategies-for-page-excellence/"><u>Crafting Impactful Digital Content: Strategies for Page Excellence</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-samsung-galaxy-z-fold-5-by-drfone-android/"><u>How to Bypass FRP on Samsung Galaxy Z Fold 5?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-conducting-a-cross-platform-playlist-symphony/"><u>In 2024, Conducting a Cross-Platform Playlist Symphony</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/mastering-modern-devices-at-toms-electronics-emporium/"><u>Mastering Modern Devices at Tom’s Electronics Emporium</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/the-definitive-guide-to-correcting-sound-problems-in-dying-light-steps-and-tips/"><u>The Definitive Guide to Correcting Sound Problems in Dying Light - Steps and Tips</u></a></li>
+</ul></div>
 

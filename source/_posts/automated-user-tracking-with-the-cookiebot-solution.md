@@ -1,7 +1,7 @@
 ---
 title: Automated User Tracking with the Cookiebot Solution
-date: 2024-09-16T17:12:11.745Z
-updated: 2024-09-23T17:02:50.244Z
+date: 2024-09-23T18:56:08.143Z
+updated: 2024-09-28T02:24:26.079Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1040d06f8d0aa10730551351f9cb44d3bcea699d80952a8774c562402ba30c3b.jpg
@@ -25,6 +25,13 @@ At the same time, consumer trust has become a critical factor in building brand 
 
 One of the critical aspects of online services involving sensitive data—such as banking, healthcare, and government—is identity proofing, using uploaded documents to verify a user’s identity. This requires not only intake of identifying documents (such as a driver’s license) but also verifying the validity of these documents and confirming that they reflect the user’s identity. Gartner predicts that by 2023,[85 percent of organizations will be using document-centric identity proofing](https://www.gartner.com/en/documents/4000261) as part of their onboarding processes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What is identity proofing?
 
 **Identity proofing is the process of confirming that a user is who they say they are.** Accomplishing this requires matching a user’s _claimed identity_—what the National Institute of Standards and Technology (NIST) defines as [“an applicant’s declaration of unvalidated and unverified personal attributes”—](https://nvlpubs.nist.gov/nistpubs/SpecialPublications/NIST.SP.800-63-3.pdf)with their actual identity, as proven by data and documentation.
@@ -32,13 +39,6 @@ One of the critical aspects of online services involving sensitive data—such a
 ![Identity proofing in action example](https://static1.abbyy.com/abbyycommedia/36102/poi-gif-5_using-poi-2.gif?width=847&height=477)
 
 A common misperception of identity proofing equates it with another common online security concept, _identity authentication_. Authentication is the use of a combination of credentials—generally a username and password—to gain access to a resource. However, before users can be assigned credentials, especially for access to sensitive resources, they must first verify who they are through identity proofing.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How does identity proofing work?
 
@@ -50,14 +50,14 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 ![](https://static1.abbyy.com/abbyycommedia/36099/2_steps-in-identity-proofing-and-identity-affirmation.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
 
@@ -66,13 +66,6 @@ While identity proofing is a vital capability for organizations looking to secur
 Identity affirmation, [according to Gartner](https://www.gartner.com/en/documents/3990087), “describes capabilities that either assess solely whether the real-world identity exists or can provide supporting risk or trust signals to an identity claim.” Successful identity affirmation requires access to multiple outside data sources. For example, in a low-confidence, high-risk transaction, a business will want to verify an address via a utility bill, birth certificate, income statement, and credit bureau data to verify that this data corresponds to an actual human being.
 
 When businesses leverage identity proofing and identity affirmation in tandem, they can enjoy a high level of confidence that the users they interact with really are who they say they are.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Is there a “one-stop shop” for identity proofing and affirmation capabilities?
 
@@ -84,6 +77,13 @@ While many vendors offer identity proofing and affirmation tools, few actually d
 * Trailing documents (document-centric identity affirmation)
 * Exception handling (optional human auditing of certain transactions)
 * Process intelligence and mining to identify opportunities for process improvement
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What are common use cases for identity proofing?
 
@@ -117,13 +117,6 @@ While fraud can happen in nearly any industry, sectors with a high frequency of 
 
 ![abbyy proof of identity](https://static1.abbyy.com/abbyycommedia/36104/poi-gif-4_using-poi-1.gif?width=847&height=477)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Over the course of just a few years, the volume and complexity of online transactions has grown exponentially, both for better and for worse. Fortunately, identity proofing and affirmation solutions can help businesses continue to meet consumers’ demands for efficient, convenient services while also staying one step ahead of fraudulent actors.
 
 Not only can you minimize the risk of fraud—and the corresponding costs in terms of money and reputation—but you can also earn and build upon the trust of your customers, building relationships that can support business goals for years to come.
@@ -137,6 +130,13 @@ Easy for your customers. Secure for your business.
 [Contact us for a demo](https://tools.techidaily.com/abbyy/products/) 
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Customer Experience](https://tools.techidaily.com/abbyy/products/) [Customer Onboarding](https://tools.techidaily.com/abbyy/products/) [Data Privacy](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Government](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Insurance](https://tools.techidaily.com/abbyy/products/) [Legal](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -199,5 +199,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-experts-choice-best-free-video-tools-listing/"><u>[New] 2024 Approved Expert's Choice Best Free Video Tools Listing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-essential-guide-to-filming-timelapse-on-ios-devices/"><u>[New] 2024 Approved The Essential Guide to Filming Timelapse on iOS Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-from-closed-to-open-mastering-srt-files-in-macos-for-2024/"><u>[Updated] From Closed to Open Mastering SRT Files in macOS for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-poco-m6-pro-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Poco M6 Pro 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyyand/"><u>ABBYYジャパンと共同開発した最新技術:パーソルプロセス&テクノロジーによる革新</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-ocr-and/"><u>ABBYYの優れた帳票データエクステラクション – 多ページ、複雑な表やレイアウトを扱い、容易にOCR &出力可能</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automated-lead-capture-how-our-solutions-are-enhanced-with-cookiebot-technology/"><u>Automated Lead Capture: How Our Solutions Are Enhanced with Cookiebot Technology</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/beginners-essential-cheatsheet-for-beautiful-collage-creations-for-2024/"><u>Beginner's Essential Cheatsheet for Beautiful Collage Creations for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-for-seamless-website-personalization-and-tracking/"><u>Cookiebot-Driven Solutions for Seamless Website Personalization and Tracking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-user-experience-with-cutting-edge-technology/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience with Cutting-Edge Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixes-and-solutions-stop-battlefield-v-from-freezing-or-crashing-on-your-computer/"><u>Fixes & Solutions: Stop Battlefield V From Freezing or Crashing on Your Computer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-best-online-hubs-sky-high-dynamic-range-photography/"><u>In 2024, Best Online Hubs Sky High Dynamic Range Photography</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-maximizing-video-playback-speed-on-facebook/"><u>In 2024, Maximizing Video Playback Speed on Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723262324052-legacy-over-how-llvm-compilers-departure-signals-the-end-of-amds-3dnow/"><u>Legacy Over: How LLVM Compiler's Departure Signals the End of AMD's 3DNow</u></a></li>
+</ul></div>
 

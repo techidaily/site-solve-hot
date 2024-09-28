@@ -1,7 +1,7 @@
 ---
 title: "Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen"
-date: 2024-09-17T17:53:41.352Z
-updated: 2024-09-23T18:36:22.732Z
+date: 2024-09-21T06:07:46.246Z
+updated: 2024-09-27T21:35:30.657Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e808122dfec490930e9df565.jpg
@@ -20,10 +20,10 @@ Im Bankwesen sind die jährlichen Kosten für Cyberangriffe unter allen Branchen
 Um ihre Produktivität zu erhöhen, setzen Finanzinstitute mehr und mehr auf Automatisierung, mobile Technologien und kontaktlose Interaktionen. Diese Maßnahmen können aber neue Schwachstellen schaffen, die sich Cyberkriminelle zunutze machen. Was können Finanzinstitute gegen die ständigen Angriffe unternehmen?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
@@ -37,10 +37,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 * verdächtige Verhaltensmuster in Prozessen zu entdecken
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -50,10 +50,16 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -123,5 +129,20 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/updated-bright-beginnings-quick-ways-to-brighten-iphone-clips-and-more/"><u>[Updated] Bright Beginnings Quick Ways to Brighten iPhone Clips and More</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-portable-cinematic-vibration-reliever-kit/"><u>2024 Approved Portable Cinematic Vibration Reliever Kit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/best-10-action-ready-microphones-reviewed-for-2024/"><u>Best 10 Action-Ready Microphones Reviewed for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-the-features-apple-iphone-15-pro-vs-pro-max-which-one-reigns-supreme/"><u>Comparing the Features: Apple iPhone 15 Pro Vs. Pro Max – Which One Reigns Supreme?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-stories-unleashing-marketing-potential-through-advanced-analytics/"><u>Cookiebot-Driven Success Stories: Unleashing Marketing Potential Through Advanced Analytics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-elevate-your-website-engagement-and-rankings/"><u>Cookiebot-Driven Success: Elevate Your Website Engagement and Rankings</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-website-optimization-unlocking-success/"><u>Cookiebot-Driven Website Optimization: Unlocking Success</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cross-device-app-development-with-abbyy-ocr-streamlining-ux-testing-and-robotics-qa/"><u>Cross-Device App Development with ABBYY OCR: Streamlining UX Testing & Robotics QA</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/customized-user-experience-with-automated-tracking-inspired-by-cookiebot/"><u>Customized User Experience with Automated Tracking: Inspired by Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/driven-by-advanced-data-gathering-technology-from-cookiebot/"><u>Driven by Advanced Data-Gathering Technology From Cookiebot</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Xiaomi Civi 3? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pro-level-video-edits-made-simple-in-windows-11/"><u>In 2024, Pro-Level Video Edits Made Simple in Windows 11</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-verdict-on-asus-zephyrus-g14-uncompromised-quality-for-serious-gamers/"><u>The Ultimate Verdict on Asus Zephyrus G14: Uncompromised Quality for Serious Gamers</u></a></li>
+</ul></div>
 

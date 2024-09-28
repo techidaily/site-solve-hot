@@ -1,7 +1,7 @@
 ---
 title: "Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports"
-date: 2024-09-19T18:09:22.284Z
-updated: 2024-09-23T16:49:10.310Z
+date: 2024-09-20T19:18:49.592Z
+updated: 2024-09-28T00:05:54.574Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be090a3ce22bfc91cc23bb5f7.jpg
@@ -48,10 +48,16 @@ Pour en apprendre davantage sur l’approche No/Low code d’ABBYY ainsi que sur
 Cette étude a été menée par ABBYY en collaboration avec Sapio Research en septembre-octobre 2021 auprès de 5 025 employés répartis en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon et travaillant au sein d'entreprises comptant plus de 500 employés. L’étude porte sur les défis rencontrés par les travailleurs en matière d'extraction de données ainsi que sur l’impact de l'avènement de l'automatisation.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -59,10 +65,10 @@ Cette étude a été menée par ABBYY en collaboration avec Sapio Research en se
 ABBYY permet aux entreprises d’appréhender de manière précise leurs process et contenus via sa plateforme d'[intelligence digitale](https://tools.techidaily.com/abbyy/products/). Les technologies d'ABBYY équipent plus de 5 000 entreprises, dont un grand nombre figurent dans le classement Fortune 500\. L’entreprise est reconnue pour ses solutions de pointe dans les domaines du [Content Intelligence](https://tools.techidaily.com/abbyy/products/) et du [Process Intelligence](https://tools.techidaily.com/abbyy/products/) qui ont pour vocation d’améliorer l'efficacité, la rentabilité et la compétitivité des entreprises ainsi que l’expérience client. ABBYY possède des bureaux dans 14 pays. Pour davantage d'informations, veuillez consulter le site <https://www.abbyy.com/fr/>
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse :
@@ -70,10 +76,10 @@ ABBYY permet aux entreprises d’appréhender de manière précise leurs process
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -97,5 +103,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-unveil-the-8-greatest-places-to-download-3d-text-psd-files/"><u>[New] 2024 Approved Unveil the 8 Greatest Places to Download 3D Text PSD Files</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-chromebook-screenshots-made-easy-top-5-app-choices/"><u>[New] In 2024, Chromebook Screenshots Made Easy Top 5 App Choices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-integrating-past-videos-into-current-live-feeds-on-fb/"><u>[New] Integrating Past Videos Into Current Live Feeds on FB</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-best-video-grabbers-for-windows-11-pc/"><u>[Updated] 2024 Approved Best Video Grabbers for Windows 11 PC</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-channel-conclusion-mastery-makers-and-templates-for-best-practices/"><u>[Updated] 2024 Approved Channel Conclusion Mastery - Makers & Templates for Best Practices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-presence-through-state-of-the-art-cookiebot-solutions/"><u>Enhancing Digital Presence Through State-of-the-Art Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-document-automation-how-abbyy-flexicaptures-updated-rest-api-fuels-seamless-adoption-and-immediate-data-processing/"><u>Enhancing Document Automation: How ABBYY FlexiCapture's Updated REST API Fuels Seamless Adoption & Immediate Data Processing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploring-brazils-surge-in-intelligent-tech-solutions-during-infoshow-2nv-2018-expert-analysis-by-abbyy-blog-team/"><u>Exploring Brazil's Surge in Intelligent Tech Solutions During InfoShow 2Nv 2018 | Expert Analysis by ABBYY Blog Team</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploring-innovative-tech-smartwatch-capabilities-real-time-language-conversion-and-secure-cloud-storage-solutions-on-the-abbyy-platform/"><u>Exploring Innovative Tech: Smartwatch Capabilities, Real-Time Language Conversion & Secure Cloud Storage Solutions on the ABBYY Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/get-your-free-abyy-alteryx-bridge-tool-now/"><u>Get Your Free ABYY Alteryx Bridge Tool Now!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-lava-blaze-2-promirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Lava Blaze 2 ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlocking-the-potential-of-valorant-thumbnails-for-online-success/"><u>In 2024, Unlocking the Potential of Valorant Thumbnails for Online Success</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/mac-based-video-format-conversion-tool-optimize-movies-and-clips-for-your-iphone-itunes-mp4-files-and-devices/"><u>Mac-Based Video Format Conversion Tool - Optimize Movies and Clips for Your iPhone, iTunes, MP4 Files & Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mastering-ai-commerce-insights-tips-and-trends-on-the-abbyy-platform/"><u>Mastering AI Commerce Insights - Tips & Trends on the ABBYY Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mastering-process-insight-with-abbyys-advanced-neat-analysis-solutions-by-nelsonhallcom/"><u>Mastering Process Insight with ABBYY's Advanced Neat Analysis Solutions by Nelsonhall.com</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/navigating-windows-files-is-msda80dll-essential-for-smooth-operation/"><u>Navigating Windows Files: Is MSDA80.DLL Essential for Smooth Operation?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/neoml-von-abbyy-jetzt-mit-python-unterstutzt-erleben-sie-die-10x-schnellere-open-source-bibliothek/"><u>NeoML Von ABBYY Jetzt Mit Python Unterstützt - Erleben Sie Die 10X Schnellere Open-Source-Bibliothek</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-recruitment-the-impact-of-ai-on-human-resources/"><u>Revolutionizing Recruitment: The Impact of AI on Human Resources</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Exploring ABBYY's Findings: The Future Landscape of Cognitive Automation Solutions"
-date: 2024-09-18T17:46:44.699Z
-updated: 2024-09-23T16:00:47.176Z
+date: 2024-09-25T18:52:57.237Z
+updated: 2024-09-28T07:39:07.504Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/db345622b66c3b6984b775950925cc8114e2a134a67c761a2d6a6d2fb5b65330.jpg
@@ -45,10 +45,10 @@ Weitere Details und globale Ergebnisse über die Investitionen in künstliche In
 ![](https://static1.abbyy.com/abbyycommedia/37806/infographic-economic-challenges-survey-de.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Methodik
@@ -56,10 +56,10 @@ Weitere Details und globale Ergebnisse über die Investitionen in künstliche In
 Diese Umfrage wurde im Juli 2023 von Sapio Research im Auftrag von ABBYY durchgeführt. 1.000 IT-Entscheidungsträger aus 17 Branchen, darunter die Bereiche Finanzdienstleistungen, Gesundheitswesen, Transport/Logistik, Versicherungen, Einzelhandel und Regierungen/öffentlicher Sektor, wurden in den USA, Großbritannien, Deutschland und Frankreich befragt, um zu erörtern, wie sich derzeitige globale wirtschaftliche Herausforderungen auf Investitionen in die intelligente Automatisierung auswirken. Die Umfrage untersuchte auch, ob und welche Technologien Unternehmen in naher Zukunft einführen wollen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -69,10 +69,10 @@ ABBYY macht Ihre Informationen nutzbar. Unsere Lösungen kombinieren Innovation 
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -80,10 +80,10 @@ ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, gesch
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -107,5 +107,21 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-straightforward-storyline-outline/"><u>[New] Straightforward Storyline Outline</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-seamless-srt-to-sub-a-comprehensive-guide/"><u>[Updated] Seamless SRT to SUB A Comprehensive Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-which-ios-app-crushes-in-video-editing-cameo-or-filmorago/"><u>2024 Approved Which iOS App Crushes in Video Editing? Cameo or FilmoraGo?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028139677-7/"><u>最新動画削減ソフトウェアリスト・日本語版上位7つ - おすすめベータサイト</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/find-friends-in-fandoms-forums-for-2024/"><u>Find Friends in Fandom's Forums for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-lava-blaze-pro-5g-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Lava Blaze Pro 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-hidden-features-funimate-guide/"><u>In 2024, Unleashing Hidden Features - Funimate Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-honor-90-lite-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Honor 90 Lite has been deleted.</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vlcts-how-to-merge-ts-files-using-vlc-media-player/"><u>VLCメディアプレーヤーでTSファイル連結の手順 - How to Merge TS Files Using VLC Media Player</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030257633-vlc/"><u>VLCメディアプレーヤーによる動画編集: 簡単な切り取りとカット手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027274485-windows-10/"><u>Windows 10向けゲーム録画の究極ガイド</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windowsh2-hevc/"><u>WindowsでH.2지베이 HEVCフォーマットの動画再生に問題がある方のハウツー</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
+</ul></div>
 

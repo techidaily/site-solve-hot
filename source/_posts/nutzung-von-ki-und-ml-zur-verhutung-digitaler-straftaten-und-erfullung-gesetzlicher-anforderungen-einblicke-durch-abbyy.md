@@ -1,7 +1,7 @@
 ---
 title: Nutzung Von KI Und ML Zur Verhütung Digitaler Straftaten Und Erfüllung Gesetzlicher Anforderungen – Einblicke Durch ABBYY
-date: 2024-09-21T16:07:44.028Z
-updated: 2024-09-23T16:21:04.764Z
+date: 2024-09-24T23:35:25.392Z
+updated: 2024-09-28T07:27:58.172Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/febc5e8eb723097c959ee0c4369a98c541397c828606f3e607457279dcc62863.jpg
@@ -20,10 +20,10 @@ Im Bankwesen sind die jährlichen Kosten für Cyberangriffe unter allen Branchen
 Um ihre Produktivität zu erhöhen, setzen Finanzinstitute mehr und mehr auf Automatisierung, mobile Technologien und kontaktlose Interaktionen. Diese Maßnahmen können aber neue Schwachstellen schaffen, die sich Cyberkriminelle zunutze machen. Was können Finanzinstitute gegen die ständigen Angriffe unternehmen?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
@@ -37,10 +37,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 * verdächtige Verhaltensmuster in Prozessen zu entdecken
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -50,10 +50,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -123,5 +123,18 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-chromes-video-performance-boost-for-social-media/"><u>[Updated] 2024 Approved Chrome's Video Performance Boost for Social Media</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-unraveling-the-enthralling-elements-of-filmora-editing/"><u>[Updated] In 2024, Unraveling the Enthralling Elements of Filmora Editing</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-streamlined-playback-import-tunes-into-inshot/"><u>[Updated] Streamlined Playback Import Tunes Into InShot</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-comprehensive-sierras-icloud-drives-the-full-experience/"><u>2024 Approved Comprehensive Sierra's iCloud Drives – The Full Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/hd-video-converter-factory-pro-50/"><u>HD Video Converter Factory Pro - 割引！50%オフの特別価格で獲得</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-securely-keep-your-wistia-videos-for-future-use/"><u>How To Securely Keep Your Wistia Videos For Future Use</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/no-luck-with-roku-app-on-your-smart-tv-unlock-immediate-solutions-now/"><u>No Luck with Roku App on Your Smart TV? Unlock Immediate Solutions Now!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/online-flv-to-mjpeg-converter-free-download-a-comprehensive-guide-by-movavi/"><u>Online FLV to MJPEG Converter - Free Download: A Comprehensive Guide by Movavi</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/page-located-no-longer-missing-discover-the-new-route-with-wonderfox/"><u>Page Located - No Longer Missing! | Discover the New Route with WonderFox</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/quick-and-easy-mp3-audio-adjuster-instantly-boost-or-reduce-your-music-volume/"><u>Quick & Easy MP3 Audio Adjuster - Instantly Boost or Reduce Your Music Volume</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-legal-standoff-against-privacy-rule-impact/"><u>WhatsApp's Legal Standoff Against Privacy Rule Impact</u></a></li>
+</ul></div>
 

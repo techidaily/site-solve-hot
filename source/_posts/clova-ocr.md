@@ -1,7 +1,7 @@
 ---
 title: 「CLOVA OCRとフレックスキャプチャーを組み合わせた日本語手書き読み取り」
-date: 2024-09-21T18:25:47.273Z
-updated: 2024-09-23T17:37:55.366Z
+date: 2024-09-25T07:10:30.887Z
+updated: 2024-09-28T02:30:20.812Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b760390b18a7b33382115f2d0b.jpg
@@ -32,10 +32,16 @@ AI OCRは常に進化しており、クラウド上のサービスも多く、�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35333/clovaocr-content-1-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FlexiCaptureは複雑な文書の処理が可能
@@ -47,10 +53,10 @@ FlexiCaptureは、複雑な文書にも広く対応しており、他では取�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35332/clovaocr-content-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FlexiCaptureは検証機能も充実
@@ -62,10 +68,10 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35331/clovaocr-content-3-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FlexiCaptureは業務使用に最適
@@ -83,10 +89,10 @@ CLOVA OCRは横書きや縦書きだけでなく、丸く湾曲して書かれ�
 また、FlexiCaptureと連携したときに、項目単位の細かな設定が必要ないことも特徴の一つです。CLOVA OCR（General）以外のエンジンとの連携では、項目ごとにどんな文字が入るか、文字数はどうかなど細かい調整が必要ですが、CLOVA OCR（General）との連携では、どんな項目も同じ設定で簡単に行うことができます。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## まとめ
@@ -162,5 +168,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-honor-magic-6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1724313529513-nsdabbyy/"><u>市場のリーダー、株式会社NSD及びABBYY 日本合同銀行が認定パートナー契約を成立:関係者コメントと展望</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-xiaomi-redmi-note-12-4g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Xiaomi Redmi Note 12 4G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-5-ways-to-record-gameplay-and-webcam/"><u>In 2024, 5 Ways to Record Gameplay and Webcam</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/quickcapture-lite-basic-chromecasting-tool-for-2024/"><u>QuickCapture Lite Basic Chromecasting Tool for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-document-capture-with-abbyy-flexiconnect-compatible-with-pegasystems-platform/"><u>Seamless Document Capture with ABBYY FlexiConnect: Compatible with Pegasystems Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/strategic-evaluation-of-robotic-automation-through-advanced-process-analytics-techniques/"><u>Strategic Evaluation of Robotic Automation Through Advanced Process Analytics Techniques</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/strategies-to-resolve-live-chatgpt-flaws/"><u>Strategies to Resolve Live ChatGPT Flaws</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/streamlined-energy-switching-made-simple-butagaz-partners-with-abbyy-solutions/"><u>Streamlined Energy Switching Made Simple - Butagaz Partners with ABBYY Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unlocking-advanced-data-insights-with-our-cookiebot-technology-platform/"><u>Unlocking Advanced Data Insights with Our Cookiebot Technology Platform</u></a></li>
+</ul></div>
 

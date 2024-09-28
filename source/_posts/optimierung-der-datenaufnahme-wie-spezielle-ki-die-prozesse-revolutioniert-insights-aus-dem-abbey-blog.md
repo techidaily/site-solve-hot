@@ -1,7 +1,7 @@
 ---
 title: "Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog"
-date: 2024-09-20T18:43:00.288Z
-updated: 2024-09-23T17:04:28.418Z
+date: 2024-09-25T08:20:04.391Z
+updated: 2024-09-28T07:37:11.743Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae77072947e6de85d2a8d631e24f7937491d0d11e8e4a458198601a87eb9beb.jpg
@@ -28,10 +28,10 @@ Nehmen wir einmal die Verpflichtung zur [elektronischen Rechnungstellung der EU]
 Im Folgenden werde ich daher anhand des Beispiels ABBYY versuchen, etwas Transparenz in die Welt der Abkürzungen (LLM, CNN, ML, NLP, IDP) zu bringen.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### KI-Innovation als Grundlage für ABBYY Intelligent Document Processing (IDP) 
@@ -50,10 +50,16 @@ Die [IDP-Plattform von ABBYY](https://tools.techidaily.com/abbyy/products/) ist 
 Mit der richtigen Kombination von Technologien und Techniken können die [IDP-Lösungen von ABBYY jede Art von Dokument verarbeiten](https://tools.techidaily.com/abbyy/products/) \- jedes Format, jede Sprache, jede Struktur. Alle spezialisierten Techniken wurden für die bestmöglichen Schlussfolgerungen und den geringstmöglichen Ressourcenbedarf optimiert, so dass die Kosten und der ROI für die Kunden optimiert werden können.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Large Language Models (LLMs) und Kontext bezogene Antworten. 
@@ -64,13 +70,6 @@ Dies ist somit eine kostengünstige Methode, die die Fähigkeiten großer Sprach
 
 So unterstützt ABBYY die Unternehmen, mit generativer KI erfolgreich zu sein: Daten liegen oft in Silos innerhalb des Unternehmens vor, sind aber größtenteils in Geschäftsdokumenten eingeschlossen. Eine intelligente Dokumentenverarbeitung extrahiert Dokumentendaten und stellt sie in einen Kontext. Diese Daten und der Kontext werden dann mit der Benutzer-Prompot an das LLM kombiniert, um sie inhaltsbezogen zu machen. Das bedeutet, Genauigkeit, Qualität und Zuverlässigkeit.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Convolutional Neural Networks (CNN) und Transformatoren
 
 ABBYYs End-to-End-Ansatz für OCR (Optical Character Recognition) – optische Zeichenerkennung und ICR (was für Intelligent Character Recognition – also die handgeschriebenen Zeichen steht) wurde vor vielen Jahren bereits auf den Markt gebracht und seitdem kontinuierlich weiterentwickelt. ABBYY verwendet die gleichen Technologien wie ChatGPT und andere LLMs - neuronale Faltungsnetzwerke, Transformatoren und große Sprachmodelle. 
@@ -79,18 +78,18 @@ Das LLM, das ABBYY einsetzt, ist sehr spezifisch auf die Bedürfnisse der Kunden
 
 Diese Technik verbessert die Leistung und Genauigkeit unserer OCR-Funktionen insgesamt drastisch und wird in Kombination mit unserem statistischen Ansatz eingesetzt. Die KI entscheidet automatisch, welcher Ansatz für Ihre Dokumente am besten geeignet ist, um sie im Hinblick auf Konsistenz, Genauigkeit und Geschwindigkeit zu optimieren, was zu besseren Durchsatzraten führt. 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Deep Learning und schnelles maschinelles Lernen (ML) 
 
 Deep Learning ermöglicht es ABBYY, KI-Modelle in seiner Plattform für einen ganz bestimmten Zweck vorzutrainieren. Das ist etwas anderes als bei Open-Source-LLMs oder Anbietern generativer KI, die diese als API anbieten. Während generative KI erstaunliche neue Möglichkeiten schafft, wie man mit Technologien interagiert, wird sie nicht bei allem gut funktionieren. Durch Deep Learning werden Modelle für einen ganz bestimmten Zweck trainiert, und darin ist es hervorragend, denn es ist zweckgebunden. Wie oben erwähnt, setzt ABBYY eine Kombination aus vielen verschiedenen Technologien ein, um eine intelligente Dokumentenverarbeitung der Spitzenklasse zu bieten. 
 
 Im ABBYY Produkt „Vantage“ vereint ABBYY eine Kombination aus Deep Learning und schnellem maschinellem Lernen auf einer Low-Code-IDP-Plattform, um die Durchsatzrate zu maximieren. Mit Deep Learning allein können die Kunden mit den von ABBYY trainierten Modellen sofort eine Genauigkeit von oftmals bis zu 90 Prozent erreichen. Durch die Einbeziehung des schnellen maschinellen Lernens kann die Genauigkeit sogar auf über 95 Prozent steigen. Schnelles maschinelles Lernen merkt sich die Ausreißer, die tiefes maschinelles Lernen (Deep Learning) nicht erreichen konnte, und arbeitet schnell, mit nur wenigen Variationen der fraglichen Dokumente. Das Modell verbessert sich kontinuierlich anhand der verarbeiteten Dokumente -und deren Variationen-, sowie basierend auf manuellem Input während des sogenannten HITL (Human in the Loop). Was so viel bedeutet wie manuelle Verifikation. Somit erzielen die Modelle mit der Zeit eine immer höhere Genauigkeit.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Natural Language Processing (NLP) 
 
@@ -107,6 +106,13 @@ Um ein Update zu erhalten, wenn neue Artikel veröffentlicht sind, melden Sie si
 [Anmeldung](https://tools.techidaily.com/abbyy/products/)
 
 ![Christian Marquardt](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/christian-marquadt-110x110.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Christian Marquardt 
 
@@ -175,5 +181,24 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/updated-ai-and-creativity-collide-the-best-podcast-renaming-solutions/"><u>[Updated] AI & Creativity Collide The Best Podcast Renaming Solutions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-demystifying-asuss-proart-pa-329q-full-review-of-a-top-4k-display/"><u>[Updated] Demystifying Asus’s ProArt PA 329Q – Full Review of a Top 4K Display</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-optimized-visual-quality-black-bar-and-box-frame-for-social-media-posts-for-2024/"><u>[Updated] Optimized Visual Quality Black Bar & Box Frame for Social Media Posts for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/choosing-between-podcast-and-youtube-for-content-delivery/"><u>Choosing Between Podcast and YouTube for Content Delivery</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-web-personalization-solutions/"><u>Cookiebot-Driven Web Personalization Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-features-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Features: Enhancing User Experience with Smart Tracking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-marketing-automation-solutions/"><u>Cookiebot-Enabled Marketing Automation Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-solutions-optimize-your-online-experience/"><u>Cookiebot-Enabled Solutions: Optimize Your Online Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Enhancing User Experience with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-with-expertly-managed-cookies/"><u>Cookiebot-Enhanced: Boost Your Site's Performance with Expertly Managed Cookies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/efficient-lead-generation-using-the-cookiebot-platform/"><u>Efficient Lead Generation Using the Cookiebot Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-user-engagement-using-the-innovative-power-of-cookiebot-analytics-solutions/"><u>Elevate User Engagement Using the Innovative Power of Cookiebot Analytics Solutions</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-iphone-11-smoothly-by-drfone-ios/"><u>How To Remove iCloud On iPhone 11 Smoothly</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-lava-blaze-2-5g-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Lava Blaze 2 5G</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-a-techies-playbook-screen-record-and-share-on-snapchat/"><u>In 2024, A Techie's Playbook Screen Record & Share on Snapchat</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/trim-vlc-files-on-mac-with-precision-no-quality-degradation-for-2024/"><u>Trim VLC Files on Mac with Precision No Quality Degradation for 2024</u></a></li>
+</ul></div>
 

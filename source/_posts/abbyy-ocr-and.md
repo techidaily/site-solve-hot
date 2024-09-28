@@ -1,7 +1,7 @@
 ---
 title: ABBYYの優れた帳票データエクステラクション – 多ページ、複雑な表やレイアウトを扱い、容易にOCR &出力可能
-date: 2024-09-16T16:38:05.788Z
-updated: 2024-09-23T18:36:53.716Z
+date: 2024-09-23T20:06:52.825Z
+updated: 2024-09-27T20:59:31.701Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c65510cdf2678db2edca6954d.jpg
@@ -55,10 +55,17 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29121/table-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ページ間で表の1行・1レコード・1パターンのデータがまたがってしまっている帳票
@@ -66,20 +73,6 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 以下のような、ページまたぎの行、レコードでも問題なく認識して、OCRできます。
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29122/table-3.png)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 罫線が無い、行や列が分かりにくい帳票
 
@@ -91,9 +84,36 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29126/table-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 下記の例のように、罫線が全くなくても、表の部分を下図の線で区切ったように認識し、OCRする事が可能です。もちろん複数ページの読み取りでも、途中に異なるフォーマットの帳票があっても大丈夫です。
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29128/table-6.png)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 左から右、または、右から左などの横方向の読み取りが必要な帳票
 
@@ -102,10 +122,16 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29129/table-7.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 右から左へ 列を行のようなパターンとみなして読むOCRも可能です。
@@ -120,21 +146,7 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29131/table-8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29132/table-9.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 帳票に同じ管理番号: 請求書番号、注文番号、お客様番号…などがある場合、そのOCR結果を元に文書をまとめ、他のOCR結果の内容と出力もまとめることができます。
 
@@ -213,5 +225,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-pro-audio-integration-essential-tips-for-podcasters/"><u>[Updated] In 2024, Pro Audio Integration Essential Tips for Podcasters</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-peeps-funny-photos-iphones-style/"><u>2024 Approved Peeps' Funny Photos, iPhones Style</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5yuv55s744gm44or44ov44o844od44kk44oz44oi44gn5yan55sf44gn44gn44gq44ge55cg55sx44go5aplusplus562w6kmz5acx/"><u>動画がパワーポイントで再生できない理由と対策詳報</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comprehensive-tutorial-converting-3g2-media-files-to-mp4-avi-and-additional-formats-easily/"><u>Comprehensive Tutorial: Converting 3G2 Media Files to MP4, AVI, and Additional Formats Easily</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/convert-mp3-to-wav-free-a-step-by-step-guide-for-windows-users/"><u>Convert MP3 to WAV Free: A Step-by-Step Guide for Windows Users</u></a></li>
+<li><a href="https://win-able.techidaily.com/game-developers-address-and-correct-longstanding-pc-stability-issues-for-century-age-of-ashes-players/"><u>Game Developers Address and Correct Longstanding PC Stability Issues for Century: Age of Ashes Players</u></a></li>
+<li><a href="https://media-tips.techidaily.com/streaming-wars-decoded-how-does-apple-tvplus-stack-up-against-the-big-players/"><u>Streaming Wars Decoded: How Does Apple TV+ Stack Up Against the Big Players?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-3-secure-erome-video-downloading-tools-safely-extracting-content/"><u>Top 3 Secure Erome Video Downloading Tools - Safely Extracting Content</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unleashing-ai-potential-the-finest-20-chatgpt-prompts-curated-via-github-platforms/"><u>Unleashing AI Potential: The Finest 20 ChatGPT Prompts Curated via Github Platforms</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/why-incorporate-claude-ai-enhancing-efficiency-with-advanced-technology/"><u>Why Incorporate Claude AI? Enhancing Efficiency with Advanced Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wma3/"><u>WMA音楽を巧みに編集:ベストの3つのコストフリーソフト選び</u></a></li>
+</ul></div>
 

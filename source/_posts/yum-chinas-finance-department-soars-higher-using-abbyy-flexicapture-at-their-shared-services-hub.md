@@ -1,7 +1,7 @@
 ---
 title: YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub
-date: 2024-09-21T17:40:58.111Z
-updated: 2024-09-23T17:56:50.400Z
+date: 2024-09-27T03:52:21.169Z
+updated: 2024-09-28T05:06:35.399Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ffcad7f48962d75f242ed7b8339741a057dbb535926e2709bec686a6dd167dd4.jpg
@@ -18,6 +18,13 @@ Other | Accounts Payable Automation
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Financial shared services center of YUM China reaches a new level with ABBYY FlexiCapture®
 
@@ -38,13 +45,6 @@ Other | Accounts Payable Automation
 #### Partner Overview
 
 ![Shanghai Taibi Information Technology LTD](https://static5.abbyy.com/abbyycommedia/14850/abbyy.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | Shanghai Taibi Information Technology LTD |
 | ------------ | ----------------------------------------- |
@@ -71,6 +71,13 @@ YUM! Restaurants (China) is the Shanghai-based Chinese division of the internati
 ### **16**
 
 offices in China
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **9** times less
 
@@ -116,33 +123,19 @@ Moreover, ABBYY software has enabled the company to release the workforce, signi
 
 [![07a-case-extra-product](https://static4.abbyy.com/abbyycommedia/21381/07a-case-extra-product.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![yum-pic2](https://static2.abbyy.com/abbyycommedia/15242/yum-pic2.jpg)](https://static4.abbyy.com/abbyycommedia/11517/case-study-yum-wholesale-and-retail-en.pdf "PDF version") [PDF version](https://static4.abbyy.com/abbyycommedia/11517/case-study-yum-wholesale-and-retail-en.pdf "PDF version") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://static4.abbyy.com/abbyycommedia/11517/case-study-yum-wholesale-and-retail-en.pdf "PDF version") 
@@ -154,6 +147,13 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -174,5 +174,26 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-pcs-finest-ps3-simulators-for-gaming-enthusiasts/"><u>[New] 2024 Approved PC's Finest PS3 Simulators for Gaming Enthusiasts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-mastering-mac-from-live-classroom-to-recorded-session/"><u>[New] Mastering Mac From Live Classroom to Recorded Session</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-enhancing-outdoor-vision-with-gopro-and-live-streaming-platforms/"><u>[Updated] In 2024, Enhancing Outdoor Vision with GoPro and Live Streaming Platforms</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030046414-windows-media-player/"><u>「ファイル再生中のWindows Media Player 問題」: 修正方法と解決策</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-compatible-platforms-a-step-by-step-guide-to-watching-wtv-videos-anywhere/"><u>1. Compatible Platforms: A Step-by-Step Guide to Watching WTV Videos Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-step-by-step-guide-adjusting-your-sound-quality-by-changing-the-bitrate/"><u>1. Step-by-Step Guide: Adjusting Your Sound Quality by Changing the Bitrate</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/achieving-top-notch-clarity-recording-pro-tips-for-firestick-users/"><u>Achieving Top-Notch Clarity: Recording Pro Tips for Firestick Users</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-from-iphone-15-plus-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out From iPhone 15 Plus How to Bypass?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/avchd-to-mp4-conversion-top-6-recommended-free-software-picks-for-superior-video-quality/"><u>AVCHD to MP4 Conversion: Top 6 Recommended Free Software Picks for Superior Video Quality</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-content-strategies-for-youtube-success-for-2024/"><u>Elevate Your Content Strategies for YouTube Success for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/from-letters-to-love-how-to-effortlessly-create-a-heart-symbol-online/"><u>From Letters to Love: How to Effortlessly Create a Heart Symbol Online</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/giggles-guide-to-sign-insign-out-for-2024/"><u>Giggles Guide to Sign-In/Sign-Out for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Vivo Y100t? | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726029019563-insta/"><u>Insta動画を最高に見せる投稿テクニック</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-quintessential-selection-of-prime-twitch-downloader-apps/"><u>The Quintessential Selection of Prime Twitch Downloader Apps</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-7-screen-recording-tools-for-pcs-and-macbooks-find-the-perfect-one/"><u>Top 7 Screen Recording Tools for PCs & MacBooks - Find the Perfect One</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/transforming-archived-content-for-livestream-audiences-on-facebook/"><u>Transforming Archived Content for Livestream Audiences on Facebook</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-avi-playback-issues-for-a-seamless-experience-on-chromebooks/"><u>Troubleshooting AVI Playback Issues for a Seamless Experience on Chromebooks</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-how-to-successfully-add-hevc-footage-in-after-effects/"><u>Troubleshooting Guide: How to Successfully Add HEVC Footage in After Effects</u></a></li>
+</ul></div>
 

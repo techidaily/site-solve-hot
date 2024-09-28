@@ -1,7 +1,7 @@
 ---
 title: Exploring Brazil's Surge in Intelligent Tech Solutions During InfoShow 2Nv 2018 | Expert Analysis by ABBYY Blog Team
-date: 2024-09-13T19:24:45.858Z
-updated: 2024-09-14T17:30:31.766Z
+date: 2024-09-22T19:22:05.950Z
+updated: 2024-09-28T03:39:41.770Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545b8fd2ecff1c5ec11c0e45ff.png
@@ -27,6 +27,13 @@ Business-critical information accumulates as technology advances, putting pressu
 
 For ABBYY, Brazil is a top priority market, despite its instability and complexity, presenting a favorable environment for IT business. Brazil was the world's 7th largest IT market before the 2016 the economic crisis resulted in the decrease of the GDP by 3.6% with reductions across all sectors of the economy including IT. The good news though is that IT sector is expected to post growth of 5.8% this year, according to estimates released by IDC Brazil. This is already a visible evidence that some of the companies which abandoned their IT projects in the wake of the crisis are trickling back. The Government is also encouraging foreign participation in Brazilian ICT companies through the Association for Promotion of the Excellence of the Brazilian Software (Softex) and the Brazilian Agency of Promotion of exports and investments (Apex-Brazil).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Taking responsibility for social progress
 
 As a global leader, ABBYY is actively trying to expand its footprint in the Latin America . In May this year, the company was a participant of the RPA Congress which brought together consultants, industry experts and users to discuss and exchange experiences on the transformation power of RPA. Along with IBM, Fujitsu and other big players, ABBYY was a Diamond Sponsor of the 9th Session of the Information Show that was recently concluded in Brazil.
@@ -36,6 +43,13 @@ This is not ABBYY's first foray into the Brazilian market. Earlier, the company 
 **_By Catherine Egorova, Brand Manager, ABBYY Emerging Markets (3A)_**
 
 [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Events](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -98,12 +112,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/updated-the-fundamentals-of-captivating-video-scripts/"><u>[Updated] The Fundamentals of Captivating Video Scripts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-5-helmet-action-cameras-for-motorcycle/"><u>[Updated] Top 5 Helmet Action Cameras For Motorcycle</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-vivo-s17-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Vivo S17</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/apple-iphone-14-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Apple iPhone 14 Plus iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-insights-for-website-optimization/"><u>Cookiebot-Driven Insights for Website Optimization</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-stories-unleashing-marketing-potential-through-advanced-analytics/"><u>Cookiebot-Driven Success Stories: Unleashing Marketing Potential Through Advanced Analytics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-elevate-your-website-engagement-and-rankings/"><u>Cookiebot-Driven Success: Elevate Your Website Engagement and Rankings</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-website-optimization-unlocking-success/"><u>Cookiebot-Driven Website Optimization: Unlocking Success</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cross-device-app-development-with-abbyy-ocr-streamlining-ux-testing-and-robotics-qa/"><u>Cross-Device App Development with ABBYY OCR: Streamlining UX Testing & Robotics QA</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/customized-user-experience-with-automated-tracking-inspired-by-cookiebot/"><u>Customized User Experience with Automated Tracking: Inspired by Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/driven-by-advanced-data-gathering-technology-from-cookiebot/"><u>Driven by Advanced Data-Gathering Technology From Cookiebot</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-realme-c51-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Realme C51 to Protect Your Individual Information</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/implementing-dynamic-filters-transform-your-videos-digitally-for-2024/"><u>Implementing Dynamic Filters Transform Your Videos Digitally for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-itel-a60s-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Itel A60s with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-resolving-issues-with-corsair-icue-on-windows-11/"><u>Troubleshooting Tips: Resolving Issues with Corsair iCUE on Windows 11</u></a></li>
+</ul></div>
 

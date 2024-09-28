@@ -1,7 +1,7 @@
 ---
 title: 効率的な支払処理手法：UIPath・ABBYY FlexiCaptureのパワーコンビによる自動化アップ
-date: 2024-09-09T16:36:58.657Z
-updated: 2024-09-14T22:24:52.614Z
+date: 2024-09-21T02:25:25.843Z
+updated: 2024-09-27T19:36:23.491Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/246d0000b4a8f8f8e29a0c282b538c53c7dcabe9e936ddda4c95b0a712854944.jpg
@@ -20,6 +20,13 @@ Information & Communication | Accounts Payable Automation
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## UiPathとABBYY FlexiCaptureを連携   
 紙請求書に基づく支払処理を自動化し、生産性が大幅アップ
 
@@ -30,6 +37,13 @@ Information & Communication | Accounts Payable Automation
 #### お客様の概要
 
 ![NTT コミュニケーションズ株式会社](https://static2.abbyy.com/abbyycommedia/24894/lgo-ntt-250.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | 氏名     | NTT コミュニケーションズ株式会社                            |
 | ------ | --------------------------------------------- |
@@ -131,6 +145,13 @@ ABBYY FlexiCaptureを導入することによって、生産性向上施策（DX
 
 [![PDF版](https://static5.abbyy.com/abbyycommedia/24928/06c-jpcasestudyntt-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/24892/customer-story-ntt-ja.pdf "PDF版") [PDF版](https://static4.abbyy.com/abbyycommedia/24892/customer-story-ntt-ja.pdf "PDF版") 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://static4.abbyy.com/abbyycommedia/24892/customer-story-ntt-ja.pdf "PDF版") 
 
 ###### SNSでフォロー
@@ -140,6 +161,13 @@ ABBYY FlexiCaptureを導入することによって、生産性向上施策（DX
 [ABBYYについて](https://tools.techidaily.com/abbyy/products/) 
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
 
@@ -160,12 +188,23 @@ ABBYY FlexiCaptureを導入することによって、生産性向上施策（DX
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-photobooth-video-glitch-understanding-the-halt/"><u>[Updated] 2024 Approved Photobooth Video Glitch - Understanding the Halt</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-transform-your-snapchat-pics-with-playful-cartoon-lens/"><u>[Updated] In 2024, Transform Your Snapchat Pics with Playful Cartoon Lens</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-maximizing-your-youtube-investments-through-famebit-networking-tactics/"><u>2024 Approved Maximizing Your YouTube Investments Through FameBit Networking Tactics</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-penning-plots-for-big-screens/"><u>2024 Approved Penning Plots for Big Screens</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/accelerate-po-management-and-elevate-service-quality-through-gemluxs-advanced-abbyy-idp-solutions-within-netsuite/"><u>Accelerate PO Management and Elevate Service Quality Through GEMLUX’s Advanced ABBYY IDP Solutions Within NetSuite</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/advanced-docu-ai-techniques-mastering-smart-scanning-with-abbyy-and-pegasystems/"><u>Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-the-cookiebot-solution/"><u>Automated User Tracking with the Cookiebot Solution</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automatisierte-veranderung-wie-traditionelle-unternehmen-in-digitale-strukturen-ubergehen/"><u>Automatisierte Veränderung: Wie Traditionelle Unternehmen in Digitale Strukturen Übergehen</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-your-apps-features-for-free-with-abbyys-on-the-fly-image-recognition-technology/"><u>Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bridging-gaps-using-samsung-flow-for-device-synergy/"><u>Bridging Gaps: Using Samsung Flow for Device Synergy</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-efficient-marketing-automation-tools/"><u>Cookiebot Driven Solutions: Efficient Marketing Automation Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-empowered-sites-boost-organic-visibility/"><u>Cookiebot-Empowered Sites Boost Organic Visibility</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/srt-to-sub-how-to-convert-srt-to-sub-with-3-actionable-ways/"><u>SRT to SUB How to Convert SRT to SUB with 3 Actionable Ways</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-picks-beloved-family-films-streaming-on-amazon-prime-video-this-july/"><u>Top Picks: Beloved Family Films Streaming on Amazon Prime Video This July</u></a></li>
+</ul></div>
 

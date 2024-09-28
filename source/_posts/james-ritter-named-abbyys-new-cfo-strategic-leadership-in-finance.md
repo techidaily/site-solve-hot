@@ -1,7 +1,7 @@
 ---
 title: "James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance"
-date: 2024-09-16T17:08:50.554Z
-updated: 2024-09-23T16:30:16.139Z
+date: 2024-09-20T23:20:11.189Z
+updated: 2024-09-28T01:13:42.938Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91d802feac954d9a2b7218b9de82c000f339447018e6cb53073b6a41a90f92e5.jpg
@@ -28,10 +28,10 @@ Ritter commented, “ABBYY is well positioned to deliver next generation, no cod
 Ritter has held several leadership positions with global organizations including WPP, Ferrovial, and BigCommerce. He originally joined ABBYY as VP of Finance in June 2021, and prior to joining ABBYY, was the VP Controller at Accruent, an international enterprise software organization. Ritter is a Certified Public Accountant with an accounting degree from Rowan University and is actively pursuing an MBA at Boston University Questrom School of Business. He resides in Texas.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -41,10 +41,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -52,10 +52,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -80,5 +80,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-top-virtual-recording-tools-online-for-2024/"><u>[New] Top Virtual Recording Tools Online for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-sound-glitches-for-a-perfect-gaming-experience-solutions-for-xbox-series-xs-headsets/"><u>Fixing Sound Glitches for a Perfect Gaming Experience: Solutions for Xbox Series X/S Headsets</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y200e-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Vivo Y200e 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-realme-gt-neo-5-se-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Realme GT Neo 5 SE Phone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-perfecting-your-video-game-broadcast-the-obs-way/"><u>In 2024, Perfecting Your Video Game Broadcast The OBS Way</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/ios-the-ultimate-list-of-ps2-emulators-for-2024/"><u>IOS The Ultimate List of PS2 Emulators for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionize-your-sites-user-experience-using-the-advanced-features-of-cookiebot/"><u>Revolutionize Your Site's User Experience Using the Advanced Features of Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-patient-payments-master-the-revenue-cycle-with-abbyys-ebook-on-healthcare-finance/"><u>Revolutionizing Patient Payments: Master the Revenue Cycle with ABBYY's eBook on Healthcare Finance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/the-best-solution-for-assessing-the-202e-year-with-everest-group-and-abbyys-peak-matrix/"><u>The Best Solution for Assessing the 202E Year with Everest Group and ABBYY's PEAK Matrix</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-face-forward-top-makeup-creatives/"><u>The Face Forward Top Makeup Creatives</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-tricks-for-capturing-your-google-meeting-experience-flawlessly-for-2024/"><u>Top Tricks for Capturing Your Google Meeting Experience Flawlessly for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-your-phone-into-a-pro-scanner-with-abbyys-topnotch-ai-technology/"><u>Transform Your Phone Into a Pro Scanner with ABBYY's Topnotch AI Technology!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transformative-mobile-tools-discovering-the-top-game-changers-on-your-smartphone/"><u>Transformative Mobile Tools: Discovering the Top Game-Changers on Your Smartphone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-intelligent-process-automation-an-overview/"><u>Understanding Intelligent Process Automation: An Overview</u></a></li>
+<li><a href="https://win11.techidaily.com/winx-backdrop-blues-solutions-for-a-colorful-ui/"><u>WinX Backdrop Blues: Solutions for a Colorful UI</u></a></li>
+</ul></div>
 

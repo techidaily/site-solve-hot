@@ -1,7 +1,7 @@
 ---
 title: "Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems"
-date: 2024-09-17T16:24:24.743Z
-updated: 2024-09-23T16:49:52.359Z
+date: 2024-09-24T08:39:18.473Z
+updated: 2024-09-27T21:17:05.318Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b444eae6e981167865c0c0478.jpg
@@ -10,13 +10,6 @@ thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b4
 ## Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems
 
 ## 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## ABBYY | Pegasystems 
 
@@ -31,10 +24,17 @@ En tant que partenaire technologique de Pega, ABBYY fournit des solutions de tra
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Avantages de l’intégration 
@@ -60,16 +60,17 @@ Le connecteur ABBYY FlexiCapture pour Pega permet aux BPM et RPA de Pega de tran
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/pegasystems_logo_rev_120px.png?h=26&iar=0&w=120)
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Cas d’utilisation
@@ -94,13 +95,6 @@ L’ajout de FlexiCapture aux processus de comptabilité fournisseurs Pega perme
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Prêt à parler à un expert ?
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)[Contactez-nous](https://tools.techidaily.com/abbyy/products/)
@@ -118,5 +112,19 @@ L’ajout de FlexiCapture aux processus de comptabilité fournisseurs Pega perme
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://solve-hot.techidaily.com/1-abbyy-flexicapture-transforming-enterprises-into-modern-digital-powerhouses/"><u>1. ABBYY FlexiCapture: Transforming Enterprises Into Modern Digital Powerhouses</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-breaking-down-average-podcaster-salary/"><u>2024 Approved Breaking Down Average Podcaster Salary</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-guard-your-images-with-top-photo-watermarks/"><u>2024 Approved Guard Your Images with Top Photo Watermarks</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-cloud-your-ultimate-solution-for-seamless-document-conversion-and-automation/"><u>Abbyy Cloud: Your Ultimate Solution for Seamless Document Conversion and Automation</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-vivo-y28-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Vivo Y28 5G FRP</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-windows-update-error-code-0x80240017-complete-fix-guide/"><u>How to Resolve Windows Update Error Code 0X80240017 - Complete Fix Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/m2tsmp3/"><u>M2TSファイルから自由にMP3へ変換 - ステップバイステップガイド</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-10-video-rotation-tools-for-seamless-playback/"><u>New 2024 Approved Top 10 Video Rotation Tools for Seamless Playback</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-get-your-fcpx-plugins-up-and-running-a-step-by-step-guide/"><u>New Get Your FCPX Plugins Up and Running A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/yum-chinas-finance-department-soars-higher-using-abbyy-flexicapture-at-their-shared-services-hub/"><u>YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/44kk44oz44k144kk44oi5zcr5lik44gu44gf44kb44gu44k44k544kv44o744ox44ot44k744k544oe44kk44ol44oz44kw5oqa6kgt/"><u>インサイト向上のためのタスク・プロセスマイニング技術</u></a></li>
+</ul></div>
 

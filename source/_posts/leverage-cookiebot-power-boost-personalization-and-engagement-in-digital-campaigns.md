@@ -1,7 +1,7 @@
 ---
 title: "Leverage Cookiebot Power: Boost Personalization & Engagement in Digital Campaigns"
-date: 2024-09-22T18:43:26.446Z
-updated: 2024-09-23T17:55:19.721Z
+date: 2024-09-22T04:17:32.844Z
+updated: 2024-09-27T19:00:37.008Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2e36ccbc985ffa8060cba8099c01adb9e0bc227482cd4647ba2ea8d61ea0fe4.png
@@ -35,10 +35,10 @@ News
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The challenges faced when managing ad hoc case management processes are multifaceted
@@ -74,10 +74,10 @@ In conclusion, while process intelligence is undoubtedly valuable for regular an
 ![02a-ScottOpitz-99x99.png](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Scott Opitz
@@ -91,16 +91,10 @@ A 30-year veteran of the computer industry, Scott has founded and built companie
 In previous positions, Scott served as Senior Vice President, Worldwide Marketing & Business Development for webMethods (now Software AG), where he was responsible for webMethods’ marketing, business development, and strategic product planning. He joined webMethods as a result of its acquisition of IntelliFrame Corporation, a provider of data integration products and the InVista integrated workflow and BPM platform that he co-founded. Scott has also held numerous executive-level positions in technology, marketing and business development roles for public and private companies.
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Additional Insights:
@@ -110,10 +104,16 @@ In previous positions, Scott served as Senior Vice President, Worldwide Marketin
 [![Customer Point of View: Highs and Lows of the Intelligent Automation Journey](https://static3.abbyy.com/abbyycommedia/38066/ds-191_customer-point-of-view_tn_848x444-1.jpg) **Customer Point of View: Highs and Lows of the Intelligent Automation Journey** Read more](https://tools.techidaily.com/abbyy/products/) [![ICYMI: 5 Reasons Why Process Intelligence Is Replacing Process Mining—Our Conversation with Doculabs](https://static1.abbyy.com/abbyycommedia/38052/ds-191_5-reasons-why_848x444.jpg) **ICYMI: 5 Reasons Why Process Intelligence Is Replacing Process Mining—Our Conversation with Doculabs** Read more](https://tools.techidaily.com/abbyy/products/) [![Introducing the AI-Driven Enterprise Podcast](https://static1.abbyy.com/abbyycommedia/38057/ds-191_introducing-the-ai-driven_848x444.jpg) **Introducing the AI-Driven Enterprise Podcast** Read more](https://tools.techidaily.com/abbyy/products/) [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Subscribe for updates
@@ -171,5 +171,16 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-prime-videobg-selections-enhancing-remote-collaboration/"><u>[New] 2024 Approved Prime Videobg Selections Enhancing Remote Collaboration</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-discover-how-to-thrive-in-tiktok-lives-from-desktop/"><u>[Updated] 2024 Approved Discover How to Thrive in TikTok Lives From Desktop</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5yuv55s744gm44or44ov44o844od44kk44oz44oi44gn5yan55sf44gn44gn44gq44ge55cg55sx44go5aplusplus562w6kmz5acx/"><u>動画がパワーポイントで再生できない理由と対策詳報</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comprehensive-tutorial-converting-3g2-media-files-to-mp4-avi-and-additional-formats-easily/"><u>Comprehensive Tutorial: Converting 3G2 Media Files to MP4, AVI, and Additional Formats Easily</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/convert-mp3-to-wav-free-a-step-by-step-guide-for-windows-users/"><u>Convert MP3 to WAV Free: A Step-by-Step Guide for Windows Users</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-proceed-with-admin-rights-for-software-installations-on-windows-11107/"><u>How to Proceed with Admin Rights for Software Installations on Windows 11/10/7</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-realme-gt-3-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Realme GT 3 FRP</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/the-essential-manual-for-simplified-live-streamers-for-2024/"><u>The Essential Manual for Simplified Live Streamers for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wma3/"><u>WMA音楽を巧みに編集:ベストの3つのコストフリーソフト選び</u></a></li>
+</ul></div>
 

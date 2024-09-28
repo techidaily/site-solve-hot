@@ -1,7 +1,7 @@
 ---
 title: Enhanced Traffic Conversion with Cookiebot Technology
-date: 2024-09-09T22:06:34.651Z
-updated: 2024-09-14T17:25:51.597Z
+date: 2024-09-21T04:08:43.393Z
+updated: 2024-09-27T21:54:29.907Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6e60383647786ca91fac6705ee563d1d14735cbfcbf29cef2bea0822024a08e1.jpg
@@ -19,6 +19,13 @@ January 18, 2023
 
 「IDP is Dead, Long Live IDP（IDP崩御、IDP万歳）」--このフレーズは、変革と継続という感情を響かせています。「国王崩御、国王万歳!」という歴史的な宣言のように、私たちはインテリジェント文書処理（IDP）の領域領域における重要な転換期を迎えています。これは終わりではなく、再生であり、より強力で、AI (人工知能) の未来にとってより意義深いものへと変貌を遂げる瞬間なのです。
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## インテリジェント文書処理（IDP）の進化
 
 この変革の中核にあるのは、実は何十年も前から存在する「光学文字認識 (OCR)」と呼ばれる技術です。かつては単にテキストをデジタル化するツールでしたが、OCR は現在、高品質なデータを使って大規模言語モデル (LLM) を学習させる上で欠かせない役割を果たしています。単純なテキスト変換ツールから高度なデータ供給者への進化は、IDP 技術の適応性と持続的な重要性を示しています。従来の IDP は、精度とコンテキストが最優先される新しい時代への道を切り開いているのです。
@@ -28,21 +35,22 @@ January 18, 2023
 今日の [OCR](https://tools.techidaily.com/abbyy/products/)は、単にテキストを読むだけでなく、テキスト全体を理解することが求められます。企業はこれまで以上に高い精度とより深いデータ洞察を求めているため、IDP技術はより高度で微妙なニュアンスを理解する必要があります。しかし、この進化には課題もあります。精度とコンテキスト理解のバランスが重要になってきます。AI システムに投入するデータは、正確であるだけでなく、文脈的にも関連性があるものであることをどのように保証するのでしょうか？
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### インテリジェント文書処理（IDP）の未来
 
 本当に理解力のある「IDP」こそが、データとAIに対する考え方そのものを革新し、未来を切り拓く鍵となります。単に文書を処理するだけでなく、内容を理解し、データだけでなくそこからインサイトを引き出すシステムの構築が求められています。 この新しいIDPこそが、絶え間なく進化を遂げるAIのランドマークとなり、より知的で効率的、そして直感的なシステム構築において欠かせない要素となるでしょう。
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 現代のIDPの内幕
 
@@ -93,10 +101,10 @@ ABBYY が 4 年連続で IDP リーダーに選出された理由をご報告書
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Maxime Vermeir
@@ -164,5 +172,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-essential-tutorial-on-using-instagram-filters/"><u>[New] 2024 Approved The Essential Tutorial on Using Instagram Filters</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-becoming-a-broadcast-pro-zooming-into-youtube-live-success/"><u>[New] Becoming a Broadcast Pro Zooming Into YouTube Live Success</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-diving-into-virtual-landscapes-a-guide-to-vr-tours/"><u>[New] Diving Into Virtual Landscapes A Guide to VR Tours</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-seamless-film-documentation-on-windowsmacos-and-ios-gadgets-for-2024/"><u>[Updated] Seamless Film Documentation on Windows/MacOS & iOS Gadgets for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-sonic-layers-in-reels-weaving-audio-into-visuals-for-2024/"><u>[Updated] Sonic Layers in Reels Weaving Audio Into Visuals for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-motorola-razr-40-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploiter-au-mieux-le-potentiel-dune-entreprise-double-numerique-et-modelisation-procedurale/"><u>Exploiter Au Mieux Le Potentiel D'une Entreprise : Double Numérique Et Modélisation Procédurale</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fortschrittliche-texterfassung-mit-machine-learning-aktuelle-innovationen-von-abbyy/"><u>Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-elevate-your-websites-seo-and-conversion-rates/"><u>Harness the Power of Cookiebot: Elevate Your Website's SEO & Conversion Rates!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/iconic-logos-for-podcasts-standout-strategies/"><u>Iconic Logos for Podcasts Standout Strategies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/kddiabbyy-ocr/"><u>KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/latest-update-abbyy-releases-enhanced-abbyy-flexicapture-v122/"><u>Latest Update: ABBYY Releases Enhanced ABBYY FlexiCapture V12.2</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/model-b-1913-27-adjustable-rear-sight-two-settings-optional-safety-first-firing-pin-block-lever-between-trigger-and-slide-unfluted-grip/"><u>Model B - 1913-27, Adjustable Rear Sight (Two Settings), Optional Safety First Firing Pin Block Lever Between Trigger and Slide, Unfluted Grip</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigating-digital-change-in-insurance-your-ultimate-checklist-featuring-abbyy-solutions/"><u>Navigating Digital Change in Insurance: Your Ultimate Checklist Featuring ABBYY Solutions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ial-unmask-your-youtube-audience-for-2024/"><u>Tutorial Unmask Your YouTube Audience for 2024</u></a></li>
+</ul></div>
 

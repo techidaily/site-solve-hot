@@ -1,7 +1,7 @@
 ---
 title: NeoML Von ABBYY Jetzt Mit Python Unterstützt - Erleben Sie Die 10X Schnellere Open-Source-Bibliothek
-date: 2024-09-08T20:39:31.540Z
-updated: 2024-09-14T22:32:54.253Z
+date: 2024-09-23T18:27:05.308Z
+updated: 2024-09-27T17:57:21.961Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a08727f11a7832f787474e1a64a135e87ab43cd2d3040a1084f509333c65c397.jpg
@@ -16,6 +16,13 @@ thumbnail: https://thmb.techidaily.com/a08727f11a7832f787474e1a64a135e87ab43cd2d
 22\. Juni 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### NeoML bietet eine 50% schnellere Leistung als andere beliebte Open-Source-Bibliotheken für maschinelles Lernen.
 
@@ -65,12 +72,18 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-samsung-secrets-crafting-compelling-time-lapses/"><u>[New] Samsung Secrets Crafting Compelling Time Lapses</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-kids-and-newbies-rejoice-our-10-easiest-to-fly-drones/"><u>[Updated] Kids & Newbies Rejoice! Our 10 Easiest-to-Fly Drones</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/dive-into-cutting-edge-internet-surfing-and-media-streaming-on-the-cost-effective-lenovo-tab-m10-hd-2020/"><u>Dive Into Cutting-Edge Internet Surfing and Media Streaming on the Cost-Effective Lenovo Tab M10 HD (2020)</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/driven-with-automated-bots-a-deep-dive-into-smart-marketing-technology/"><u>Driven with Automated Bots: A Deep Dive Into Smart Marketing Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/empowering-websites-with-cookiebot-technology-for-advanced-tracking-and-optimization/"><u>Empowering Websites with Cookiebot Technology for Advanced Tracking and Optimization</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-shipping-efficiency-leveraging-artificial-intelligence-for-smart-document-management/"><u>Enhance Shipping Efficiency: Leveraging Artificial Intelligence for Smart Document Management</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-our-cookiebot-power-plugins/"><u>Enhance User Experience with Our Cookiebot Power Plugins</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-guide-to-cost-effective-3d-printing-elite-models-offered-at-budget-friendly-price-points/"><u>Expert Guide to Cost-Effective 3D Printing: Elite Models Offered at Budget-Friendly Price Points</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-access-your-screen-star-downloadable-rights/"><u>In 2024, Access Your Screen Star Downloadable Rights</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/save-the-day-guide-to-downloading-and-converting-vimeo-videos-mp4-for-2024/"><u>Save the Day Guide to Downloading and Converting Vimeo Videos (MP4) for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-performance-of-yis-4k-actioncam/"><u>The Ultimate Performance of Yi's 4K ActionCam</u></a></li>
+</ul></div>
 

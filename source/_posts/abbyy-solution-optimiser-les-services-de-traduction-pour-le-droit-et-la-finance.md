@@ -1,7 +1,7 @@
 ---
 title: ABBYY Solution - Optimiser Les Services De Traduction Pour Le Droit Et La Finance
-date: 2024-09-17T17:16:48.066Z
-updated: 2024-09-23T16:38:29.291Z
+date: 2024-09-21T05:32:08.946Z
+updated: 2024-09-28T00:19:40.725Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d87088006ba977c8519d5351.jpg
@@ -19,25 +19,11 @@ Consulting
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## ABBYY aide les agences de traduction dans le secteur du droit et de la finance à proposer des services de qualité à leurs clients
 
 [Afficher ou télécharger une version imprimable de cet article (PDF 302 kb)](https://static4.abbyy.com/abbyycommedia/10186/cs-hl-trad-fr-f.pdf) 
 
 _![](https://tools.techidaily.com/abbyy/products/)HL TRAD est une agence de traduction et d´interprétariat, spécialisée auprès des acteurs du droit, de la finance et du conseil, qui propose à ses clients des traductions libres ou assermentées, des interprètes et des services de relecture. Pour mieux répondre aux besoins de ses clients, HL TRAD constitue des équipes dont l'objectif est de mettre au point des solutions sur mesure. HL TRAD est implantée en France, en Angleterre et en Belgique. L´agence a récemment investi dans une solution permettant d'améliorer les procédures associées au traitement de documents importants à traduire._
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Contexte
 
@@ -48,10 +34,10 @@ HL TRAD doit convertir des documents régulièrement pour répondre aux besoins 
 Eric Le Poole, gérant de HL TRAD, explique la raison pour laquelle trouver une solution de reconnaissance de texte (OCR) devenait essentielle: « Les documents sont au centre de notre activité, qu'il s'agisse de conclusions, de comptes annuels, de rapports de gestion, ou encore, de rapports de due diligence. La possibilité de convertir ces documents devait nous permettre de récupérer du texte, des tableaux et des graphiques en évitant une ressaisie fastidieuse et source d´erreurs. Les avantages recherchés étaient de faciliter le travail de nos collaborateurs et d´assurer un meilleur service à nos clients.»
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution
@@ -63,6 +49,13 @@ Le déploiement de FineReader s´est effectué rapidement en quelques jours afin
 ABBYY FineReader est un logiciel de reconnaissance de texte, ou OCR, qui convertit les documents numérisés, fichiers PDF et images d'appareil photo en formats modifiables et interrogeables, notamment Microsoft® Word et Excel®. Ses capacités de reconnaissance avancées délivrent un accès complet aux informations confinées au papier et aux images et éliminent virtuellement la réécriture et le reformatage, tous deux chronophages. De plus, n'importe quel document peut par exemple être archivé numériquement dans un format PDF interrogeable, ce qui lui permet d'être facilement et rapidement retrouvé par la suite.
 
 La précision d'ABBYY FineReader, sa vitesse, son prix et sa convivialité ont été des facteurs importants dans le processus de décision. Le nombre de langues de reconnaissance constituait également un facteur important. Presque toutes les agences de traduction doivent traiter des langues différentes quotidiennement. HL TRAD doit traiter des documents rédigés principalement en français, anglais, italien, néerlandais, allemand ou espagnol. Grâce à une capacité de reconnaissance jusqu´à 189 langues, aucune tâche ne résiste à ABBYY FineReader lorsqu'il s'agit de traiter des documents multilingues.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Résultat
 
@@ -87,16 +80,10 @@ Tél.: +33 (0)1 30 09 41 90
 ---
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### A propos d’ABBYY et contact
@@ -106,6 +93,13 @@ Tél.: +33 (0)1 30 09 41 90
 [Contacts ›](https://tools.techidaily.com/abbyy/products/)
 
 Partager 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Prêt à parler à un expert ?
 
@@ -126,5 +120,24 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-streamlining-video-production-with-clear-sound-effects/"><u>[New] Streamlining Video Production with Clear Sound Effects</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-basic-screen-capture-windows-10-version/"><u>[Updated] In 2024, Basic Screen Capture, Windows 10 Version</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/dailymotionmp3/"><u>一歩で完了！Dailymotion動画をMP3ファイルに簡単に変換する手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/chromefirefoxm3u8/"><u>ChromeとFirefoxでM3U8動画を簡単にダウンロード</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/efficient-conversion-techniques-turning-wmv-files-into-high-quality-wav/"><u>Efficient Conversion Techniques: Turning WMV Files Into High-Quality WAV</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-vob-files-into-common-formats-like-h264-mp4-mkv-mov-and-avi/"><u>Effortless Conversion of VOB Files Into Common Formats Like H.264 MP4, MKV, MOV & AVI</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-save-your-favorite-antenna-tv-episodes-updated-techniques/"><u>How to Save Your Favorite Antenna TV Episodes: Updated Techniques</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-apple-iphone-11-pro-max-complete-guide-by-drfone-ios/"><u>In 2024, How To Remove Passcode From Apple iPhone 11 Pro Max? Complete Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-prime-audio-selections-google-podcast-collection/"><u>In 2024, Prime Audio Selections - Google Podcast Collection</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/join-wonderfoxs-lucrative-affiliate-scheme-and-earn-profits-now/"><u>Join WonderFox's Lucrative Affiliate Scheme & Earn Profits Now!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mgs/"><u>MGSアニメーションのクリップ撮りテクニック</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-perfecting-audio-transitions-in-live-streaming-the-obs-guide-to-equalizing-sounds/"><u>New In 2024, Perfecting Audio Transitions in Live Streaming The OBS Guide to Equalizing Sounds</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-streamline-your-video-collection-best-mp4-tag-editors/"><u>New Streamline Your Video Collection Best MP4 Tag Editors</u></a></li>
+<li><a href="https://article-files.techidaily.com/reimagining-creation-in-the-crypto-world-a-guide-to-top-nft-generating-platforms/"><u>Reimagining Creation in the Crypto World - A Guide to Top NFT-Generating Platforms</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-steps-recording-teamviewer-meetings-on-windows-11/"><u>Simple Steps: Recording TeamViewer Meetings on Windows 11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/steam-gifting-made-simple-a-step-by-step-tutorial-to-send-virtual-gifts-online/"><u>Steam Gifting Made Simple: A Step-by-Step Tutorial to Send Virtual Gifts Online</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ram/"><u>모바일 장치를 위한 원격 가용성을 유지하면서 RAM 보스트 자리 바꾸기 방법</u></a></li>
+</ul></div>
 

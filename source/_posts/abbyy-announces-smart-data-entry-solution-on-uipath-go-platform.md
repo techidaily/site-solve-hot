@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Smart Data Entry Solution on UiPath GO Platform
-date: 2024-09-19T17:34:02.308Z
-updated: 2024-09-23T18:44:33.305Z
+date: 2024-09-26T07:29:48.730Z
+updated: 2024-09-28T01:24:22.160Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2ad6cf886d90c9a4679357e1.jpg
@@ -77,12 +77,31 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-into-anti-time-original-techniques-to-rewind-yt-videos/"><u>[New] 2024 Approved A Step Into Anti-Time Original Techniques to Rewind YT Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-seamless-fb-content-to-mp3-transfer-for-2024/"><u>[New] Seamless FB Content-to-MP3 Transfer for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-extensive-review-gopro-hero4-silver/"><u>[Updated] Extensive Review GoPro HERO4 Silver</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-take-flight-with-social-media-dji-drone-streaming-basics-for-2024/"><u>[Updated] Take Flight with Social Media DJI Drone Streaming Basics for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/15-best-stop-motion-films-of-all-time-for-2024/"><u>15 Best Stop Motion Films of All Time for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-your-website-traffic-with-cutting-edge-cookiebot-technology/"><u>Boost Your Website Traffic with Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comment-lintelligence-artificielle-renforce-la-motivation-des-collaborateurs-gain-dacces-a-linformation-dans-les-rapports/"><u>Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-web-personalization-solutions/"><u>Cookiebot-Driven Web Personalization Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-features-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Features: Enhancing User Experience with Smart Tracking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-marketing-automation-solutions/"><u>Cookiebot-Enabled Marketing Automation Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-solutions-optimize-your-online-experience/"><u>Cookiebot-Enabled Solutions: Optimize Your Online Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Enhancing User Experience with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-with-expertly-managed-cookies/"><u>Cookiebot-Enhanced: Boost Your Site's Performance with Expertly Managed Cookies</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-enjoy-premium-video-artwork-download-at-no-cost-today/"><u>In 2024, Enjoy Premium Video Artwork - Download at No Cost Today!</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/mastering-portable-energy-with-maxoaks-185wh-bank-a-detailed-product-assessment/"><u>Mastering Portable Energy with MaxOak's 185Wh Bank: A Detailed Product Assessment</u></a></li>
+<li><a href="https://techidaily.com/solved-photos-disappeared-from-iphone-8-plus-suddenly-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Solved Photos Disappeared from iPhone 8 Plus Suddenly | Stellar</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

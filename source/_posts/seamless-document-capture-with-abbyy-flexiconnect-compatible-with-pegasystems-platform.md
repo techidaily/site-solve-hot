@@ -1,7 +1,7 @@
 ---
 title: "Seamless Document Capture with ABBYY FlexiConnect: Compatible with Pegasystems Platform"
-date: 2024-09-21T17:04:19.699Z
-updated: 2024-09-23T16:23:29.455Z
+date: 2024-09-23T02:18:29.847Z
+updated: 2024-09-28T08:26:46.714Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4fb035ab41968a0873cebbd66.jpg
@@ -12,10 +12,10 @@ thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4f
 ## 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY | Pegasystems 
@@ -23,10 +23,10 @@ thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4f
 Enabling Pega BPM and RPA to transform documents and unstructured content automatically into actionable information for customer service and operational excellence.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY FlexiCapture Connector for Pega
@@ -124,5 +124,23 @@ Page URL
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-10-igtv-talents-ready-to-take-off/"><u>[New] 10 IGTV Talents Ready to Take Off</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-zooming-into-success-how-to-improve-your-livestream-quality-on-youtube/"><u>[New] Zooming Into Success How to Improve Your Livestream Quality on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-story-hacks-your-path-to-prominence-for-2024/"><u>[Updated] Instagram Story Hacks Your Path to Prominence for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-progressive-visual-prelude-for-2024/"><u>[Updated] Progressive Visual Prelude for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebook-video-layouts-vertical-or-horizontal/"><u>2024 Approved Facebook Video Layouts Vertical or Horizontal?</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-itel-p40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploring-abbyys-findings-the-future-landscape-of-cognitive-automation-solutions/"><u>Exploring ABBYY's Findings: The Future Landscape of Cognitive Automation Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/harnessing-the-power-of-cookiebot-elevate-seo-and-user-experience-on-your-website/"><u>Harnessing the Power of Cookiebot: Elevate SEO and User Experience on Your Website</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-process-data-optimization-fuels-improved-rpa-outcomes-perspectives-by-abbyy-team/"><u>How Process Data Optimization Fuels Improved RPA Outcomes - Perspectives by ABBYY Team</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlink-apple-id-from-iphone-xs-by-drfone-ios/"><u>How To Unlink Apple ID From iPhone XS</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/innovative-receipt-management-with-ai-technology-from-abbyy-streamlined-efficiency-for-businesses/"><u>Innovative Receipt Management with AI Technology From ABBYY - Streamlined Efficiency for Businesses</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/leveraging-cookiebot-technology-for-advanced-website-personalization-and-analytics/"><u>Leveraging Cookiebot Technology for Advanced Website Personalization & Analytics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigating-the-challenges-common-missteps-in-corporate-ai-integration-and-how-to-avoid-them/"><u>Navigating the Challenges: Common Missteps in Corporate AI Integration & How to Avoid Them</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimizing-your-bookkeeping-strategies-with-abbyys-advanced-content-intelligence-tools/"><u>Optimizing Your Bookkeeping Strategies with ABBYY's Advanced Content Intelligence Tools</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-rated-40-inch-televisions-industry-experts-weigh-in/"><u>Top Rated 40-Inch Televisions - Industry Experts Weigh In</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unleashing-productivity-ai-integration-into-docs-and-spreadsheets/"><u>Unleashing Productivity: AI Integration Into Docs & Spreadsheets</u></a></li>
+</ul></div>
 

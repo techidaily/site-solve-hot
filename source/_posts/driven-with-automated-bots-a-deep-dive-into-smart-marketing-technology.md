@@ -1,7 +1,7 @@
 ---
 title: "Driven with Automated Bots: A Deep Dive Into Smart Marketing Technology"
-date: 2024-09-17T17:17:21.589Z
-updated: 2024-09-23T17:59:17.596Z
+date: 2024-09-25T07:58:37.623Z
+updated: 2024-09-27T18:35:15.644Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b5866ca0d81d1cb562971c20.jpg
@@ -21,10 +21,10 @@ BPO/Service Providers | Document Processing
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## パーソルグループ名刺管理システムにABBYYのモバイル対応AI OCRソリューションを採用   
@@ -37,6 +37,13 @@ BPO | 文書処理
 #### お客様の概要
 
 ![パーソルホールディングス株式会社](https://static4.abbyy.com/abbyycommedia/33438/06c3-persol-ja-logo-80x80.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | 氏名     | パーソルホールディングス株式会社                  |
 | ------ | --------------------------------- |
@@ -125,38 +132,25 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ABBYY Mobile Web Capture](https://static4.abbyy.com/abbyycommedia/21986/12-mobile-capture-sdk.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Mobile Web Capture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static2.abbyy.com/abbyycommedia/33439/06d-persol-ja-cover-360x162.jpg)](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") [PDF版](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") 
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") 
@@ -188,5 +182,26 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-how-to-rank-your-facebook-page/"><u>[New] How to Rank Your Facebook Page</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-mastery-of-text-effects-best-practices-in-ae/"><u>[Updated] In 2024, Mastery of Text Effects Best Practices in AE</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-mastery-in-mac-screen-capture-format-conversion-for-2024/"><u>[Updated] Mastery in Mac Screen Capture Format Conversion for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-raise-the-bar-top-8-speed-up-video-apps-for-2024/"><u>[Updated] Raise the Bar Top 8 Speed Up Video Apps for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-interpreting-second-duration-from-mb-content/"><u>2024 Approved Interpreting Second Duration From MB Content</u></a></li>
+<li><a href="https://win-blog.techidaily.com/dealing-with-persistent-mordhau-crashes-effective-solutions-revealed/"><u>Dealing with Persistent Mordhau Crashes: Effective Solutions Revealed</u></a></li>
+<li><a href="https://win-forum.techidaily.com/erase-files-forever-without-recovery-a-step-by-step-guide-to-force-deleting-with-revo-on-modern-windows-os/"><u>Erase Files Forever Without Recovery - A Step-by-Step Guide to Force Deleting with Revo on Modern Windows OS</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/secure-methods-for-downloading-youtube-content-save-your-favorite-videos-safely/"><u>Secure Methods for Downloading YouTube Content - Save Your Favorite Videos Safely</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-combining-multiple-videos-into-one-with-google-photos-for-windowsmac-users/"><u>Step-by-Step Guide to Combining Multiple Videos Into One with Google Photos for Windows/Mac Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-downloading-tweets-as-video-files-from-any-smartphone-or-computer/"><u>Step-by-Step Guide: Downloading Tweets as Video Files From Any Smartphone or Computer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-3gp-videos-into-high-quality-mov-formats/"><u>Step-by-Step Guide: Transforming 3GP Videos Into High-Quality MOV Formats</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-how-to-listen-to-and-transform-fsb-recordings-into-mp3-files/"><u>Step-by-Step Tutorial on How to Listen to and Transform FSB Recordings Into MP3 Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-14-free-mobile-anime-viewing-apps-best-picks-for-android-and-ios-devices/"><u>Top 14 FREE Mobile Anime Viewing Apps: Best Picks for Android & iOS Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-7-screen-recording-tools-for-pcs-and-macbooks-find-the-perfect-one/"><u>Top 7 Screen Recording Tools for PCs & MacBooks - Find the Perfect One</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-avi-playback-issues-for-a-seamless-experience-on-chromebooks/"><u>Troubleshooting AVI Playback Issues for a Seamless Experience on Chromebooks</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-11-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 11</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-how-to-change-audio-speed-and-pitch-in-adobe-rush/"><u>Updated 2024 Approved How to Change Audio Speed and Pitch in Adobe Rush</u></a></li>
+<li><a href="https://techtrends.techidaily.com/wireless-connection-pairing-your-samsung-earbuds-with-your-pc/"><u>Wireless Connection: Pairing Your Samsung Earbuds with Your PC</u></a></li>
+</ul></div>
 

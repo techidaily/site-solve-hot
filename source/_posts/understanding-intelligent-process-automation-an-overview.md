@@ -1,7 +1,7 @@
 ---
 title: "Understanding Intelligent Process Automation: An Overview"
-date: 2024-09-21T17:21:57.709Z
-updated: 2024-09-23T18:01:25.458Z
+date: 2024-09-24T06:20:48.034Z
+updated: 2024-09-27T21:36:34.276Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dba9ef92930f5d20237b2a75fb5ee76b8bab75f866f82161cefcc63f630df758.jpg
@@ -16,6 +16,13 @@ thumbnail: https://thmb.techidaily.com/dba9ef92930f5d20237b2a75fb5ee76b8bab75f86
 June 03, 2022
 
 ![](https://static2.abbyy.com/abbyycommedia/35736/intelligent-processing-automation-blog-cover-848x444.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What is Intelligent Process Automation (IPA)?
 
@@ -39,13 +46,6 @@ Organizations must understand processes before they can successfully implement p
 
 ![process mining gif](https://static1.abbyy.com/abbyycommedia/35773/ipa-blog-meme-1.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After automation is in place, Process Intelligence enables continuous monitoring to flag deviations or inefficiencies as they arise, enabling businesses to address small problems before they become big ones.
 
 [Learn more about ABBYY Timeline, a cloud-based, AI-driven Process Intelligence (process and task mining) platform.](https://tools.techidaily.com/abbyy/products/)
@@ -56,16 +56,16 @@ While many traditional approaches to process automation focused on data flows, m
 
 ![what is IDP vs legacy tech](https://static1.abbyy.com/abbyycommedia/34935/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Intelligent Document Processing (IDP)](https://tools.techidaily.com/abbyy/products/) applies AI-based document processing “skills” to read and understand documents in a way that humans understand and manage content. As a result, the information contained in documents becomes immediately available and actionable, when and where it's needed, with little to no human intervention required. In addition to saving time and money, IDP reduces the risk of costly errors and frees employees to focus on more challenging work.
 
 [Learn more about ABBYY Vantage, the industry’s only low-code / no-code intelligent document processing platform.](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Intelligent Process Automation—why now?
 
@@ -81,24 +81,24 @@ There’s no question that [robotic process automation](https://tools.techidaily
 
 ![Icon with gears, paper, and a head representing how intelligent process automation encompasses the &quot;big picture&quot; of applying AI technologies to mirror human decision-making at every stage with Intelligent Process Automation. And a description of what is IPA, text repeated below.](https://static1.abbyy.com/abbyycommedia/35771/what-is-ipa-technology-lg-2.png)
 
-Intelligent Process Automation encompasses the “big picture” of business processes, applying AI technologies (e.g., Intelligent Document Processing, process mining, task mining, natural language processing, machine learning, advanced analytics) to mirror human decision-making at every stage. When and where relatively simple, rules-based decision-making is required, RPA can be an appropriate solution and may be used quite successfully. IPA capabilities allow you to [scale RPA projects](https://tools.techidaily.com/abbyy/products/) by expanding automation further.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Intelligent Process Automation encompasses the “big picture” of business processes, applying AI technologies (e.g., Intelligent Document Processing, process mining, task mining, natural language processing, machine learning, advanced analytics) to mirror human decision-making at every stage. When and where relatively simple, rules-based decision-making is required, RPA can be an appropriate solution and may be used quite successfully. IPA capabilities allow you to [scale RPA projects](https://tools.techidaily.com/abbyy/products/) by expanding automation further.
 
 ## What can Intelligent Process Automation do for businesses?
 
 By combining the capabilities of Process Intelligence and Intelligent Document Processing, Intelligent Process Automation helps businesses understand processes before, during, and after automation. It identifies deviations or inefficiencies that can waste time and resources. This means businesses can use real-world data from their own operations to identify and prioritize processes most likely to benefit from automation. They also gain insight into how documents function as the basis for skilled decision-making at every stage of the process. These insights enable the business to determine how they can manage documents to make the process work more efficiently, and then apply the document skills needed to optimize content processing.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which industries can benefit from Intelligent Process Automation?
@@ -124,10 +124,10 @@ While earlier approaches to automation required significant infrastructure inves
 4. Automate monitoring of results to enable continuous improvement.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The future of process automation is intelligent
@@ -201,5 +201,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-dynamic-visual-snapshot-providers/"><u>[New] 2024 Approved Dynamic Visual Snapshot Providers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-agriculture-adventures-the-ultimate-farmers-game-guide/"><u>[Updated] Agriculture Adventures The Ultimate Farmer's Game Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-essential-photographic-tool-dynamic-wallpaper-editor/"><u>[Updated] In 2024, Essential Photographic Tool Dynamic Wallpaper Editor</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-tasteful-tactics-elevating-culinary-channel-monikers/"><u>[Updated] In 2024, Tasteful Tactics Elevating Culinary Channel Monikers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-11-best-bridge-cameras-ultimate-review/"><u>[Updated] In 2024, Top 11 Best Bridge Cameras [Ultimate Review]</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-streamline-broadcasts-the-ultimate-guide-for-obspluszoom-for-2024/"><u>[Updated] Streamline Broadcasts The Ultimate Guide for OBS+Zoom for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-the-dark-art-of-night-photography-best-practices-revealed-for-2024/"><u>[Updated] The Dark Art of Night Photography Best Practices Revealed for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028139677-7/"><u>最新動画削減ソフトウェアリスト・日本語版上位7つ - おすすめベータサイト</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/gratis-konverter-von-h265-zu-h264-unter-windows-10-and-macos-fuhren-sie-die-freiheit-der-videoformate-ein/"><u>Gratis Konverter Von H.265 Zu H.264 Unter Windows 10 & macOS - Führen Sie Die Freiheit Der Videoformate Ein!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mtspc/"><u>MTS形式ビデオのPCエディット方法 - ステップバイステップチュートリアル</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030257633-vlc/"><u>VLCメディアプレーヤーによる動画編集: 簡単な切り取りとカット手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
+</ul></div>
 

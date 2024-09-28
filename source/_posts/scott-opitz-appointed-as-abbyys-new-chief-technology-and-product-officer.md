@@ -1,7 +1,7 @@
 ---
 title: Scott Opitz Appointed as ABBYY's New Chief Technology & Product Officer
-date: 2024-09-22T18:26:07.238Z
-updated: 2024-09-23T16:49:20.465Z
+date: 2024-09-25T20:13:55.804Z
+updated: 2024-09-28T00:48:09.890Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad3863dd1f8be14d01cc17569.jpg
@@ -34,10 +34,10 @@ Er hatte zahlreiche Führungspositionen in den Bereichen Technologie- und Gesch�
 \[1\] IDC, Worldwide Intelligent Process Automation Software Forecast, 2021–2025, Doc # US48015622, July 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -51,16 +51,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -68,10 +62,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -95,5 +89,22 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-gleeful-loginsign-up-step-guide/"><u>[New] Gleeful Login/Sign Up Step Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-brush-up-creativity-leading-mac-friendly-free-design-tools/"><u>[Updated] Brush Up Creativity Leading Mac-Friendly FREE Design Tools</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-realme-narzo-60-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Realme Narzo 60 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-bookkeeping-accuracy-using-abbeys-smart-document-recognition-solutions/"><u>Elevate Your Bookkeeping Accuracy Using ABBEY’s Smart Document Recognition Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-data-insights-using-cookiebot-driven-analytics-solutions/"><u>Elevate Your Data Insights Using Cookiebot-Driven Analytics Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-marketing-strategy-using-cutting-edge-cookiebot-solutions-for-user-tracking/"><u>Elevate Your Marketing Strategy Using Cutting-Edge Cookiebot Solutions for User Tracking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-user-experience-with-automated-conversion-tracking-the-power-of-cookiebot/"><u>Enhanced User Experience with Automated Conversion Tracking - The Power of Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-website-performance-with-cookiebot-technology/"><u>Enhanced Website Performance with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-footprints-using-cookiebot-solutions-skyrocket-your-web-visibility/"><u>Enhancing Digital Footprints Using Cookiebot Solutions: Skyrocket Your Web Visibility</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/erweiterte-texterfassungsfunktionen-in-echtzeit-von-abbyy-ein-leistungsfahigeres-kundenerlebnis-im-digitalen-raum/"><u>Erweiterte Texterfassungsfunktionen in Echtzeit Von ABBYY: Ein Leistungsfähigeres Kundenerlebnis Im Digitalen Raum</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-for-overcoming-top-11-facebook-glitches/"><u>Essential Tips for Overcoming Top 11 Facebook Glitches</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-notes-from-iphone-6s-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Notes from iPhone 6s Plus? | Stellar</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-z50-ultra-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Z50 Ultra.</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-iphone-se-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your iPhone SE</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+</ul></div>
 

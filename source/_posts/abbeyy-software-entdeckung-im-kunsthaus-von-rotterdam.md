@@ -1,7 +1,7 @@
 ---
 title: ABBEYY-Software-Entdeckung Im Kunsthaus Von Rotterdam
-date: 2024-09-19T17:44:24.922Z
-updated: 2024-09-23T16:34:57.360Z
+date: 2024-09-23T19:57:43.861Z
+updated: 2024-09-27T21:02:49.273Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553b264310d7d2980b9ce91d3e.jpg
@@ -18,6 +18,13 @@ Social Work
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/de/21638.png?h=40&iar=0&w=120)
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Enthüllt: ABBYY Software im Rotterdam Museum of Modern Art
 
@@ -36,17 +43,10 @@ Simon Heijdens ist ein weltbekannter holländischer Lichtinstallationskünstler.
 Heijdens’ neueste Arbeit mit dem Titel „Wortgeflecht” wird im Espresso Café im Rotterdam Museum of Modern Art gezeigt und war eine technologische Herausforderung. Zusätzlich zum Design von Raum und Einrichtung wollte Heijdens ein Kunstwerk schaffen, das die Besucher des Cafés mit einbezieht. Er stellte sich die Cafétische als Oberfläche für einen Dialog vor, in dem Informationen in Form von Zeitungsschlagzeilen, Prospekten oder sogar Zigarettenschachteln ausgetauscht werden. Heijdens wollte diese Informationen aufzeichnen da er glaubte, dass sie sehr viel über die einzelnen Momente im Zeitverlauf erzählen. Er wollte eine lebendige![„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art](https://static1.abbyy.com/abbyycommedia/6029/museumofmodernart.png "„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art ") Aufzeichnung der Geschichte des Cafés schaffen, in der jeder Tisch seine eigene Geschichte erzählen sollte. „Was wäre, wenn ein Tisch ein Archiv seiner eigenen Nutzung werden könnte?” fragt Heijdens. „In meiner Arbeit geht es um das Aufbrechen der statischen Natur von Architektur. Ich mache Einschnitte in einem Raum um zu zeigen, was er erlebt hat und um zuzuhören, wie er benutzt wurde. Ich wollte nicht, dass die Menschen einfach nur durch das Café gehen und es wieder verlassen, ohne ihre Spuren zu hinterlassen. Ich wollte, dass zurückbleibt was dort passierte” sagt er.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Die Herausforderung
@@ -67,6 +67,13 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 „Auch die automatische Fehlertoleranz war Teil der Lösung”, so Jupp Stoepetie weiter.  
 „Das System ist in der Lage, auf intelligente Weise Aufgaben aufzuteilen und zu erkennen, wenn diese nicht ausgeführt werden. Gibt es ein Problem, so werden diese Aufgaben einfach umverteilt, um den Engpass zu umgehen. Die Lösung toleriert Systemfehler der darunter liegenden Computersysteme und kann sich selbst korrigieren, ohne dass menschliches Eingreifen erforderlich ist.”
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Das Ergebnis
 
 „Wortgeflecht“’ wurde der Öffentlichkeit am 27\. September 2008 mit großem Erfolg vorgestellt. Mehr als 3.000 Personen wohnten der Enthüllung bei. Nach wie vor ist es eine sehr beliebte Ausstellung, die seit der Installation große Datenmengen problemlos verarbeitet hat, und das mit einem Minimum an Wartungsaufwand durch Heijdens. „Die Lösung von ABBYY macht ihre Arbeit einfach sehr gut”, sagt Heijdens.  
@@ -77,13 +84,6 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -93,16 +93,10 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 Teilen 
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -124,5 +118,20 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/updated-the-symphony-of-silence-breakers-crafting-your-own-custom-alerts-and-sounds-on-android/"><u>[Updated] The Symphony of Silence Breakers Crafting Your Own Custom Alerts & Sounds on Android</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-and-m-files-bolster-synergistic-alliance/"><u>Abbyy & M-Files Bolster Synergistic Alliance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-innovates-at-tech-summit-unveiling-the-top-7-smart-scanning-breakthroughs/"><u>ABBYY Innovates at Tech Summit: Unveiling the Top 7 Smart Scanning Breakthroughs</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-upgrades-sdk-to-offer-immediate-capture-capabilities-for-faster-data-processing/"><u>ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/authentification-des-id-avec-trustid-et-abyeocr-un-passage-au-cloud-pour-la-validation-securisee/"><u>Authentification Des ID Avec TrustID Et ABYEOCR : Un Passage Au Cloud Pour La Validation Sécurisée</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-analytics-with-our-cookiebot-integration-solutions/"><u>Boost Analytics with Our Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-tecno-camon-30-pro-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Tecno Camon 30 Pro 5G Phone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-rise-in-search-results-mastering-podcast-seo/"><u>In 2024, Rise in Search Results Mastering Podcast SEO</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-10-budget-friendly-video-alteration-journeys-explored/"><u>In 2024, Top 10 Budget-Friendly Video Alteration Journeys Explored</u></a></li>
+<li><a href="https://solve-help.techidaily.com/macdvdmp3-dvd/"><u>Mac用最速・最高品質のDVDからMP3へのダビングガイド: DVDオーディオ抽出</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mastering-voice-over-recording-for-videos-for-2024/"><u>Mastering Voice-Over Recording for Videos for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-xiaomi-mix-fold-3-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Xiaomi Mix Fold 3, is it possible?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
+</ul></div>
 

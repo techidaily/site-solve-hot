@@ -1,7 +1,7 @@
 ---
 title: AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60%% - Featured in IDC Worldwide MarketScape Ranking
-date: 2024-09-21T18:13:25.756Z
-updated: 2024-09-23T18:38:02.372Z
+date: 2024-09-23T17:59:20.160Z
+updated: 2024-09-27T21:02:29.731Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9737c06562bbb999378e5773.jpg
@@ -48,10 +48,10 @@ Bruce Orcutt, Chief Marketing Officer d'ABBYY
 Après avoir nommé récemment Bruce Orcutt au poste de CMO, ABBYY intensifie ses efforts de R&D grâce à l'intégration d'une nouvelle équipe composée d'ingénieurs expérimentés. Sous la direction de Patrick Jean, CTO/CPO d'ABBYY, l'équipe comprend Sanju Nair, VP des opérations produits et PMO, ainsi que les VP ingénierie Morgan Logue et Andy Wahrenberger.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À PROPOS D’ABBYY
@@ -59,10 +59,10 @@ Après avoir nommé récemment Bruce Orcutt au poste de CMO, ABBYY intensifie se
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -70,10 +70,16 @@ ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous c
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -98,5 +104,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-portable-stabilizer-for-clear-videographers-footage/"><u>2024 Approved Portable Stabilizer for Clear Videographer’s Footage</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-step-by-step-approach-to-boosting-your-podcasts-seo-for-2024/"><u>A Step-by-Step Approach to Boosting Your Podcast's SEO for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-4-things-you-must-know-about-apple-iphone-11-pro-max-activation-lock-by-drfone-ios/"><u>In 2024, 4 Things You Must Know About Apple iPhone 11 Pro Max Activation Lock</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-freefire-gaming-guide-maximizing-video-impact/"><u>In 2024, FreeFire Gaming Guide Maximizing Video Impact</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimizing-your-bookkeeping-strategies-with-abbyys-advanced-content-intelligence-tools/"><u>Optimizing Your Bookkeeping Strategies with ABBYY's Advanced Content Intelligence Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/pioneering-intelligence-driven-tools-to-revolutionize-your-operations/"><u>Pioneering Intelligence-Driven Tools to Revolutionize Your Operations</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/shaping-tomorrows-businesses-with-advanced-large-language-models/"><u>Shaping Tomorrow's Businesses with Advanced Large Language Models</u></a></li>
+<li><a href="https://driver-error.techidaily.com/the-best-way-to-install-new-software-on-your-hp-envy-20-series-laptop/"><u>The Best Way to Install New Software on Your HP Envy 20 Series Laptop</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-5-strategies-for-enhanced-law-firm-document-control-with-abbyy/"><u>Top 5 Strategies for Enhanced Law Firm Document Control with ABBYY</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-performance-hiccups-in-guilty-gear-strive/"><u>Troubleshooting Performance Hiccups in Guilty Gear -Strive-</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
+</ul></div>
 

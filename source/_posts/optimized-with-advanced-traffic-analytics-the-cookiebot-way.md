@@ -1,7 +1,7 @@
 ---
 title: "Optimized with Advanced Traffic Analytics: The Cookiebot Way"
-date: 2024-09-17T18:44:21.981Z
-updated: 2024-09-23T16:48:39.616Z
+date: 2024-09-25T06:44:02.046Z
+updated: 2024-09-27T23:35:12.256Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8cc2f26346852b595fe32553f266efaeb26b116a663fa0800cea00c3335313c9.png
@@ -34,6 +34,13 @@ _“I tried to be as productive as in my work office. The difference was in the 
 _“Depends, some things went better, others worse..”_  
 _“Some of each”_ 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Have you been more motivated?
 
 As for the motivation while working from home, 36.2% of our users haven’t noticed any changes in their motivation level. Nearly the same, 35.4% felt more motivated while working remotely. And 27% of respondents stated that their motivation level dropped.
@@ -48,10 +55,10 @@ A typical work day during the quarantine mostly lasted 8 – 10 hours (33.8%). O
 Compared to pre-COVID, 43.2% of respondents worked longer hours for personal reasons while staying home, and 27.3% worked shorter hours for personal reasons. Here’s what some respondents shared:
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _“Longer hours because of dissolution of work boundaries.”_  
@@ -60,28 +67,28 @@ _“I will not say I work more or less compared to when things were normal. Howe
 _“Longer hours due to feeling I must perform better under the circumstance of working from home rather than an office building.”_ 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What is your preferred workplace arrangement when you will be able to return to the office?
 
 Respondents (53%) said that going forward, they would prefer an arrangement that enables flexibility between working from home and working in the office. Many indicated they prefer either splitting their time 50/50 or working mostly from home with some days in the office.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Any advantages?
 
 Participants of the survey pointed out many advantages of remote work. The most popular were:
 
 ![](https://static1.abbyy.com/abbyycommedia/29712/productivity-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Also, some of our users shared their advantages:
 
@@ -107,17 +114,10 @@ The majority of respondents (56%) also noted that working from home has impacted
 While 40.6% of respondents preferred dispersing work and relaxation throughout the day, 24.8% experienced trouble switching from work to relaxation.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Was it more stressful?
@@ -127,10 +127,10 @@ The research showed that working remotely helped 43.8% of respondents to cut dow
 ![](https://static1.abbyy.com/abbyycommedia/29715/productivity-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What about your screen time and gadgets usage?
@@ -143,6 +143,19 @@ We also asked our users what are their favorite off-screen ways of relaxation. T
 
 ![](https://static1.abbyy.com/abbyycommedia/29717/productivity-10.jpg)  
 Digital Detox, which is a popular term today, is practiced by 21.9%, and 28.8% try to rest from their gadgets, but sometimes fail.  
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 We also wanted to learn if our users follow any blogs or podcasts on meditation, yoga, mindfulness practice, etc. Only 22.2% of survey participants do. Here are some of the named blogs and podcasts; maybe you’ll find something useful for yourself:
 
@@ -158,13 +171,6 @@ The majority of respondents (51.5%) are 40 – 59 years old. They are specialist
 Thank you everyone that participated in our survey!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -227,5 +233,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-comprehensive-summary-hero4-black-usage/"><u>[New] Comprehensive Summary Hero4 Black Usage</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mp4-reimagined-effortlessly-adding-srt/"><u>[New] MP4 Reimagined Effortlessly Adding SRT</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-newbie-to-pro-your-complete-guide-to-creator-studio-for-2024/"><u>[Updated] From Newbie to Pro Your Complete Guide to Creator Studio for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-frontiers-in-virtuality-industry-analysis/"><u>2024 Approved Frontiers in Virtuality Industry Analysis</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbeyy-software-entdeckung-im-kunsthaus-von-rotterdam/"><u>ABBEYY-Software-Entdeckung Im Kunsthaus Von Rotterdam</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-announces-smart-data-entry-solution-on-uipath-go-platform/"><u>ABBYY Announces Smart Data Entry Solution on UiPath GO Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-finereader-server50/"><u>ABBYY FineReader Serverで過去50年間の文書検索能力向上</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-treibt-carlsberg-auf-globalen-spitzenplatz-schnelle-expansion-und-marktreife/"><u>ABBYY Treibt Carlsberg Auf Globalen Spitzenplatz - Schnelle Expansion Und Marktreife</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-unlocking-the-secrets-to-perfect-zoom-recordings/"><u>In 2024, Unlocking the Secrets to Perfect Zoom Recordings</u></a></li>
+<li><a href="https://techtrends.techidaily.com/refresh-your-mornings-the-best-7-alarm-clock-apps-to-enhance-wakefulness/"><u>Refresh Your Mornings: The Best 7 Alarm Clock Apps to Enhance Wakefulness</u></a></li>
+<li><a href="https://driver-install.techidaily.com/universal-steinberg-driver-installation-manual/"><u>Universal Steinberg Driver Installation Manual</u></a></li>
+</ul></div>
 
