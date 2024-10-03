@@ -1,7 +1,7 @@
 ---
 title: "Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed"
-date: 2024-09-23T18:54:56.684Z
-updated: 2024-09-28T04:32:33.769Z
+date: 2024-09-30T02:14:51.112Z
+updated: 2024-10-03T07:14:49.559Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0ebef61d0b2c8908bbc43dc1da12abaf166bb4f6229b3a45bf569455ab91d1f.jpg
@@ -42,16 +42,10 @@ Bruce Orcutt, Chief Marketing Officer d'ABBYY
 ABBYY Vantage assure une extraction, un traitement et une classification précis et efficaces des données opérationnelles clés dans les documents, permettant un traitement direct de 95 % des documents avec une précision de 99 %. En tant que première plateforme low-code pour l'IDP, Vantage offre une interface intuitive aux développeurs et réduit ainsi leur dépendance vis-à-vis des départements informatiques. Ils peuvent notamment intégrer facilement des compétences d'IA pré-entraînées, capables de traiter des documents de tout format, structure et langue, à tout moment.
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À PROPOS D’ABBYY
@@ -75,22 +69,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-highest-quality-radio-dramatic-works/"><u>[Updated] In 2024, Highest Quality Radio Dramatic Works</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-make-a-great-educational-video-for-youtube/"><u>2024 Approved How to Make a Great Educational Video for YouTube?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/elevate-automation-capabilities-using-blue-prisms-best-in-class-process-intelligence-tools-for-optimization/"><u>Elevate Automation Capabilities Using Blue Prism's Best in Class Process Intelligence Tools for Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-technology/"><u>Enhance Web Analytics with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-next-level-text-capture-with-abbyys-ai-powered-finescanner-utilizing-cutting-edge-neural-network-solutions/"><u>Experience Next-Level Text Capture with ABBYY's AI-Powered FineScanner Utilizing Cutting-Edge Neural Network Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-predictions-for-ai-how-focused-ml-techniques-will-transform-industry-specific-business-problems-in-224/"><u>Future Predictions for AI: How Focused ML Techniques Will Transform Industry-Specific Business Problems in 2#24</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-artificial-intelligence-for-enhanced-insurance-risk-assessment/"><u>Harnessing Artificial Intelligence for Enhanced Insurance Risk Assessment</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-the-power-of-cookiebot-for-enhanced-marketing-results/"><u>Harnessing the Power of Cookiebot for Enhanced Marketing Results</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-a2plus-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi A2+ Phones with/without a PC</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-mcdonalds-employs-abbyy-ocr-tech-in-their-mobile-app-insights-from-the-official-abbyy-blog/"><u>How McDonald's Employs ABBYY OCR Tech in Their Mobile App: Insights From the Official ABBYY Blog</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-lenovo-thinkphone-phone-by-drfone-android/"><u>How to Unlock a Network Locked Lenovo ThinkPhone Phone?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-future-of-3d-color-grading-tools/"><u>In 2024, The Future of 3D Color Grading Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/integrating-abbyy-sdk-into-packaging-automation-enhancing-efficiency-in-transport-and-logistics/"><u>Integrating ABBYY SDK Into Packaging Automation: Enhancing Efficiency in Transport and Logistics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/introducing-abbyys-innovative-no-code-solution-vantage-and-exclusive-ai-tools-collection/"><u>Introducing ABBYY's Innovative No-Code Solution: Vantage Ⅱ & Exclusive AI Tools Collection</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/unleash-the-power-of-slow-mo-top-video-editing-software-revealed/"><u>Unleash the Power of Slow Mo Top Video Editing Software Revealed</u></a></li>
-<li><a href="https://windows11.techidaily.com/windows-11-user-mastery-group-and-admin-essentials-guide/"><u>Windows 11 User Mastery: Group & Admin Essentials Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-clear-up-audio-in-youtube-a-step-by-step-guide/"><u>[New] In 2024, Clear Up Audio in YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-obs-streamers-toolkit-for-captivating-sessions/"><u>[New] OBS Streamer’s Toolkit for Captivating Sessions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-capture-and-store-screen-content-free/"><u>[Updated] Capture and Store Screen Content, FREE</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-hp-chromebook-11-analysis-ideal-for-learning-productivity-and-entertainment/"><u>Comprehensive HP Chromebook 11 Analysis: Ideal for Learning, Productivity & Entertainment</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effective-strategies-for-claiming-due-payments-a-guide-for-medical-practices-and-hospital-networks/"><u>Effective Strategies for Claiming Due Payments: A Guide for Medical Practices and Hospital Networks</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-solutions/"><u>Enhance Web Analytics with the Power of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-traffic-conversion-with-cookiebot-technology/"><u>Enhanced Traffic Conversion with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-campaigns-through-innovative-analytic-tools-beyond-traditional-cookies/"><u>Enhancing Digital Campaigns Through Innovative Analytic Tools – Beyond Traditional Cookies</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-real-time-broadcast-periscope-essentials-for-2024/"><u>Mastering Real-Time Broadcast Periscope Essentials for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/snowbound-sagas-2022-olympic-milestones/"><u>Snowbound Sagas 2022 Olympic Milestones</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-video-setup-luminosity-for-2024/"><u>The Ultimate Guide to Video Setup Luminosity for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-vivo-y55s-5g-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
 </ul></div>
 

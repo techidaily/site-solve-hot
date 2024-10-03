@@ -1,7 +1,7 @@
 ---
 title: "Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses"
-date: 2024-09-21T20:52:33.580Z
-updated: 2024-09-27T20:36:44.913Z
+date: 2024-10-01T16:04:26.394Z
+updated: 2024-10-02T21:28:14.725Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b074d81c3008e2f891a827245d.jpg
@@ -105,28 +105,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-quick-steps-for-saving-your-macs-desktop/"><u>[New] Quick Steps for Saving Your Mac's Desktop</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-online-audio-accessibility-ideal-tools-for-iphone-and-youtube/"><u>[Updated] In 2024, Effortless Online Audio Accessibility Ideal Tools for iPhone & YouTube</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-streamlined-steps-to-document-chat-calls-on-whatsapp/"><u>[Updated] In 2024, Streamlined Steps to Document Chat Calls on WhatsApp</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-power-of-personal-storytelling-in-video-content/"><u>[Updated] In 2024, The Power of Personal Storytelling in Video Content</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-streamlined-steps-wearable-opens-mac-gadget/"><u>[Updated] Streamlined Steps Wearable Opens Mac Gadget</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-harness-the-power-of-picture-in-progressive-screen-with-chrome/"><u>2024 Approved Harness the Power of Picture in Progressive Screen with Chrome</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-homogeneiser-la-gestion-des-factures-dans-sap-a-laide-dabbyy-solutions-innovantes-pour-le-traitement-comptable-chez-rochling/"><u>Comment Homogénéiser La Gestion Des Factures Dans SAP À L'aide D'ABBYY : Solutions Innovantes Pour Le Traitement Comptable Chez Röchling</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-enhance-your-websites-performance/"><u>Cookiebot-Driven Solutions: Enhance Your Website's Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-analytics-unleashing-powerful-insights/"><u>Cookiebot-Enabled Analytics: Unleashing Powerful Insights</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-website-optimization-boost-your-seo-effortlessly/"><u>Cookiebot-Enabled Website Optimization: Boost Your SEO Effortlessly!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-sites-user-engagement/"><u>Cookiebot-Enabled: Enhance Your Site's User Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled: Enhancing User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-site-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Enhancing Your Site with Smart Tracking Technology</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-vivo-y77t-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Vivo Y77t</u></a></li>
-<li><a href="https://fox-that.techidaily.com/iphone-silent-mode-malfunction-a-step-by-step-guide-to-workaround-solutions/"><u>IPhone Silent Mode Malfunction: A Step-by-Step Guide to Workaround Solutions</u></a></li>
-<li><a href="https://driver-error.techidaily.com/optimize-bluetooth-drivers-make-windows-work-better/"><u>Optimize Bluetooth Drivers, Make Windows Work Better!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/trategies-to-arrange-content-in-youtube-media-for-2024/"><u>[New] Strategies to Arrange Content in YouTube Media for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unraveling-image-mysteries-the-triple-tactic-fb-backward-search-for-2024/"><u>[New] Unraveling Image Mysteries The Triple-Tactic FB Backward Search for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-boosting-your-youtube-shorts-profits-key-requirements-and-earning-potential/"><u>[Updated] Boosting Your Youtube Shorts Profits Key Requirements & Earning Potential</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-gopro-hero4-vs-gopro-hero5-showdown/"><u>2024 Approved GoPro Hero4 vs GoPro Hero5 Showdown</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-seamlessly-embedding-youtube-subtitles-an-easy-to-follow-guide/"><u>2024 Approved Seamlessly Embedding YouTube Subtitles An Easy-to-Follow Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbruch-einfluss-von-abnutzbaren-tools-auf-die-automation-der-forderungsabwicklung-und-integration-in-sap/"><u>Abbruch: Einfluss Von ABNutzbaren Tools Auf Die Automation Der Forderungsabwicklung Und Integration in SAP</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-enhances-sales-organization-with-new-leadership-joe-rayfield-named-vp/"><u>ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ai-innovation-fuels-abbyys-financial-triumph-annual-revenue-soars-by-60-featured-in-idc-worldwide-marketscape-ranking/"><u>AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60% - Featured in IDC Worldwide MarketScape Ranking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automated-consent-management-with-cookiebot-enhancing-data-privacy-compliance/"><u>Automated Consent Management with Cookiebot: Enhancing Data Privacy Compliance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automatisation-des-factures-chez-pepsico-grace-a-loutil-de-reconnaissance-optique-numerique-dabbyy-flexicapture/"><u>Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-vivo-y36-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after Vivo Y36 has been deleted</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/tout-sur-lintegration-de-la-gestion-numerisation-et-traitement-automatisee-de-documents-methodologie-en-5-etapes-par-abbyy/"><u>Tout Sur L'Intégration De La Gestion Numérisation Et Traitement Automatisée De Documents - Méthodologie en 5 Étapes Par ABBYY</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unmute-your-adventures-addressing-and-fixing-no-audio-in-hearthstone/"><u>Unmute Your Adventures: Addressing and Fixing No Audio in Hearthstone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

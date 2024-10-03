@@ -1,7 +1,7 @@
 ---
 title: "Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders"
-date: 2024-09-21T16:48:35.195Z
-updated: 2024-09-27T20:36:48.985Z
+date: 2024-10-02T08:08:41.663Z
+updated: 2024-10-03T01:25:23.858Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07877b725aebcc26ce626860ff1aa31b598ca62f4a725eae923eeb25fe929021.jpg
@@ -29,14 +29,14 @@ Financial institutions are under pressure to deliver a seamless [KYC compliance 
 
 ![woman in yellow sweater with credit card and tablet](https://static1.abbyy.com/abbyycommedia/31751/contactless-business.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Onboarding](https://tools.techidaily.com/abbyy/products/) can often be the gateway to money laundering and other fraud because customer-facing workers are conducting transactions with people they’ve never seen and with documents they never physically handled, all while working from their computers at home. There may be gaps in the process that can create vulnerabilities for attacks because it involves many human touches. Also, fraudsters go through pains to ensure they know transaction limits and thresholds so that they can stay under the radar.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Know Your Customer (KYC) and tech strategy need to evolve
 
@@ -45,19 +45,19 @@ Chief information security officers (CISOs) and risk and compliance officers nee
 ![kyc compliance for customer onboarding](https://static1.abbyy.com/abbyycommedia/31778/10_gettyimages-669887462.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Another area that can cause a great deal of friction is manual document review. Not only is it cumbersome and error-prone, it is expensive, with some estimates saying each document can cost as much as $1.25 to handle. And document scans are no obstacle for fraudsters, as there is an abundance of photoshopping services that easily create a document scan, and even offer to combine them with a real selfie picture.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Respond with intelligent process automation
@@ -65,6 +65,13 @@ Another area that can cause a great deal of friction is manual document review. 
 To address the challenge of complying with anti-money Laundering (AML) regulations, maintaining [KYC compliance](https://tools.techidaily.com/abbyy/products/), and thwart the evolving threat from fraudsters, financial institutions need a multi-front battle plan that addresses people, processes, and documents. First, you must have a means of scrutinizing documents to detect the signs of attempted fraud. Second, you need visibility into processes that enables continuous monitoring for irregularities that could indicate fraudulent behaviors. Third, you need insight into the ways that people are interacting with the processes and the documents that could indicate suspicious behavior. This approach will arm financial institutions with the insights needed to protect their institutions both from fraud and from regulation violations.
 
 ![financial institution working professionals](https://static1.abbyy.com/abbyycommedia/31781/2_gettyimages-498323251.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Intelligent automation is a new approach to KYC/AML, using the latest [Intelligent Document Processin�g](https://tools.techidaily.com/abbyy/products/) technologies to deliver key capabilities that provide banks with the tools they need:
 
@@ -79,13 +86,6 @@ When applied to fraud prevention, Digital Intelligence offers financial institut
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) 
 
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Cheryl Chiodi
 
@@ -152,17 +152,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-unlock-your-movies-at-no-cost-on-various-oses/"><u>[New] Unlock Your Movies at No Cost on Various OSes</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-cutting-and-compositing-for-youtube-videos-using-premiere-pro/"><u>[Updated] 2024 Approved Cutting and Compositing for YouTube Videos Using Premiere Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724313529513-nsdabbyy/"><u>市場のリーダー、株式会社NSD及びABBYY 日本合同銀行が認定パートナー契約を成立:関係者コメントと展望</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbeyy-software-entdeckung-im-kunsthaus-von-rotterdam/"><u>ABBEYY-Software-Entdeckung Im Kunsthaus Von Rotterdam</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-announces-smart-data-entry-solution-on-uipath-go-platform/"><u>ABBYY Announces Smart Data Entry Solution on UiPath GO Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-finereader-server50/"><u>ABBYY FineReader Serverで過去50年間の文書検索能力向上</u></a></li>
-<li><a href="https://games-able.techidaily.com/affordable-luxury-for-your-virtual-journey/"><u>Affordable Luxury for Your Virtual Journey</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/cast-to-device-not-working-on-windows-10-solved/"><u>Cast to Device Not Working on Windows 10 [Solved]</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-oppo-a59-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Oppo A59 5G Phone?</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-the-details-below-can-help-you-make-color-correction-simply-in-final-cut-pro/"><u>New 2024 Approved The Details Below Can Help You Make Color Correction Simply in Final Cut Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unlocking-advanced-data-insights-with-our-cookiebot-technology-platform/"><u>Unlocking Advanced Data Insights with Our Cookiebot Technology Platform</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-the-ultimate-list-of-free-animation-software-for-windows-and-macos/"><u>Updated The Ultimate List of Free Animation Software for Windows and macOS</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-prime-jocular-photo-artist/"><u>[New] 2024 Approved Prime Jocular Photo Artist</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-beginners-guide-to-video-making-mastering-10-straightforward-youtube-concepts/"><u>[Updated] 2024 Approved Beginner's Guide to Video Making Mastering 10 Straightforward YouTube Concepts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-gonetflixgo-master-screenrecording-on-mac-with-ease-and-excellence/"><u>[Updated] 2024 Approved GoNetflixGo Master ScreenRecording on Mac, With Ease & Excellence</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-gopro-max-360-vs-hero-11-which-is-the-best-gopro-video-camera-in-2024/"><u>[Updated] GoPro Max 360 VS Hero 11 Which Is the Best GoPro Video Camera, In 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-cinematographers-blueprint-for-simple-water-vids/"><u>[Updated] The Cinematographer's Blueprint for Simple Water Vids</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-high-ranking-mac-tools-to-replace-standard-bandicam/"><u>2024 Approved High-Ranking Mac Tools to Replace Standard Bandicam</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cross-device-app-development-with-abbyy-ocr-streamlining-ux-testing-and-robotics-qa/"><u>Cross-Device App Development with ABBYY OCR: Streamlining UX Testing & Robotics QA</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/customized-user-experience-with-automated-tracking-inspired-by-cookiebot/"><u>Customized User Experience with Automated Tracking: Inspired by Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/driven-by-advanced-data-gathering-technology-from-cookiebot/"><u>Driven by Advanced Data-Gathering Technology From Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effective-strategies-for-claiming-due-payments-a-guide-for-medical-practices-and-hospital-networks/"><u>Effective Strategies for Claiming Due Payments: A Guide for Medical Practices and Hospital Networks</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-solutions/"><u>Enhance Web Analytics with the Power of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-traffic-conversion-with-cookiebot-technology/"><u>Enhanced Traffic Conversion with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-campaigns-through-innovative-analytic-tools-beyond-traditional-cookies/"><u>Enhancing Digital Campaigns Through Innovative Analytic Tools – Beyond Traditional Cookies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-online-engagement-with-cookiebot-technology-solutions/"><u>Enhancing Online Engagement with Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-honor-magic-v2-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Honor Magic V2 Is Unlocked</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/in-depth-analysis-and-interview-decoding-process-intelligence-through-the-lens-of-the-automation-fabric-a-conversation-with-forrester-experts/"><u>In-Depth Analysis & Interview: Decoding Process Intelligence Through The Lens of the Automation Fabric - A Conversation With Forrester Experts</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-moto-g-stylus-5g-2023-won-t-play-mp4-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Motorola Moto G Stylus 5G (2023) won’t play MP4 files</u></a></li>
+<li><a href="https://win-blog.techidaily.com/movavis-free-web-based-tool-transform-mef-images-into-jpeg-format-instantly/"><u>Movavi's Free Web-Based Tool: Transform MEF Images Into JPEG Format Instantly</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/revolutionary-skullcandy-smokin-buds-xt-headphones-unmatched-loudness-at-a-bargain/"><u>Revolutionary Skullcandy Smokin' Buds XT Headphones: Unmatched Loudness at a Bargain</u></a></li>
 </ul></div>
 

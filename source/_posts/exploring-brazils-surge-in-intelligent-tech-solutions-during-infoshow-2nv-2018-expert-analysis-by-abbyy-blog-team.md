@@ -1,7 +1,7 @@
 ---
 title: Exploring Brazil's Surge in Intelligent Tech Solutions During InfoShow 2Nv 2018 | Expert Analysis by ABBYY Blog Team
-date: 2024-09-22T19:22:05.950Z
-updated: 2024-09-28T03:39:41.770Z
+date: 2024-10-02T10:10:53.104Z
+updated: 2024-10-03T10:46:41.965Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545b8fd2ecff1c5ec11c0e45ff.png
@@ -28,10 +28,10 @@ Business-critical information accumulates as technology advances, putting pressu
 For ABBYY, Brazil is a top priority market, despite its instability and complexity, presenting a favorable environment for IT business. Brazil was the world's 7th largest IT market before the 2016 the economic crisis resulted in the decrease of the GDP by 3.6% with reductions across all sectors of the economy including IT. The good news though is that IT sector is expected to post growth of 5.8% this year, according to estimates released by IDC Brazil. This is already a visible evidence that some of the companies which abandoned their IT projects in the wake of the crisis are trickling back. The Government is also encouraging foreign participation in Brazilian ICT companies through the Association for Promotion of the Excellence of the Brazilian Software (Softex) and the Brazilian Agency of Promotion of exports and investments (Apex-Brazil).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Taking responsibility for social progress
@@ -45,10 +45,10 @@ This is not ABBYY's first foray into the Brazilian market. Earlier, the company 
 [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Events](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -114,20 +114,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/updated-the-fundamentals-of-captivating-video-scripts/"><u>[Updated] The Fundamentals of Captivating Video Scripts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-5-helmet-action-cameras-for-motorcycle/"><u>[Updated] Top 5 Helmet Action Cameras For Motorcycle</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-vivo-s17-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Vivo S17</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/apple-iphone-14-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Apple iPhone 14 Plus iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-insights-for-website-optimization/"><u>Cookiebot-Driven Insights for Website Optimization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-stories-unleashing-marketing-potential-through-advanced-analytics/"><u>Cookiebot-Driven Success Stories: Unleashing Marketing Potential Through Advanced Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-elevate-your-website-engagement-and-rankings/"><u>Cookiebot-Driven Success: Elevate Your Website Engagement and Rankings</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-website-optimization-unlocking-success/"><u>Cookiebot-Driven Website Optimization: Unlocking Success</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cross-device-app-development-with-abbyy-ocr-streamlining-ux-testing-and-robotics-qa/"><u>Cross-Device App Development with ABBYY OCR: Streamlining UX Testing & Robotics QA</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-user-experience-with-automated-tracking-inspired-by-cookiebot/"><u>Customized User Experience with Automated Tracking: Inspired by Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/driven-by-advanced-data-gathering-technology-from-cookiebot/"><u>Driven by Advanced Data-Gathering Technology From Cookiebot</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-realme-c51-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Realme C51 to Protect Your Individual Information</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/implementing-dynamic-filters-transform-your-videos-digitally-for-2024/"><u>Implementing Dynamic Filters Transform Your Videos Digitally for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-itel-a60s-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Itel A60s with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-resolving-issues-with-corsair-icue-on-windows-11/"><u>Troubleshooting Tips: Resolving Issues with Corsair iCUE on Windows 11</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-reverse-rotation-riddle-on-social-media-platforms/"><u>[New] The Reverse Rotation Riddle on Social Media Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-viral-video-evolution-youtubes-favorites/"><u>[New] Viral Video Evolution YouTube's Favorites</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/clova-ocr/"><u>「CLOVA OCRとフレックスキャプチャーを組み合わせた日本語手書き読み取り」</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/best-chatgpt-suggestions-to-overcome-digital-disruption-a-list-of-top-8-queries/"><u>Best ChatGPT Suggestions To Overcome Digital Disruption: A List of Top 8 Queries</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-traffic-and-engagement-with-cookiebot-integration-the-ultimate-seo-solution/"><u>Boost Traffic and Engagement with Cookiebot Integration: The Ultimate SEO Solution</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/building-lasting-relationships-with-saas-users-5-key-techniques/"><u>Building Lasting Relationships with SaaS Users: 5 Key Techniques</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/chromatic-shift-strategies-for-skilled-alteration-for-2024/"><u>Chromatic Shift Strategies for Skilled Alteration for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comment-homogeneiser-la-gestion-des-factures-dans-sap-a-laide-dabbyy-solutions-innovantes-pour-le-traitement-comptable-chez-rochling/"><u>Comment Homogénéiser La Gestion Des Factures Dans SAP À L'aide D'ABBYY : Solutions Innovantes Pour Le Traitement Comptable Chez Röchling</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-enhance-your-websites-performance/"><u>Cookiebot-Driven Solutions: Enhance Your Website's Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-data-center-with-the-best-servers-racks-and-enclosures-available/"><u>Elevate Your Data Center with the Best Servers Racks and Enclosures Available</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-investing-in-a-mesh-wi-fi-network-system-beneficial-for-home-or-business-use/"><u>Is Investing in a Mesh Wi-Fi Network System Beneficial for Home or Business Use?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723208938495-revive-your-bluetooth-functionality-on-windows-10-fast-and-straightforward-fixes-inside/"><u>Revive Your Bluetooth Functionality on Windows 10: Fast and Straightforward Fixes Inside.</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-beginners-guide-to-iphone-image-assembling/"><u>The Beginner's Guide to iPhone Image Assembling</u></a></li>
 </ul></div>
 

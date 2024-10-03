@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Smart Data Entry Solution on UiPath GO Platform
-date: 2024-09-26T07:29:48.730Z
-updated: 2024-09-28T01:24:22.160Z
+date: 2024-10-02T00:18:05.318Z
+updated: 2024-10-02T21:22:05.291Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2ad6cf886d90c9a4679357e1.jpg
@@ -79,29 +79,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-into-anti-time-original-techniques-to-rewind-yt-videos/"><u>[New] 2024 Approved A Step Into Anti-Time Original Techniques to Rewind YT Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-seamless-fb-content-to-mp3-transfer-for-2024/"><u>[New] Seamless FB Content-to-MP3 Transfer for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-extensive-review-gopro-hero4-silver/"><u>[Updated] Extensive Review GoPro HERO4 Silver</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-take-flight-with-social-media-dji-drone-streaming-basics-for-2024/"><u>[Updated] Take Flight with Social Media DJI Drone Streaming Basics for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/15-best-stop-motion-films-of-all-time-for-2024/"><u>15 Best Stop Motion Films of All Time for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-website-traffic-with-cutting-edge-cookiebot-technology/"><u>Boost Your Website Traffic with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-lintelligence-artificielle-renforce-la-motivation-des-collaborateurs-gain-dacces-a-linformation-dans-les-rapports/"><u>Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-web-personalization-solutions/"><u>Cookiebot-Driven Web Personalization Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-features-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Features: Enhancing User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-marketing-automation-solutions/"><u>Cookiebot-Enabled Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-solutions-optimize-your-online-experience/"><u>Cookiebot-Enabled Solutions: Optimize Your Online Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Enhancing User Experience with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-with-expertly-managed-cookies/"><u>Cookiebot-Enhanced: Boost Your Site's Performance with Expertly Managed Cookies</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-enjoy-premium-video-artwork-download-at-no-cost-today/"><u>In 2024, Enjoy Premium Video Artwork - Download at No Cost Today!</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/mastering-portable-energy-with-maxoaks-185wh-bank-a-detailed-product-assessment/"><u>Mastering Portable Energy with MaxOak's 185Wh Bank: A Detailed Product Assessment</u></a></li>
-<li><a href="https://techidaily.com/solved-photos-disappeared-from-iphone-8-plus-suddenly-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Solved Photos Disappeared from iPhone 8 Plus Suddenly | Stellar</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-new-year-new-filmmaking-action-cam-buyers-guide-23/"><u>[New] 2024 Approved New Year, New Filmmaking Action Cam Buyers Guide '23</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-ultimate-gear-guide-for-streaming-sensations/"><u>[New] 2024 Approved Ultimate Gear Guide for Streaming Sensations</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-prospective-leaders-in-titling-the-top-5-online-masters-revealed/"><u>[New] In 2024, Prospective Leaders in Titling The Top 5 Online Masters Revealed</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-navigating-the-ebb-and-flow-of-daily-social-media-use/"><u>[New] Navigating the Ebb and Flow of Daily Social Media Use</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-overcoming-challenges-in-ppt-screen-capture/"><u>[Updated] In 2024, Overcoming Challenges in PPT Screen Capture</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-traffic-with-cookiebot-advanced-marketing-automation-solutions/"><u>Boost Traffic with Cookiebot: Advanced Marketing Automation Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-your-conversions-with-our-cookiebot-technology/"><u>Boost Your Conversions with Our Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/celebrating-smart-automation-abbyys-proclamation-of-september-as-the-official-month/"><u>Celebrating Smart Automation: ABBYY's Proclamation of September as the Official Month</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-automation-and-personalization-for-enhanced-user-engagement/"><u>Cookiebot-Driven Automation and Personalization for Enhanced User Engagement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/launch-of-nickwatch-unveiled-amidst-the-fun-filled-kids-choice-celebration/"><u>Launch of NickWatch Unveiled Amidst the Fun-Filled Kid’s Choice Celebration</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pioneering-simple-sound-shifts-in-pubg-for-2024/"><u>Pioneering Simple Sound Shifts in PUBG for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/reviving-retro-tech-how-to-upgrade-your-agp-slot-with-modern-graphics-cards-and-boosted-connectivity-featuring-two-essential-adaptors/"><u>Reviving Retro Tech: How to Upgrade Your AGP Slot with Modern Graphics Cards and Boosted Connectivity - Featuring Two Essential Adaptors</u></a></li>
+<li><a href="https://blog-min.techidaily.com/windows-10-cortanaspartanhololens-windows-1n-10/"><u>Windows 10紹介: Cortana/Spartan/HoloLensを使ったユニークな体験 - Windows 1N 10無料ダウンロード・アップグレード手順完全解説</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
