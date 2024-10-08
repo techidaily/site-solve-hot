@@ -1,7 +1,7 @@
 ---
 title: "Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen"
-date: 2024-09-30T11:29:01.607Z
-updated: 2024-10-03T10:59:54.046Z
+date: 2024-10-01T18:59:08.864Z
+updated: 2024-10-08T16:38:44.906Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e808122dfec490930e9df565.jpg
@@ -20,10 +20,10 @@ Im Bankwesen sind die jährlichen Kosten für Cyberangriffe unter allen Branchen
 Um ihre Produktivität zu erhöhen, setzen Finanzinstitute mehr und mehr auf Automatisierung, mobile Technologien und kontaktlose Interaktionen. Diese Maßnahmen können aber neue Schwachstellen schaffen, die sich Cyberkriminelle zunutze machen. Was können Finanzinstitute gegen die ständigen Angriffe unternehmen?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
@@ -37,10 +37,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 * verdächtige Verhaltensmuster in Prozessen zu entdecken
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -50,10 +50,16 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -125,24 +131,19 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-11-step-by-step-pathways-to-perfect-grading/"><u>[New] 11 Step by Step Pathways to Perfect Grading</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-free-mcb-theme-images-templates-and-more/"><u>[New] In 2024, Free MCB Theme Images, Templates & More</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-high-quality-audio-collections-a-youtube-creators-guidebook/"><u>[New] In 2024, High-Quality Audio Collections A YouTube Creator's Guidebook</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-ultimate-streamers-guide-to-best-free-options-across-every-system/"><u>[Updated] Ultimate Streamer's Guide to Best Free Options Across Every System</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-tecno-pova-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Tecno Pova 5 | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-lance-5-amelioration-avec-la-fonctionnalite-integree-de-mining-des-taches/"><u>ABBYY Lance 5 : Amélioration Avec La Fonctionnalité Intégrée De Mining Des Tâches</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-marketing-optimization-the-role-of-advanced-tracking-technologies-like-cookiebot/"><u>Automated Marketing Optimization: The Role of Advanced Tracking Technologies Like Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-your-digital-presence-with-cookiebot-technology/"><u>Boosting Your Digital Presence with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-boost-your-sites-traffic-efficiently/"><u>Cookiebot-Driven Success: Boost Your Site's Traffic Efficiently</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-websites-engagement-with-advanced-analytics/"><u>Cookiebot-Enabled Site: Enhance Your Website's Engagement with Advanced Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-secret-ingredient-for-supercharging-your-site-performance/"><u>Cookiebot: The Secret Ingredient for Supercharging Your Site Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/crafting-impactful-digital-content-strategies-for-page-excellence/"><u>Crafting Impactful Digital Content: Strategies for Page Excellence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discover-the-scope-of-abbyys-technological-impact-annual-ocr-conversion-statistics-for-2017/"><u>Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/gaming-melodies-legal-downloadable-links/"><u>Gaming Melodies Legal, Downloadable Links</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1726027968176-gifwindows-11/"><u>GIFをWindows 11で手軽に作ってみよう:ステップバイステップガイド</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-meizu-21-phone-without-google-account-by-drfone-android/"><u>How to Unlock Meizu 21 Phone without Google Account?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/loophole-busted-no-more-unjust-refunds/"><u>Loophole Busted: No More Unjust Refunds</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-5-strategies-for-enhanced-law-firm-document-control-with-abbyy/"><u>Top 5 Strategies for Enhanced Law Firm Document Control with ABBYY</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-find-muted-conversations-on-snapchat-for-2024/"><u>[Updated] How to Find Muted Conversations on Snapchat for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-ultimate-guide-to-environmentally-safe-tech/"><u>[Updated] Ultimate Guide to Environmentally Safe Tech</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-a-guide-to-conveniently-documenting-your-gaming-victories/"><u>2024 Approved A Guide to Conveniently Documenting Your Gaming Victories</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/download-free-ultimate-online-flv-and-swf-converter-tool/"><u>Download Free - Ultimate Online Flv & Swf Converter Tool</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/easy-steps-to-open-and-play-dat-files-on-any-pc/"><u>Easy Steps to Open and Play DAT Files on Any PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-mp4-videos-to-flash-compatible-swf-format-anytime-anywhere/"><u>Effortless Conversion of MP4 Videos to Flash-Compatible SWF Format Anytime, Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-technique-for-extracting-dvd-chapters-with-exclusive-subtitles-only/"><u>Effortless Technique for Extracting DVD Chapters with Exclusive Subtitles Only</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-video-editing-efficiency-with-professional-prores-file-conversion-from-mts-source/"><u>Enhance Video Editing Efficiency with Professional ProRes File Conversion From MTS Source</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/five-proven-fixes-for-when-your-onedrive-videos-wont-start-step-by-step-instructions/"><u>Five Proven Fixes for When Your OneDrive Videos Won't Start: Step-by-Step Instructions</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-zte-nubia-z60-ultra-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change ZTE Nubia Z60 Ultra Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-live-webcam-broadcast-the-power-of-vlc-technology/"><u>In 2024, Live Webcam Broadcast The Power of VLC Technology</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/inside-toms-digital-workshop-a-closer-look-at-cutting-edge-hardware/"><u>Inside Tom's Digital Workshop: A Closer Look at Cutting-Edge Hardware</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/non-amazon-ecosystem-streamers-for-home-theater/"><u>Non-Amazon Ecosystem Streamers for Home Theater</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolved-fixing-the-complete-darkness-on-your-discord-during-screen-share-sessions/"><u>Resolved: Fixing the Complete Darkness on Your Discord During Screen Share Sessions</u></a></li>
 </ul></div>
 

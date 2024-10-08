@@ -1,7 +1,7 @@
 ---
 title: "Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports"
-date: 2024-09-26T05:26:59.404Z
-updated: 2024-10-02T22:41:35.256Z
+date: 2024-10-05T17:06:53.896Z
+updated: 2024-10-08T16:31:36.185Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be090a3ce22bfc91cc23bb5f7.jpg
@@ -48,10 +48,10 @@ Pour en apprendre davantage sur l’approche No/Low code d’ABBYY ainsi que sur
 Cette étude a été menée par ABBYY en collaboration avec Sapio Research en septembre-octobre 2021 auprès de 5 025 employés répartis en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon et travaillant au sein d'entreprises comptant plus de 500 employés. L’étude porte sur les défis rencontrés par les travailleurs en matière d'extraction de données ainsi que sur l’impact de l'avènement de l'automatisation.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -59,10 +59,10 @@ Cette étude a été menée par ABBYY en collaboration avec Sapio Research en se
 ABBYY permet aux entreprises d’appréhender de manière précise leurs process et contenus via sa plateforme d'[intelligence digitale](https://tools.techidaily.com/abbyy/products/). Les technologies d'ABBYY équipent plus de 5 000 entreprises, dont un grand nombre figurent dans le classement Fortune 500\. L’entreprise est reconnue pour ses solutions de pointe dans les domaines du [Content Intelligence](https://tools.techidaily.com/abbyy/products/) et du [Process Intelligence](https://tools.techidaily.com/abbyy/products/) qui ont pour vocation d’améliorer l'efficacité, la rentabilité et la compétitivité des entreprises ainsi que l’expérience client. ABBYY possède des bureaux dans 14 pays. Pour davantage d'informations, veuillez consulter le site <https://www.abbyy.com/fr/>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse :
@@ -70,10 +70,10 @@ ABBYY permet aux entreprises d’appréhender de manière précise leurs process
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -99,21 +99,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-innovations-and-hacks-every-content-creator-should-know-about-reels/"><u>[New] 2024 Approved Innovations and Hacks Every Content Creator Should Know About Reels</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehensive-guide-to-setting-up-and-using-passkeys-on-windows-11-devices/"><u>Comprehensive Guide to Setting Up and Using Passkeys on Windows 11 Devices</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gimp-ultimate-editing-course-review-for-2024/"><u>GIMP Ultimate Editing Course Review for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-delete-icloud-account-with-or-without-password-from-your-iphone-8windowsmac-by-drfone-ios/"><u>How to Delete iCloud Account with or without Password from your iPhone 8/Windows/Mac</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-nokia-130-music-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Nokia 130 Music</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Poco C50? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/leading-streaming-tools-for-online-video-games/"><u>Leading Streaming Tools for Online Video Games</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/speedy-methods-for-embedding-text-overlays-in-movies/"><u>Speedy Methods for Embedding Text Overlays in Movies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/speedy-solutions-for-converting-your-mkv-videos-to-compatible-avi-version/"><u>Speedy Solutions for Converting Your MKV Videos to Compatible AVI Version</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-creating-a-gif-from-your-favorite-youtube-video/"><u>Step-by-Step Guide: Creating a GIF From Your Favorite YouTube Video</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/tech-rivalry-unveiled-apples-ongon-dispute-with-adobe-over-flash-support/"><u>Tech Rivalry Unveiled: Apple's Ongon Dispute with Adobe over Flash Support</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-rated-avi-to-dvd-transcoder-for-windows-11-users-in-2e24/"><u>Top Rated AVI to DVD Transcoder for Windows 11 Users in 2E24</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-two-strategies-for-successful-amv-downloads/"><u>Top Two Strategies for Successful AMV Downloads</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-reinstate-fb-watch-video-tile/"><u>[New] In 2024, Reinstate FB Watch Video Tile</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-refining-shots-with-gopros-advanced-color-tools/"><u>[New] Refining Shots with GoPro's Advanced Color Tools</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-grandest-gatherings-a-chronicle-of-the-most-voted-posts-top-10-for-2024/"><u>[New] The Grandest Gatherings A Chronicle of the Most Voted Posts (Top 10) for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-skyline-artistry-review-studio-25-in-focus-2023/"><u>2024 Approved Skyline Artistry Review Studio 25 in Focus, 2023</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/total-inspection-samsungs-360-panorama-taker/"><u>Total Inspection Samsung’s 360° Panorama Taker</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
 </ul></div>
 

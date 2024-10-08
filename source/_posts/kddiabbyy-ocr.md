@@ -1,7 +1,7 @@
 ---
 title: "KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース"
-date: 2024-09-30T22:27:40.048Z
-updated: 2024-10-03T05:19:18.107Z
+date: 2024-10-05T17:05:37.706Z
+updated: 2024-10-08T16:29:29.963Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/00e1438c22966a36d893eecd9042143ec66d342044498e4db45f5bcf754631a6.jpg
@@ -64,29 +64,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-prime-mobile-camera-apps-iphone-and-android-comparison/"><u>[Updated] 2024 Approved Prime Mobile Camera Apps IPhone & Android Comparison</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-premier-annual-update-best-free-livestream-software-and-apps-review-for-2024/"><u>[Updated] Premier Annual Update Best Free Livestream Software & Apps Review for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-audience-captivation-through-crossfade-mastery-in-audacity/"><u>2024 Approved Audience Captivation Through Crossfade Mastery in Audacity</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbruch-einfluss-von-abnutzbaren-tools-auf-die-automation-der-forderungsabwicklung-und-integration-in-sap/"><u>Abbruch: Einfluss Von ABNutzbaren Tools Auf Die Automation Der Forderungsabwicklung Und Integration in SAP</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-enhances-sales-organization-with-new-leadership-joe-rayfield-named-vp/"><u>ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ai-innovation-fuels-abbyys-financial-triumph-annual-revenue-soars-by-60-featured-in-idc-worldwide-marketscape-ranking/"><u>AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60% - Featured in IDC Worldwide MarketScape Ranking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-consent-management-with-cookiebot-enhancing-data-privacy-compliance/"><u>Automated Consent Management with Cookiebot: Enhancing Data Privacy Compliance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automatisation-des-factures-chez-pepsico-grace-a-loutil-de-reconnaissance-optique-numerique-dabbyy-flexicapture/"><u>Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-oppo-reno-10-proplus-5g-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Oppo Reno 10 Pro+ 5G to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-altering-facebooks-birthdate/"><u>Mastering the Art of Altering Facebook's Birthdate</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimize-with-cookiebot-a-leap-forward-in-personalized-marketing/"><u>Optimize With Cookiebot: A Leap Forward in Personalized Marketing</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/revamp-your-audio-quick-and-hassle-free-nahimic-driver-installation-guide/"><u>Revamp Your Audio – Quick and Hassle-Free Nahimic Driver Installation Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reviving-a-stuck-recycle-bin-on-microsofts-latest-os/"><u>Reviving a Stuck Recycle Bin on Microsoft's Latest OS</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-web-presence-using-cutting-edge-cookiebot-technology/"><u>Revolutionize Your Web Presence Using Cutting-Edge CookieBot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/tout-sur-lintegration-de-la-gestion-numerisation-et-traitement-automatisee-de-documents-methodologie-en-5-etapes-par-abbyy/"><u>Tout Sur L'Intégration De La Gestion Numérisation Et Traitement Automatisée De Documents - Méthodologie en 5 Étapes Par ABBYY</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-assembling-channel-summaries-that-attract-for-2024/"><u>[New] Assembling Channel Summaries That Attract for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-integrate-spotify-and-youtube-top-5-playlist-to-channel-converters-available/"><u>[Updated] 2024 Approved Integrate Spotify and YouTube Top 5 Playlist-to-Channel Converters Available</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-refining-zoom-image-precision-proactive-measures/"><u>[Updated] In 2024, Refining Zoom Image Precision Proactive Measures</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/carlsberg-beschleunigung-zur-weltweiten-bierbraukronung-durch-abbyy/"><u>Carlsberg: Beschleunigung Zur Weltweiten Bierbraukrönung Durch ABBYY</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comprehensive-guide-on-eula-notification-policies/"><u>Comprehensive Guide on EULA Notification Policies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-customization-enhancing-user-experience/"><u>Cookiebot-Driven Customization: Enhancing User Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-personalization-enhance-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhance Your Website's User Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-boost-your-sites-potential/"><u>Cookiebot-Enhanced User Experience: Boost Your Site's Potential</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-smart-seo-tools/"><u>Cookiebot-Enhanced User Experience: Smart SEO Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Tracking Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-the-key-ingredient-in-your-seo-recipe/"><u>Cookiebot: The Key Ingredient in Your SEO Recipe</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/discovering-hidden-gems-in-vlc-player-functions/"><u>Discovering Hidden Gems in VLC Player Functions</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-honor-90-gt-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Honor 90 GT Devices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>How to share/fake gps on Uber for Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Vivo Y200? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-realme-v30-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Realme V30</u></a></li>
+<li><a href="https://win-community.techidaily.com/incredible-apps-for-designing-custom-text-based-wallpapers/"><u>Incredible Apps for Designing Custom Text-Based Wallpapers</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

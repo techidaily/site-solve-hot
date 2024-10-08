@@ -1,7 +1,7 @@
 ---
 title: "Optimized with Advanced Traffic Analytics: The Cookiebot Way"
-date: 2024-09-26T08:06:28.090Z
-updated: 2024-10-03T04:23:55.721Z
+date: 2024-10-04T16:41:29.351Z
+updated: 2024-10-08T16:34:28.613Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8cc2f26346852b595fe32553f266efaeb26b116a663fa0800cea00c3335313c9.png
@@ -23,30 +23,23 @@ We learned that 82.1% of respondents switched to a remote work setting during th
 
 ![](https://static1.abbyy.com/abbyycommedia/29708/productivity-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Have you been more productive?
 
 Our survey found that 43% of respondents noted they were more productive working from home than in an office, while 32.6% stated that they hadn’t noticed a difference in their level of productivity, and 21.8% claimed that they were less productive. Some respondents shared that they had mixed feeling about working from home.
 
 ![](https://static1.abbyy.com/abbyycommedia/29709/productivity-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _“Mixed - more productive some days, less productive other days”_  
 _“I tried to be as productive as in my work office. The difference was in the time. I had more often pause, then I had worked later, out of worktime.”_  
 _“Depends, some things went better, others worse..”_  
 _“Some of each”_ 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Have you been more motivated?
 
@@ -61,10 +54,24 @@ A typical work day during the quarantine mostly lasted 8 – 10 hours (33.8%). O
 ![](https://static1.abbyy.com/abbyycommedia/29711/productivity-4.jpg)  
 Compared to pre-COVID, 43.2% of respondents worked longer hours for personal reasons while staying home, and 27.3% worked shorter hours for personal reasons. Here’s what some respondents shared:
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _“Longer hours because of dissolution of work boundaries.”_  
 _“Working at home while providing full time care has resulted in extremely long work days to complete my workload.”_  
 _“I will not say I work more or less compared to when things were normal. However, I have noticed that there are lot of time-wasting activities from other colleagues or superiors which rarely comes up when working from home.”_  
 _“Longer hours due to feeling I must perform better under the circumstance of working from home rather than an office building.”_ 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What is your preferred workplace arrangement when you will be able to return to the office?
 
@@ -76,6 +83,13 @@ Participants of the survey pointed out many advantages of remote work. The most 
 
 ![](https://static1.abbyy.com/abbyycommedia/29712/productivity-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Also, some of our users shared their advantages:
 
 _“Being in the comfort of my home allows me to take a quick break and pet my cats or step outside for fresh air. Having windows open with sounds of nature. No fluorescent lights, no phones ringing, my music as loud as I want. Being able to prep dinner before 5\. Taking a nice walk during my lunch hour. These are a few of my favorite things!”_  
@@ -83,15 +97,22 @@ _“Less ineffective communication.”_
 _“More productive not wasting money on petrol and travel time and parking the car once I get to work”_  
 _“Better food at home. Possibility to have conf calls while doing simple things around the house like watering plants or enjoying the comforts of my home.”_ 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### …Or disadvantages?
 
 ![](https://static1.abbyy.com/abbyycommedia/29713/productivity-6.jpg)What about the disadvantages of remote work? In the survey, 51.4% of respondents stated that there are more distractions at home. The lack of in-person communication with colleagues was a disadvantage for 38.9% of our users, and 29.3% didn’t have a comfortable workstation at home. Here are some less positive thoughts about remote work from our survey participants:
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _“Getting info, feedback, approval can be frustrating sometimes...video meets have been very helpful.”_  
@@ -106,32 +127,11 @@ The majority of respondents (56%) also noted that working from home has impacted
 ![](https://static1.abbyy.com/abbyycommedia/29714/productivity-7.jpg)  
 While 40.6% of respondents preferred dispersing work and relaxation throughout the day, 24.8% experienced trouble switching from work to relaxation.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Was it more stressful?
 
 The research showed that working remotely helped 43.8% of respondents to cut down on their stress level, and while 34.5% didn’t notice any changes in their stress level, unfortunately, 20.5% of our users felt more stressed while working from home.
 
 ![](https://static1.abbyy.com/abbyycommedia/29715/productivity-8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What about your screen time and gadgets usage?
 
@@ -153,10 +153,10 @@ We also wanted to learn if our users follow any blogs or podcasts on meditation,
 … and many others.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Who are you?
@@ -229,18 +229,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-mastering-the-art-of-streaming-via-obs-into-social-networks-for-2024/"><u>[New] Mastering the Art of Streaming via OBS Into Social Networks for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/achieve-top-gameplay-with-updated-dell-g3-video-card-drivers/"><u>Achieve Top Gameplay with Updated Dell G3 Video Card Drivers</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-best-6-journal-apps-enhancing-your-daily-reflections/"><u>Discover the Best 6 Journal Apps Enhancing Your Daily Reflections</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-presence-through-state-of-the-art-cookiebot-solutions/"><u>Enhancing Digital Presence Through State-of-the-Art Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-document-automation-how-abbyy-flexicaptures-updated-rest-api-fuels-seamless-adoption-and-immediate-data-processing/"><u>Enhancing Document Automation: How ABBYY FlexiCapture's Updated REST API Fuels Seamless Adoption & Immediate Data Processing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-brazils-surge-in-intelligent-tech-solutions-during-infoshow-2nv-2018-expert-analysis-by-abbyy-blog-team/"><u>Exploring Brazil's Surge in Intelligent Tech Solutions During InfoShow 2Nv 2018 | Expert Analysis by ABBYY Blog Team</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-innovative-tech-smartwatch-capabilities-real-time-language-conversion-and-secure-cloud-storage-solutions-on-the-abbyy-platform/"><u>Exploring Innovative Tech: Smartwatch Capabilities, Real-Time Language Conversion & Secure Cloud Storage Solutions on the ABBYY Platform</u></a></li>
-<li><a href="https://windows11.techidaily.com/fixing-windows-blue-screen-0x8007007e-problems/"><u>Fixing Windows Blue Screen 0X8007007E Problems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/get-your-free-abyy-alteryx-bridge-tool-now/"><u>Get Your Free ABYY Alteryx Bridge Tool Now!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-nokia-xr21-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Nokia XR21.</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-guide-transforming-your-m4v-videos-into-compatible-mp4-format-with-handbrake/"><u>Step-by-Step Guide: Transforming Your M4V Videos Into Compatible MP4 Format with Handbrake</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/streamlining-windows-11s-cloud-storage-functionality/"><u>Streamlining Windows 11'S Cloud Storage Functionality</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/what-to-do-when-you-encounter-jvmdll-file-missing-issues/"><u>What To Do When You Encounter JVM.DLL File Missing Issues</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-video-mastery-unlocked-the-top-5-online-techniques-to-shorten-vimeo-content/"><u>[New] 2024 Approved Video Mastery Unlocked The Top 5 Online Techniques to Shorten Vimeo Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-prime-windows-11-software-for-cutting-edge-editing/"><u>[Updated] 2024 Approved Prime Windows 11 Software for Cutting-Edge Editing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-fastest-time-lapse-capturing-system-5/"><u>[Updated] Fastest Time-Lapse Capturing System #5</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/accelerate-po-management-and-elevate-service-quality-through-gemluxs-advanced-abbyy-idp-solutions-within-netsuite/"><u>Accelerate PO Management and Elevate Service Quality Through GEMLUX’s Advanced ABBYY IDP Solutions Within NetSuite</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/advanced-docu-ai-techniques-mastering-smart-scanning-with-abbyy-and-pegasystems/"><u>Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-the-cookiebot-solution/"><u>Automated User Tracking with the Cookiebot Solution</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automatisierte-veranderung-wie-traditionelle-unternehmen-in-digitale-strukturen-ubergehen/"><u>Automatisierte Veränderung: Wie Traditionelle Unternehmen in Digitale Strukturen Übergehen</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-platforms-maximizing-your-youtube-reach-for-2024/"><u>Best Platforms Maximizing Your YouTube Reach for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-your-apps-features-for-free-with-abbyys-on-the-fly-image-recognition-technology/"><u>Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-efficient-marketing-automation-tools/"><u>Cookiebot Driven Solutions: Efficient Marketing Automation Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-empowered-sites-boost-organic-visibility/"><u>Cookiebot-Empowered Sites Boost Organic Visibility</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/how-to-resolve-hevc-video-playback-problems-on-your-windows-computer/"><u>How to Resolve HEVC Video Playback Problems on Your Windows Computer</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-itel-a60-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Itel A60 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/rejuvenating-windows-a-comprehensive-guide-of-13-tips/"><u>Rejuvenating Windows: A Comprehensive Guide of 13 Tips</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Lava Storm 5G? | Dr.fone</u></a></li>
 </ul></div>
 

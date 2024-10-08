@@ -1,7 +1,7 @@
 ---
 title: ABBYYの優れた帳票データエクステラクション – 多ページ、複雑な表やレイアウトを扱い、容易にOCR &出力可能
-date: 2024-09-26T08:05:30.736Z
-updated: 2024-10-03T12:41:58.778Z
+date: 2024-10-03T16:31:47.637Z
+updated: 2024-10-08T16:33:52.288Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c65510cdf2678db2edca6954d.jpg
@@ -55,17 +55,10 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29121/table-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ページ間で表の1行・1レコード・1パターンのデータがまたがってしまっている帳票
@@ -75,10 +68,10 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29122/table-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 罫線が無い、行や列が分かりにくい帳票
@@ -86,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 明細部に罫線が無くても、行や繰り返しの法則性・パターンが分かる帳票ならば…
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29125/table-4.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 下図の線で区切ったように読み取ることも、このような帳票がたとえ複数ページ続いたとしても、行を帳票の印刷された意図通りに認識し、OCRする事が出来ます。
 
@@ -96,10 +96,10 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29128/table-6.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 左から右、または、右から左などの横方向の読み取りが必要な帳票
@@ -109,10 +109,10 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29129/table-7.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 右から左へ 列を行のようなパターンとみなして読むOCRも可能です。
@@ -129,6 +129,13 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 
 ![帳票処理ソリューション](https://static1.abbyy.com/abbyycommedia/29132/table-9.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 帳票に同じ管理番号: 請求書番号、注文番号、お客様番号…などがある場合、そのOCR結果を元に文書をまとめ、他のOCR結果の内容と出力もまとめることができます。
 
 各帳票のフォーマットが異なっていても、問題ありません。
@@ -144,13 +151,6 @@ thumbnail: https://thmb.techidaily.com/18c9dd2cba19f0ecf97513cafd5088c9e4acab9c6
 今回ご紹介しました、帳票処理ソリューションABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせは[こちら](https://tools.techidaily.com/abbyy/products/)から承ります。
 
 [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [コンテンツの理解](https://tools.techidaily.com/abbyy/products/) [AI（人工知能）](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -215,20 +215,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-dash.techidaily.com/new-version-upgrade-your-sound-with-the-latest-nahimic-audio-drivers/"><u>[New Version!]: Upgrade Your Sound with the Latest Nahimic Audio Drivers</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-quick-tips-for-high-quality-audio-recordings-on-your-imac-for-2024/"><u>[New] Quick Tips for High-Quality Audio Recordings on Your iMac for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-skyrocket-your-periscope-live-transmission-time/"><u>[New] Skyrocket Your Periscope Live Transmission Time</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-top-10-edge-enhancing-tiktok-filters-for-striking-visuals/"><u>2024 Approved Top 10 Edge-Enhancing TikTok Filters for Striking Visuals</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-sites-boost-your-websites-performance/"><u>Cookiebot-Enhanced Sites: Boost Your Website's Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience/"><u>Cookiebot-Enhanced User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-a-recipe-for-successful-site-engagement/"><u>Cookiebot-Enhanced User Experience: A Recipe for Successful Site Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-fueled-engagement-tailored-interactions-and-improved-analytics/"><u>Cookiebot-Fueled Engagement: Tailored Interactions & Improved Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-optimize-your-websites-seo-with-advanced-tracking-technology/"><u>Cookiebot: Optimize Your Website's SEO with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/deloitte-und-abbey-zusammenarbeit-beendet-innovatives-losungsportfolio-fur-die-optimierung-von-geschaftsprozessen/"><u>Deloitte Und ABBEY Zusammenarbeit Beendet - Innovatives Lösungsportfolio Für Die Optimierung Von Geschäftsprozessen</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-capture-heights-with-dji-spark-the-small-drone-selfie-powerhouse/"><u>In 2024, Capture Heights with DJI Spark The Small Drone Selfie Powerhouse</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-innovation-in-action-reviewing-vidmas-new-screen-recording-features/"><u>In 2024, Innovation in Action? Reviewing Vidma's New Screen Recording Features</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-virtual-expeditions-youtubes-top-immersive-titles/"><u>In 2024, Virtual Expeditions YouTube's Top Immersive Titles</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/is-watching-facebook-on-the-television-set-a-future-possibility-in-2024/"><u>Is Watching Facebook on the Television Set a Future Possibility, In 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/tips-for-seamless-crossfading-in-audacity-for-2024/"><u>Tips for Seamless Crossfading in Audacity for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-ace-your-films-with-these-top-15-gopro-video-luts/"><u>[Updated] Ace Your Films with These Top 15 GoPro Video LUTs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-empowering-your-wit-crafting-humor-with-gifs-step-by-step/"><u>[Updated] Empowering Your Wit Crafting Humor with GIFs Step by Step</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-vdg-screen-snatcher-synopsis-full-breakdown-for-2024/"><u>[Updated] VDG Screen Snatcher Synopsis Full Breakdown for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-which-live-stream-software-wins-exploring-obs-vs-streamlabs/"><u>[Updated] Which Live Stream Software Wins? Exploring OBS Vs. Streamlabs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-freevista-landing-on-exquisite-costless-tiktok-screenshots/"><u>2024 Approved The FREEvista Landing on Exquisite, Costless TikTok Screenshots</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-oneplus-open-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your OnePlus Open Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-and-m-files-bolster-synergistic-alliance/"><u>Abbyy & M-Files Bolster Synergistic Alliance</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-tips-for-restoring-functionality-to-disabled-iphone-or-ipad/"><u>Expert Tips for Restoring Functionality to Disabled iPhone or iPad</u></a></li>
+<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50% Expected Within Two Years, Says TechTarget</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
 </ul></div>
 

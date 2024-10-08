@@ -1,7 +1,7 @@
 ---
 title: "James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance"
-date: 2024-09-29T05:53:46.368Z
-updated: 2024-10-03T00:06:29.607Z
+date: 2024-10-04T16:31:48.032Z
+updated: 2024-10-08T16:20:26.436Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91d802feac954d9a2b7218b9de82c000f339447018e6cb53073b6a41a90f92e5.jpg
@@ -28,10 +28,10 @@ Ritter commented, “ABBYY is well positioned to deliver next generation, no cod
 Ritter has held several leadership positions with global organizations including WPP, Ferrovial, and BigCommerce. He originally joined ABBYY as VP of Finance in June 2021, and prior to joining ABBYY, was the VP Controller at Accruent, an international enterprise software organization. Ritter is a Certified Public Accountant with an accounting degree from Rowan University and is actively pursuing an MBA at Boston University Questrom School of Business. He resides in Texas.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -41,16 +41,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -58,10 +52,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -88,15 +82,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-download-youtube-music-to-your-android-phone-top-6-free-apps/"><u>[Updated] 2024 Approved Download YouTube Music to Your Android Phone Top 6 Free Apps</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-editing-elegance-into-news-summations/"><u>[Updated] 2024 Approved Editing Elegance Into News Summations</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/youtube72024/"><u>「推薦される最強のYouTubeダウンローダー7組！2024年版ランキング完全ガイド」</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-how-can-you-convert-an-opus-file-into-ogg-format-at-no-cost/"><u>1. How Can You Convert an OPUS File Into OGG Format at No Cost?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726026567366-gopro/"><u>高品質なGoProフィルムに変える解像度調節手順</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-honor-x50-gt-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Honor X50 GT via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-undiscovered-to-famous-the-seo-playbook-for-your-podcast/"><u>In 2024, From Undiscovered to Famous The SEO Playbook for Your Podcast</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/navigating-the-best-free-srt-translation-options-a-comprehensive-guide/"><u>Navigating the Best Free SRT Translation Options A Comprehensive Guide</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-guide-restoring-functionality-to-a-broken-keyboard-at-login/"><u>Step-by-Step Guide: Restoring Functionality to a Broken Keyboard at Login</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windows-11-hd4k/"><u>Windows 11でフリーマガジン: HDや4Kにビデオ解像度調整の簡単ガイド</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-key-practices-for-amassing-picture-resources/"><u>[New] Key Practices for Amassing Picture Resources</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-next-era-cinema-vrs-role-in-entertainment/"><u>[Updated] 2024 Approved Next Era Cinema VR's Role in Entertainment</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-expressing-emotionally-using-emojis-for-yt-comments-for-2024/"><u>[Updated] Expressing Emotionally Using Emojis for YT Comments for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enablement-boost-digital-footprints-and-user-engagement/"><u>Cookiebot Enablement: Boost Digital Footprints & User Engagement.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-personalized-experiences/"><u>Cookiebot-Enabled Personalized Experiences</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-web-optimization-enhance-user-engagement-and-analytics-effortlessly/"><u>Cookiebot-Enabled Web Optimization: Enhance User Engagement & Analytics Effortlessly</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-experience/"><u>Cookiebot-Enhanced Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimized-engagement-and-personalization/"><u>Cookiebot-Enhanced: Optimized Engagement and Personalization</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-rapidly-constructing-a-dynamic-facebook-visual-narrative/"><u>In 2024, Rapidly Constructing a Dynamic Facebook Visual Narrative</u></a></li>
 </ul></div>
 

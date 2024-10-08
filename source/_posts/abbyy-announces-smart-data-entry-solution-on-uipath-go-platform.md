@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Smart Data Entry Solution on UiPath GO Platform
-date: 2024-10-02T00:18:05.318Z
-updated: 2024-10-02T21:22:05.291Z
+date: 2024-10-06T17:55:51.952Z
+updated: 2024-10-08T19:06:09.160Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2ad6cf886d90c9a4679357e1.jpg
@@ -79,25 +79,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-new-year-new-filmmaking-action-cam-buyers-guide-23/"><u>[New] 2024 Approved New Year, New Filmmaking Action Cam Buyers Guide '23</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-ultimate-gear-guide-for-streaming-sensations/"><u>[New] 2024 Approved Ultimate Gear Guide for Streaming Sensations</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-prospective-leaders-in-titling-the-top-5-online-masters-revealed/"><u>[New] In 2024, Prospective Leaders in Titling The Top 5 Online Masters Revealed</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-navigating-the-ebb-and-flow-of-daily-social-media-use/"><u>[New] Navigating the Ebb and Flow of Daily Social Media Use</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-overcoming-challenges-in-ppt-screen-capture/"><u>[Updated] In 2024, Overcoming Challenges in PPT Screen Capture</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-traffic-with-cookiebot-advanced-marketing-automation-solutions/"><u>Boost Traffic with Cookiebot: Advanced Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-conversions-with-our-cookiebot-technology/"><u>Boost Your Conversions with Our Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/celebrating-smart-automation-abbyys-proclamation-of-september-as-the-official-month/"><u>Celebrating Smart Automation: ABBYY's Proclamation of September as the Official Month</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-automation-and-personalization-for-enhanced-user-engagement/"><u>Cookiebot-Driven Automation and Personalization for Enhanced User Engagement</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/launch-of-nickwatch-unveiled-amidst-the-fun-filled-kids-choice-celebration/"><u>Launch of NickWatch Unveiled Amidst the Fun-Filled Kid’s Choice Celebration</u></a></li>
-<li><a href="https://extra-support.techidaily.com/pioneering-simple-sound-shifts-in-pubg-for-2024/"><u>Pioneering Simple Sound Shifts in PUBG for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/reviving-retro-tech-how-to-upgrade-your-agp-slot-with-modern-graphics-cards-and-boosted-connectivity-featuring-two-essential-adaptors/"><u>Reviving Retro Tech: How to Upgrade Your AGP Slot with Modern Graphics Cards and Boosted Connectivity - Featuring Two Essential Adaptors</u></a></li>
-<li><a href="https://blog-min.techidaily.com/windows-10-cortanaspartanhololens-windows-1n-10/"><u>Windows 10紹介: Cortana/Spartan/HoloLensを使ったユニークな体験 - Windows 1N 10無料ダウンロード・アップグレード手順完全解説</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-enhance-visibility-youtube-thumbnails-made-simple/"><u>[New] Enhance Visibility YouTube Thumbnails Made Simple</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-iphones-audio-advantages-for-podcast-lovers/"><u>[Updated] IPhone's Audio Advantages for Podcast Lovers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-techniques-for-gradual-mix-adjustments-in-pro-tools/"><u>[Updated] Techniques for Gradual Mix Adjustments in Pro Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-revolutionizing-workouts-the-best-vr-treadmill-choices/"><u>2024 Approved Revolutionizing Workouts The Best VR Treadmill Choices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-website-personalization-with-cookiebot-technology/"><u>Enhanced Website Personalization with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-creditor-management-with-shared-service-centers-integration-of-madsack-mediengruppe-sap-and-abbyy/"><u>Enhancing Creditor Management with Shared Service Centers - Integration of MADSACK Mediengruppe, SAP, and ABBYY</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-user-privacy-with-cookiebots-advanced-tracking-solutions/"><u>Enhancing User Privacy with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/gagnez-un-avantage-decisif-en-finance-grace-a-notre-checklist-abbyy-les-cles-pour-reussir-sur-les-marches-financiers/"><u>Gagnez Un Avantage Décisif en Finance Grâce À Notre Checklist ABBYY - Les Clés Pour Réussir Sur Les Marchés Financiers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-compatible-drivers-for-gigabyte-z370p-free-and-secure-download-options/"><u>Latest Compatible Drivers for Gigabyte Z370P: Free and Secure Download Options</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722978223001-subtract-3-from-both-sides-of-the-equation-to-get-rid-of-the-constant-term-on-the-left-hand-side-lhs/"><u>Subtract 3 From Both Sides of the Equation to Get Rid of the Constant Term on the Left-Hand Side (LHS)</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

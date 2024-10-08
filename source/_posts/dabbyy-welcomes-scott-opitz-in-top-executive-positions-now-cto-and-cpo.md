@@ -1,7 +1,7 @@
 ---
 title: "D'Abbyy Welcomes Scott Opitz in Top Executive Positions: Now CTO & CPO"
-date: 2024-09-26T11:18:28.875Z
-updated: 2024-10-03T09:14:58.125Z
+date: 2024-10-05T18:06:43.017Z
+updated: 2024-10-08T18:27:12.301Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/71650fe6339aad7562a7ef4730d038972f077e65bec2cbda43e5ae4d18379e11.jpg
@@ -32,10 +32,10 @@ Scott Opitz a rejoint ABBYY en 2019, lors de l’[acquisition de TimelinePI](htt
 Scott a également occupé plusieurs fonctions de direction au sein d’entreprises publiques et privées. Il est inventeur et détient 13 brevets et demandes de brevets relatifs aux technologies de Process Intelligence.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -45,10 +45,10 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -56,10 +56,10 @@ ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont r�
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -85,24 +85,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-hot.techidaily.com/1-abbyy-flexicapture-transforming-enterprises-into-modern-digital-powerhouses/"><u>1. ABBYY FlexiCapture: Transforming Enterprises Into Modern Digital Powerhouses</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-focus-on-essentials-affinity-method/"><u>2024 Approved Focus on Essentials - Affinity Method</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-guide-on-unlocking-iphone-11-with-a-broken-screen-by-drfone-ios/"><u>Complete Guide on Unlocking iPhone 11 with a Broken Screen?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/downloadable-movie-format-changer-convert-avi-to-mp4-movevideo-pro-online/"><u>Downloadable Movie Format Changer: Convert AVI to MP4 - MOVEVIDEO Pro (Online)</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/dynamic-group-portraits-via-iphone-burst-mode/"><u>Dynamic Group Portraits via iPhone Burst Mode</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/forgot-apple-iphone-xs-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot Apple iPhone XS Backup Password? Heres What to Do | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-ios-system-of-iphone-se-2022-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System of iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-a-lost-apple-iphone-14-for-free-drfone-by-drfone-virtual-ios/"><u>How to Track a Lost Apple iPhone 14 for Free? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-11-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone 11</u></a></li>
-<li><a href="https://win-blog.techidaily.com/tackling-the-crash-problem-of-pacific-drive-in-pc-systems-effective-fixes/"><u>Tackling the Crash Problem of Pacific Drive in PC Systems: Effective Fixes</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/the-best-solution-for-assessing-the-202e-year-with-everest-group-and-abbyys-peak-matrix/"><u>The Best Solution for Assessing the 202E Year with Everest Group and ABBYY's PEAK Matrix</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-7-best-free-music-streaming-services-on-ios-and-android-devices/"><u>Top 7 Best Free Music Streaming Services on iOS & Android Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-phone-into-a-pro-scanner-with-abbyys-topnotch-ai-technology/"><u>Transform Your Phone Into a Pro Scanner with ABBYY's Topnotch AI Technology!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transformative-mobile-tools-discovering-the-top-game-changers-on-your-smartphone/"><u>Transformative Mobile Tools: Discovering the Top Game-Changers on Your Smartphone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-intelligent-process-automation-an-overview/"><u>Understanding Intelligent Process Automation: An Overview</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unlocking-successful-ad-campaigns-through-smart-technology-insights-into-cookiebot-solutions/"><u>Unlocking Successful Ad Campaigns Through Smart Technology: Insights Into Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/utilizing-cookiebot-technology-for-tailored-user-experience-on-websites/"><u>Utilizing Cookiebot Technology for Tailored User Experience on Websites</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/yum-chinas-finance-department-soars-higher-using-abbyy-flexicapture-at-their-shared-services-hub/"><u>YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/44kk44oz44k144kk44oi5zcr5lik44gu44gf44kb44gu44k44k544kv44o744ox44ot44k744k544oe44kk44ol44oz44kw5oqa6kgt/"><u>インサイト向上のためのタスク・プロセスマイニング技術</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-selective-screen-time-topping-youtube-movies/"><u>[New] Selective Screen Time Topping YouTube Movies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ultimate-mobiles-for-cutting-and-enhancing-dji-media/"><u>[Updated] 2024 Approved Ultimate Mobiles for Cutting & Enhancing DJi Media</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-and-m-files-bolster-synergistic-alliance/"><u>Abbyy & M-Files Bolster Synergistic Alliance</u></a></li>
+<li><a href="https://win11.techidaily.com/are-your-keyboard-arrow-keys-not-working-try-these-fixes-for-windows/"><u>Are Your Keyboard Arrow Keys Not Working? Try These Fixes for Windows</u></a></li>
+<li><a href="https://fox-access.techidaily.com/freeaudvault-review-unveiling-the-full-potential-of-2024/"><u>FreeAudVault Review Unveiling the Full Potential of 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-nokia-xr21-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Nokia XR21?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Samsung Galaxy A15 4G? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-breaking-records-olympics-showcase-for-short-tracks/"><u>In 2024, Breaking Records Olympics Showcase for Short Tracks</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-phantom-v-fold-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Tecno Phantom V Fold Bootloader Easily</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-video-masterclass-crafting-youtube-trailers-using-filmora/"><u>In 2024, Video Masterclass Crafting YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/introducing-abbyys-innovative-no-code-solution-vantage-and-exclusive-ai-tools-collection/"><u>Introducing ABBYY's Innovative No-Code Solution: Vantage Ⅱ & Exclusive AI Tools Collection</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigating-the-obstacles-in-customer-onboarding-key-drivers-and-critical-issues-revealed-through-survey-data/"><u>Navigating the Obstacles in Customer Onboarding: Key Drivers and Critical Issues Revealed Through Survey Data</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/new-accessible-reading-solution-abbyy-collaborates-with-amedia-for-an-ocr-app-designed-for-the-visually-impaired-community/"><u>New Accessible Reading Solution: ABBYY Collaborates with Amedia for an OCR App Designed for the Visually Impaired Community</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimizing-your-online-presence-mastering-effective-pages/"><u>Optimizing Your Online Presence: Mastering Effective Pages</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionize-your-american-supply-network-in-2020-lessons-from-reuters-panel-on-efficient-automation-techniques/"><u>Revolutionize Your American Supply Network in 2020: Lessons From Reuter's Panel on Efficient Automation Techniques</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50% Expected Within Two Years, Says TechTarget</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: 「CLOVA OCRとフレックスキャプチャーを組み合わせた日本語手書き読み取り」
-date: 2024-09-28T17:31:31.629Z
-updated: 2024-10-02T23:56:38.494Z
+date: 2024-10-04T18:37:02.309Z
+updated: 2024-10-08T17:12:44.341Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b760390b18a7b33382115f2d0b.jpg
@@ -21,13 +21,6 @@ thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b76
 
 FlexiCaptureは自身のOCRエンジンだけでなく、他社のICR/OCRエンジンを組み合わせて最適なAI OCRを実現することも可能です。
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 複数のAI OCR技術を組み合わせるメリット
 
 FlexiCaptureは単体でも優れたOCRを実現していますが、文書のフォント、品質、解像度などにより、どうしても期待した精度を実現することができない場合があります。これは、他のOCRエンジンも同様で、学習データの違いなどから、それぞれ得意不得意が出てきてしまうためです。
@@ -38,6 +31,13 @@ AI OCRは常に進化しており、クラウド上のサービスも多く、�
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35333/clovaocr-content-1-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FlexiCaptureは複雑な文書の処理が可能
 
 FlexiCaptureは、複雑な文書にも広く対応しており、他では取得できないフォーマットでも、定型、非定型問わずに、読み取り可能です。これは、一般的なAI OCRに用いられている学習による解析だけでなく、人間が見て判断するように、特定の文字からの相対位置や何行目、何列目といった表構造の中での位置、スキャン時に発生する解像度のばらつきや傾きの補正などの機能FlexiCaptureが有しているからです。加えて、上記の機能により文書を誤認識してしまった際にもロジカルに原因追及が可能となっています。
@@ -45,13 +45,6 @@ FlexiCaptureは、複雑な文書にも広く対応しており、他では取�
 他社のPoCで難しいと言われた複雑な構造の文書であってもFlexiCaptureで対応可能な場合が多いので、お困りの際にはご相談ください。
 
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35332/clovaocr-content-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FlexiCaptureは検証機能も充実
 
@@ -62,17 +55,23 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35331/clovaocr-content-3-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FlexiCaptureは業務使用に最適
@@ -100,6 +99,19 @@ FlexiCaptureは単体でも認識、検証、ワークフローにおいて優�
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/)
 
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -164,22 +176,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-harness-the-power-of-insights-a-curated-list-of-instagram-performance-trackers-for-2024/"><u>[Updated] Harness the Power of Insights A Curated List of Instagram Performance Trackers for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-peak-performance-sd-card-for-sony-a7s-series-for-2024/"><u>[Updated] Peak Performance SD Card for Sony A7S Series for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-pre-purchase-key-facts-every-drone-buyer-should-know-for-2024/"><u>[Updated] Pre-Purchase Key Facts Every Drone Buyer Should Know for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-solution-optimiser-les-services-de-traduction-pour-le-droit-et-la-finance/"><u>ABBYY Solution - Optimiser Les Services De Traduction Pour Le Droit Et La Finance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-und-tangro-steigern-sie-die-prozesssicherheit-im-dokumenteneingang-fur-ein-nahtloses-management/"><u>ABBYY Und Tangro®: Steigern Sie Die Prozesssicherheit Im Dokumenteneingang Für Ein Nahtloses Management</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/adaptieren-zum-new-normal-wie-fraunhofer-und-abbyy-die-prozessdigitalisierung-revolutionieren/"><u>Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren</u></a></li>
-<li><a href="https://os-tips.techidaily.com/discover-easy-ways-to-dive-into-using-apples-iphone-shortcuts-feature/"><u>Discover Easy Ways to Dive Into Using Apple's iPhone Shortcuts Feature!</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/dive-into-computer-components-at-toms-hardware-hub/"><u>Dive Into Computer Components at Tom’s Hardware Hub</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expert-tips-for-resolving-typewriter-key-malfunctions-in-computers/"><u>Expert Tips for Resolving Typewriter Key Malfunctions in Computers</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-realme-narzo-n55withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Realme Narzo N55with/without a PC</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On HTC U23 Pro? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-10-insights-into-shaping-tomorrows-workplace-visionary-perspectives-from-the-abbyy-blog/"><u>Top 10 Insights Into Shaping Tomorrow's Workplace: Visionary Perspectives From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-photos-to-searchable-pdfs-on-iphone-utilizing-optical-character-recognition-ocr-in-finereader-app/"><u>Transform Your Photos to Searchable PDFs on iPhone: Utilizing Optical Character Recognition (OCR) in FINEREADER App</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transforming-the-industry-the-secrets-behind-thriving-modern-insurers-embracing-change/"><u>Transforming the Industry: The Secrets Behind Thriving Modern Insurers Embracing Change</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-end-user-license-agreement-warnings/"><u>Understanding End-User License Agreement Warnings</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/verstehen-sie-den-wechsel-von-etl-zu-elt-und-seinen-einfluss-fur-datenmanagement-strategien/"><u>Verstehen Sie Den Wechsel Von ETL Zu ELT Und Seinen Einfluss Für Datenmanagement-Strategien</u></a></li>
-<li><a href="https://app-tips.techidaily.com/west-virginia-hospital-data-compromised-following-phishing-scheme-insights-by-zdnet/"><u>West Virginia Hospital Data Compromised Following Phishing Scheme - Insights by ZDNet</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-memetic-masterpieces-a-photo-journey-for-2024/"><u>[New] Memetic Masterpieces A Photo Journey for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-from-sub-to-srt-with-ease-uncover-our-top-8-software-picks-for-desktop-systems/"><u>[Updated] In 2024, From SUB to SRT with Ease! Uncover Our Top 8 Software Picks for Desktop Systems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-digital-intelligence-revolutioniert-den-automatisierten-rechnungseingang-bei-bunting-effiziente-und-zuverlassige-unternehmenssoftware-fur-die-geschaft5/"><u>ABBYY Digital Intelligence Revolutioniert Den Automatisierten Rechnungseingang Bei Bünting - Effiziente Und Zuverlässige Unternehmenssoftware Für Die Geschäftsabwicklung</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-transformation-von-tausenden-von-druckseiten-in-digitale-daten-durch-fortschrittliche-software-rastertechnologie/"><u>ABBYY: Transformation Von Tausenden Von Druckseiten in Digitale Daten Durch Fortschrittliche Software-Rastertechnologie</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/accelerate-po-management-and-elevate-service-quality-through-gemluxs-advanced-abbyy-idp-solutions-within-netsuite/"><u>Accelerate PO Management and Elevate Service Quality Through GEMLUX’s Advanced ABBYY IDP Solutions Within NetSuite</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/advanced-docu-ai-techniques-mastering-smart-scanning-with-abbyy-and-pegasystems/"><u>Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automated-user-tracking-with-the-cookiebot-solution/"><u>Automated User Tracking with the Cookiebot Solution</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automatisierte-veranderung-wie-traditionelle-unternehmen-in-digitale-strukturen-ubergehen/"><u>Automatisierte Veränderung: Wie Traditionelle Unternehmen in Digitale Strukturen Übergehen</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-your-apps-features-for-free-with-abbyys-on-the-fly-image-recognition-technology/"><u>Boost Your App's Features for Free with ABBYY's On-The-Fly Image Recognition Technology.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-efficient-marketing-automation-tools/"><u>Cookiebot Driven Solutions: Efficient Marketing Automation Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-empowered-sites-boost-organic-visibility/"><u>Cookiebot-Empowered Sites Boost Organic Visibility</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-digitally-sign-excel-2010-online-free-tutorial-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to Digitally Sign Excel 2010 online free - (Tutorial)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-tecno-camon-20-pro-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Tecno Camon 20 Pro 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-iphone-xs-max-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile iPhone XS Max online without SIM Card?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/low-end-pc-maximum-performance-via-obs/"><u>Low-End Pc - Maximum Performance via OBS</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/no-more-freezing-overcome-nba-2k23-pc-crash-with-these-proven-7-fixes/"><u>No More Freezing: Overcome NBA 2K23 PC Crash with These Proven 7 Fixes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/rapidly-increase-views-effective-growth-hacks-for-channels-for-2024/"><u>Rapidly Increase Views Effective Growth Hacks for Channels for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-periscope-utilization-complete-manual-for-2024/"><u>Step-by-Step Periscope Utilization Complete Manual for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transformer-des-fichiers-audio-3gp-en-formats-wav-sans-frais-methode-facile-et-gratuit-de-la-plateforme-enligne/"><u>Transformer Des Fichiers Audio 3GP en Formats WAV Sans Frais - Méthode Facile Et Gratuit De La Plateforme Enligne</u></a></li>
 </ul></div>
 

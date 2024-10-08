@@ -1,7 +1,7 @@
 ---
 title: ABBYY FineReader Serverで過去50年間の文書検索能力向上
-date: 2024-09-30T16:06:12.389Z
-updated: 2024-10-02T18:31:19.751Z
+date: 2024-10-07T18:36:15.900Z
+updated: 2024-10-08T16:22:14.760Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fa466aca4e0117af9ede098ff5beff07b4b780680a77e468de6afed425dad313.jpg
@@ -19,28 +19,34 @@ Construction | Engineering & Manufacturing | Digital Archiving | Document Manage
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 過去50年分のドキュメントの検索性を高めるため ABBYY FineReader Serverを導入
 
 製造 | デジタルアーカイブ 
 
 ![Chiyoda](https://static1.abbyy.com/abbyycommedia/23842/chiyoda-556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### お客様の概要
 
 ![千代田化工建設](https://static4.abbyy.com/abbyycommedia/23841/logo-chiyoda-small.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | 氏名     | 千代田化工建設                                             |
@@ -120,15 +126,22 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 [![ABBYY FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Server](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ドキュメントアーカイブ <small>ENG</small>](https://static1.abbyy.com/abbyycommedia/14355/5-document-archiving.jpg)](https://tools.techidaily.com/abbyy/products/) [ドキュメントアーカイブ ENG](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
@@ -143,13 +156,6 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 [ABBYYについて](https://tools.techidaily.com/abbyy/products/) 
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
 
@@ -172,24 +178,17 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ootball-film-study-premier-insights-infographic-for-2024/"><u>[New] Football Film Study Premier Insights Infographic for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-hide-and-discover-instagram-stories-leaders-for-2024/"><u>[New] Hide & Discover Instagram Stories Leaders for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-discover-6-premier-nft-services-boosting-artist-imagination/"><u>[New] In 2024, Discover 6 Premier NFT Services Boosting Artist Imagination</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-compreenasive-breakdown-how-to-use-microsofts-movie-maker-on-w11/"><u>[New] In 2024, The Compreenasive Breakdown How to Use Microsoft's Movie Maker on W11</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-pinnacle-chroma-modifier/"><u>[New] Pinnacle Chroma Modifier</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-time-warp-techniques-harnessing-classic-80s-visual-flair-in-videos/"><u>[New] Time Warp Techniques Harnessing Classic 80S Visual Flair in Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-quantum-leap-the-most-astonishing-sci-fi-films-of-metaverses/"><u>[Updated] 2024 Approved Quantum Leap The Most Astonishing Sci-Fi Films of Metaverses</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-empowerment-elevate-your-websites-functionality-today/"><u>Cookiebot Empowerment: Elevate Your Website's Functionality Today</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enablement-boost-digital-footprints-and-user-engagement/"><u>Cookiebot Enablement: Boost Digital Footprints & User Engagement.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-data-collection-enhance-your-websites-analytics/"><u>Cookiebot-Driven Data Collection: Enhance Your Website's Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-personalized-experiences/"><u>Cookiebot-Enabled Personalized Experiences</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-web-optimization-enhance-user-engagement-and-analytics-effortlessly/"><u>Cookiebot-Enabled Web Optimization: Enhance User Engagement & Analytics Effortlessly</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-visitor-tracking-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-seo-and-user-engagement/"><u>Cookiebot-Enabled: Enhancing Your Website's SEO & User Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience-with-seamless-personalization/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience with Seamless Personalization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-experience/"><u>Cookiebot-Enhanced Experience</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-install-latest-drivers-for-your-dell-2330d2330dn-color-laser-printer/"><u>How to Install Latest Drivers for Your Dell 2330D/2330Dn Color Laser Printer</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-crafting-perfect-instagram-story-cover-pages/"><u>In 2024, Crafting Perfect Instagram Story Cover Pages</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-13-mini-properly-drfone-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone 13 mini Properly | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-nokia-c110-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-decoding-the-divergence-360-film-vs-virtual-reality/"><u>2024 Approved Decoding the Divergence 360° Film Vs. Virtual Reality</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-nixing-the-green-glow-youtubes-mac-solution-manual/"><u>2024 Approved Nixing the Green Glow YouTube's Mac Solution Manual</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-step-into-the-archive-old-stories-on-facebook/"><u>2024 Approved Step Into the Archive Old Stories on Facebook</u></a></li>
+<li><a href="https://win-blog.techidaily.com/enhance-your-gameplay-eliminating-crashes-in-dark-souls-iii-now-possible/"><u>Enhance Your Gameplay: Eliminating Crashes in Dark Souls III Now Possible</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-automated-tracking-with-cookiebot-technology/"><u>Harness the Power of Automated Tracking with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-for-effective-online-marketing-campaigns/"><u>Harness the Power of Cookiebot for Effective Online Marketing Campaigns</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-samsung-galaxy-m14-4g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Samsung Galaxy M14 4G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/insightful-strategies-on-customer-knowledge-by-abbyy-presented-at-the-2017-aiim-conference/"><u>Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/leading-innovations-in-voice-recognition-abbyy-laut-secures-everest-groups-2024-market-pinnacle-with-idp-peak-matrix-test/"><u>Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test</u></a></li>
+<li><a href="https://win11.techidaily.com/stress-free-script-repair-quick-fixes-for-windows-issues/"><u>Stress-Free Script Repair: Quick Fixes for Windows Issues</u></a></li>
 </ul></div>
 

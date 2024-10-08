@@ -1,7 +1,7 @@
 ---
 title: "Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed"
-date: 2024-09-30T02:14:51.112Z
-updated: 2024-10-03T07:14:49.559Z
+date: 2024-10-01T19:19:17.617Z
+updated: 2024-10-08T18:08:21.795Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0ebef61d0b2c8908bbc43dc1da12abaf166bb4f6229b3a45bf569455ab91d1f.jpg
@@ -42,10 +42,10 @@ Bruce Orcutt, Chief Marketing Officer d'ABBYY
 ABBYY Vantage assure une extraction, un traitement et une classification précis et efficaces des données opérationnelles clés dans les documents, permettant un traitement direct de 95 % des documents avec une précision de 99 %. En tant que première plateforme low-code pour l'IDP, Vantage offre une interface intuitive aux développeurs et réduit ainsi leur dépendance vis-à-vis des départements informatiques. Ils peuvent notamment intégrer facilement des compétences d'IA pré-entraînées, capables de traiter des documents de tout format, structure et langue, à tout moment.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À PROPOS D’ABBYY
@@ -69,17 +69,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-clear-up-audio-in-youtube-a-step-by-step-guide/"><u>[New] In 2024, Clear Up Audio in YouTube A Step-by-Step Guide</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-obs-streamers-toolkit-for-captivating-sessions/"><u>[New] OBS Streamer’s Toolkit for Captivating Sessions</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-capture-and-store-screen-content-free/"><u>[Updated] Capture and Store Screen Content, FREE</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-hp-chromebook-11-analysis-ideal-for-learning-productivity-and-entertainment/"><u>Comprehensive HP Chromebook 11 Analysis: Ideal for Learning, Productivity & Entertainment</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effective-strategies-for-claiming-due-payments-a-guide-for-medical-practices-and-hospital-networks/"><u>Effective Strategies for Claiming Due Payments: A Guide for Medical Practices and Hospital Networks</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-solutions/"><u>Enhance Web Analytics with the Power of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-traffic-conversion-with-cookiebot-technology/"><u>Enhanced Traffic Conversion with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-campaigns-through-innovative-analytic-tools-beyond-traditional-cookies/"><u>Enhancing Digital Campaigns Through Innovative Analytic Tools – Beyond Traditional Cookies</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/mastering-real-time-broadcast-periscope-essentials-for-2024/"><u>Mastering Real-Time Broadcast Periscope Essentials for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/snowbound-sagas-2022-olympic-milestones/"><u>Snowbound Sagas 2022 Olympic Milestones</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-video-setup-luminosity-for-2024/"><u>The Ultimate Guide to Video Setup Luminosity for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-vivo-y55s-5g-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/istory-streams-that-will-transform-your-study-habits/"><u>[New] History Streams That Will Transform Your Study Habits</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-capture-the-moment-idevice-screenshots-and-playback/"><u>[Updated] Capture the Moment IDevice Screenshots & Playback</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-seamless-streaming-expert-use-of-netflixs-pip-feature/"><u>[Updated] Seamless Streaming Expert Use of Netflix's PIP Feature</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-shoppers-ultimate-list-of-top-rated-webcams-for-2024/"><u>[Updated] Shopper’s Ultimate List of Top-Rated Webcams for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/adaptieren-zum-new-normal-wie-fraunhofer-und-abbyy-die-prozessdigitalisierung-revolutionieren/"><u>Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ai-driven-insights-into-decoding-medical-billing-complexities-the-abbyy-healthcare-chronicle/"><u>AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/blue-prism-la-technologie-de-lintelligence-des-processus-pour-ameliorer-et-perfectionner-la-performance-dautomatisation/"><u>Blue Prism : La Technologie De L'Intelligence Des Processus Pour Améliorer Et Perfectionner La Performance D'Automatisation</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boosting-engagement-through-ai-discover-the-power-of-cookiebot-for-dynamic-content-delivery/"><u>Boosting Engagement Through AI: Discover the Power of Cookiebot for Dynamic Content Delivery</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boosting-process-intelligence-collaborating-with-alteryx-and-abbyy-in-tandem/"><u>Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-nokia-g22-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Nokia G22 Phone? Unlock It Now</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-distort-disrupt-and-delight-the-best-free-online-glitch-tools-for-2024/"><u>Updated Distort, Disrupt, and Delight The Best Free Online Glitch Tools for 2024</u></a></li>
 </ul></div>
 
