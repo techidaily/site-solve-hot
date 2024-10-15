@@ -1,7 +1,7 @@
 ---
 title: Enhancing User Privacy with Cookiebot's Advanced Tracking Solutions
-date: 2024-09-28T21:33:43.019Z
-updated: 2024-10-02T20:15:22.602Z
+date: 2024-10-10T01:27:39.331Z
+updated: 2024-10-15T00:07:46.978Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c2631446be3adbac2ea8607bb00.jpg
@@ -12,10 +12,16 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
 ## 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY | Microsoft® SharePoint®
@@ -31,10 +37,10 @@ Unternehmen setzen Dokumentenmanagementsysteme (DMS) wie Microsoft® SharePoint�
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/hyperautomation/overview-image.jpg?h=440&iar=0&w=848)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Datenblatt 
@@ -44,6 +50,13 @@ Datenblatt
 Für leicht zugängliche, durchsuchbare Dokumente im gesamten Unternehmen.
 
 [Datenblatt herunterladen](https://static1.abbyy.com/abbyycommedia/34873/datasheet-finereaderserver-microsoftsharepoint-en.pdf)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Vorteile der Integration 
 
@@ -64,10 +77,10 @@ Vermeiden Sie Strafen und Bußgelder durch Einhaltung aller Vorschriften des Ges
 Geschäftsdokumente in elektronischer Form können schnell und problemlos zwischen Benutzern ausgetauscht oder nach Belieben neu angeordnet werden. Die Integration von FineReader Server mit SharePoint gewährleistet, dass keine Daten verloren gehen, selbst wenn ein Papierdokument zerstört wird oder nicht mehr auffindbar ist.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Anwendungsszenarien 
@@ -81,13 +94,6 @@ Dokumente, die bereits in SharePoint-Bibliotheken gespeichert wurden, können da
 ##### Automatisierter Dokumentenein­gabeprozess 
 
 Der FineReader Server-to-SharePoint-Konnektor ermöglicht während der Speicherung die automatische Konvertierung von Nur-Bild-Dateien (eingescannte Dokumente, PDFs, Faxe, TIFF-Dateien und andere) in PDF-Dateien. Alle Dokumente werden als komprimierte, archivierungsfähige Dateien gespeichert.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Möchten Sie mit unserem Expertenteam sprechen?
 
@@ -108,22 +114,20 @@ Der FineReader Server-to-SharePoint-Konnektor ermöglicht während der Speicheru
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-how-to-reduce-audio-noise-in-video-recording-free-and-paid/"><u>[New] 2024 Approved How to Reduce Audio Noise in Video Recording [Free and Paid]</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-best-videography-tools-for-ios-devices/"><u>[New] Best Videography Tools for iOS Devices</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-boost-views-with-your-own-youtube-thumbnail-design/"><u>[Updated] 2024 Approved Boost Views with Your Own YouTube Thumbnail Design</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-framefinder-focus-top-recording-software-of-2023-for-2024/"><u>[Updated] FrameFinder Focus Top Recording Software of 2023 for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-maximizing-chrome-multitasking-via-picture-in-picture-mode/"><u>2024 Approved Maximizing Chrome Multitasking via Picture in Picture Mode</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/gifand10/"><u>最新！動画化のためのGIFを効率よく変換するフリーソフト&サイトベスト10選</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/easy-tutorial-on-transforming-tivo-files-into-high-quality-mp4-videos/"><u>Easy Tutorial on Transforming TiVo Files Into High-Quality MP4 Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-conversion-guide-from-wmv-to-h264-and-back/"><u>Effortless Conversion Guide: From WMV to H.264 And Back</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-downloads-a-complete-guide-to-setting-up-advanced-download-manager-on-all-platforms/"><u>Elevate Your Downloads: A Complete Guide to Setting Up Advanced Download Manager on All Platforms</u></a></li>
-<li><a href="https://win-special.techidaily.com/get-your-linux-academy-course-materials-in-mp4-by-downloading-their-videos/"><u>Get Your Linux Academy Course Materials in MP4 by Downloading Their Videos</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-msi-bluetooth-driver-now-compatible-with-windows-11-and-10-free-download/"><u>Get Your MSI Bluetooth Driver Now: Compatible with Windows 11 & 10 - Free Download</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-convert-media-files-for-optimal-playback-on-smartphones-including-nokia-samsung-htc-and-blackberry-models/"><u>How to Convert Media Files for Optimal Playback on Smartphones Including Nokia, Samsung, HTC & Blackberry Models</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-efficiently-minimize-video-files-a-guide-to-the-best-compression-techniques-and-software/"><u>How to Efficiently Minimize Video Files: A Guide to the Best Compression Techniques and Software</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-infinix-hot-30i-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Infinix Hot 30i Phones? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/is-mkv-format-supported-by-youtube-tips-for-hd-youtube-video-conversion/"><u>Is MKV Format Supported by YouTube? Tips for HD YouTube Video Conversion</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-media-format-transformation-how-to-seamlessly-create-gifs-from-webm-files-anywhere/"><u>Mastering Media Format Transformation: How to Seamlessly Create GIFs From WebM Files Anywhere</u></a></li>
-<li><a href="https://network-issues.techidaily.com/resolving-cpu-oversight-gpu-not-detected-issue/"><u>Resolving CPU Oversight: GPU Not Detected Issue</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-free-video-credits-expertise-top-6-maker-guide/"><u>[New] Free Video Credits Expertise - Top 6 Maker Guide!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-androids-top-gaming-app-kinemaster-unveiled-for-2024/"><u>[Updated] Android's Top Gaming App KineMaster Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-uncomplicated-youtube-success-compile-your-10-basic-yet-effective-projects/"><u>[Updated] Uncomplicated YouTube Success Compile Your 10 Basic Yet Effective Projects</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027984322-avidemux/"><u>Avidemuxを使った簡単な動画編集:切り取り・区切り手順</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/editorelite-analysis-complete-insight/"><u>EditorElite Analysis – Complete Insight</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/essential-guide-to-choosing-a-superior-gif-editor-for-seamless-cropping-across-devices/"><u>Essential Guide to Choosing a Superior GIF Editor for Seamless Cropping Across Devices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-students-can-snag-significant-savings-on-dell-products-your-step-by-step-blueprint/"><u>How Students Can Snag Significant Savings on Dell Products - Your Step-by-Step Blueprint!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-gps-location-on-honor-v-purse-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Honor V Purse Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-tinder-profiles-top-tricks-for-quick-likes/"><u>In 2024, Mastering Tinder Profiles Top Tricks for Quick Likes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/iphonem4a/"><u>IPhoneで音楽ファイルM4Aをうまく再生する方法：トラブルシューティングと最適なアプリ選び</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/resoudons-votre-probleme-la-solution-optimale-pour-un-ssd-crucial-qui-refuse-de-demarrer-apres-le-clonage/"><u>Résoudons Votre Problème! La Solution Optimale Pour Un SSD Crucial Qui Refuse De Démarrer Après Le Clonage</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-medicine-with-the-cloud-how-digitalization-is-shaping-the-future-of-health-services/"><u>Revolutionizing Medicine with the Cloud: How Digitalization Is Shaping the Future of Health Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-underlying-issues-online-community-resistance-explored/"><u>The Underlying Issues: Online Community Resistance Explored</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-your-medical-practice-enhancing-patient-care-through-abbyy-paperless-data-solutions/"><u>Transform Your Medical Practice: Enhancing Patient Care Through ABBYY Paperless Data Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transforming-doc-mastery-with-abbyy-marketplace-advanced-llm-and-rag-technology-unleashed/"><u>Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed</u></a></li>
 </ul></div>
 

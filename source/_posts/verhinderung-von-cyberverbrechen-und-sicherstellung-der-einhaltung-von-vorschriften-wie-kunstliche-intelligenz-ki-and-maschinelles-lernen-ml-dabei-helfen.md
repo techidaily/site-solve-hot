@@ -1,7 +1,7 @@
 ---
 title: "Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen"
-date: 2024-10-01T18:59:08.864Z
-updated: 2024-10-08T16:38:44.906Z
+date: 2024-10-08T19:42:47.687Z
+updated: 2024-10-14T19:56:25.438Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e808122dfec490930e9df565.jpg
@@ -20,10 +20,10 @@ Im Bankwesen sind die jährlichen Kosten für Cyberangriffe unter allen Branchen
 Um ihre Produktivität zu erhöhen, setzen Finanzinstitute mehr und mehr auf Automatisierung, mobile Technologien und kontaktlose Interaktionen. Diese Maßnahmen können aber neue Schwachstellen schaffen, die sich Cyberkriminelle zunutze machen. Was können Finanzinstitute gegen die ständigen Angriffe unternehmen?
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
@@ -37,10 +37,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 * verdächtige Verhaltensmuster in Prozessen zu entdecken
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -50,16 +50,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -131,19 +125,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-find-muted-conversations-on-snapchat-for-2024/"><u>[Updated] How to Find Muted Conversations on Snapchat for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-ultimate-guide-to-environmentally-safe-tech/"><u>[Updated] Ultimate Guide to Environmentally Safe Tech</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-a-guide-to-conveniently-documenting-your-gaming-victories/"><u>2024 Approved A Guide to Conveniently Documenting Your Gaming Victories</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/download-free-ultimate-online-flv-and-swf-converter-tool/"><u>Download Free - Ultimate Online Flv & Swf Converter Tool</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/easy-steps-to-open-and-play-dat-files-on-any-pc/"><u>Easy Steps to Open and Play DAT Files on Any PC</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-mp4-videos-to-flash-compatible-swf-format-anytime-anywhere/"><u>Effortless Conversion of MP4 Videos to Flash-Compatible SWF Format Anytime, Anywhere</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-technique-for-extracting-dvd-chapters-with-exclusive-subtitles-only/"><u>Effortless Technique for Extracting DVD Chapters with Exclusive Subtitles Only</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-video-editing-efficiency-with-professional-prores-file-conversion-from-mts-source/"><u>Enhance Video Editing Efficiency with Professional ProRes File Conversion From MTS Source</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/five-proven-fixes-for-when-your-onedrive-videos-wont-start-step-by-step-instructions/"><u>Five Proven Fixes for When Your OneDrive Videos Won't Start: Step-by-Step Instructions</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-zte-nubia-z60-ultra-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change ZTE Nubia Z60 Ultra Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-live-webcam-broadcast-the-power-of-vlc-technology/"><u>In 2024, Live Webcam Broadcast The Power of VLC Technology</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/inside-toms-digital-workshop-a-closer-look-at-cutting-edge-hardware/"><u>Inside Tom's Digital Workshop: A Closer Look at Cutting-Edge Hardware</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/non-amazon-ecosystem-streamers-for-home-theater/"><u>Non-Amazon Ecosystem Streamers for Home Theater</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolved-fixing-the-complete-darkness-on-your-discord-during-screen-share-sessions/"><u>Resolved: Fixing the Complete Darkness on Your Discord During Screen Share Sessions</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-how-to-access-your-secret-snaps-archive/"><u>[New] How to Access Your Secret Snaps Archive</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-a-step-by-step-tutorial-on-screencastify-use-for-2024/"><u>[Updated] A Step-by-Step Tutorial on Screencastify Use for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1724313529513-nsdabbyy/"><u>市場のリーダー、株式会社NSD及びABBYY 日本合同銀行が認定パートナー契約を成立:関係者コメントと展望</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbeyy-software-entdeckung-im-kunsthaus-von-rotterdam/"><u>ABBEYY-Software-Entdeckung Im Kunsthaus Von Rotterdam</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-announces-smart-data-entry-solution-on-uipath-go-platform/"><u>ABBYY Announces Smart Data Entry Solution on UiPath GO Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-finereader-server50/"><u>ABBYY FineReader Serverで過去50年間の文書検索能力向上</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-treibt-carlsberg-auf-globalen-spitzenplatz-schnelle-expansion-und-marktreife/"><u>ABBYY Treibt Carlsberg Auf Globalen Spitzenplatz - Schnelle Expansion Und Marktreife</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-steps-to-make-your-ipod-video-friendly-the-power-of-winx-ipod-video-converter-mac-edition/"><u>Easy Steps to Make Your iPod Video-Friendly: The Power of WinX iPod Video Converter (Mac Edition)</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/massive-sale-snag-a-stunning-49-samsung-oled-ultrawide-display-at-an-unbeatable-price/"><u>Massive Sale: Snag a Stunning 49 Samsung OLED UltraWide Display at an Unbeatable Price</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/mastering-your-slides-the-ultimate-guide-using-movavis-slideshow-app/"><u>Mastering Your Slides: The Ultimate Guide Using Movavi's Slideshow App</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/pioneering-your-virtual-identity-in-entertainment-industry-for-2024/"><u>Pioneering Your Virtual Identity in Entertainment Industry for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/prove-your-productivity-the-best-6-computer-usage-tracker-tools/"><u>Prove Your Productivity: The Best 6 Computer Usage Tracker Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unlocking-advanced-data-insights-with-our-cookiebot-technology-platform/"><u>Unlocking Advanced Data Insights with Our Cookiebot Technology Platform</u></a></li>
 </ul></div>
 

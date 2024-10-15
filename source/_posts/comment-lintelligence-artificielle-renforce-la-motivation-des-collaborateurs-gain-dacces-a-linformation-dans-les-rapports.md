@@ -1,7 +1,7 @@
 ---
 title: "Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports"
-date: 2024-10-05T17:06:53.896Z
-updated: 2024-10-08T16:31:36.185Z
+date: 2024-10-09T18:55:56.021Z
+updated: 2024-10-14T17:46:21.975Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be090a3ce22bfc91cc23bb5f7.jpg
@@ -48,10 +48,10 @@ Pour en apprendre davantage sur l’approche No/Low code d’ABBYY ainsi que sur
 Cette étude a été menée par ABBYY en collaboration avec Sapio Research en septembre-octobre 2021 auprès de 5 025 employés répartis en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon et travaillant au sein d'entreprises comptant plus de 500 employés. L’étude porte sur les défis rencontrés par les travailleurs en matière d'extraction de données ainsi que sur l’impact de l'avènement de l'automatisation.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -59,10 +59,10 @@ Cette étude a été menée par ABBYY en collaboration avec Sapio Research en se
 ABBYY permet aux entreprises d’appréhender de manière précise leurs process et contenus via sa plateforme d'[intelligence digitale](https://tools.techidaily.com/abbyy/products/). Les technologies d'ABBYY équipent plus de 5 000 entreprises, dont un grand nombre figurent dans le classement Fortune 500\. L’entreprise est reconnue pour ses solutions de pointe dans les domaines du [Content Intelligence](https://tools.techidaily.com/abbyy/products/) et du [Process Intelligence](https://tools.techidaily.com/abbyy/products/) qui ont pour vocation d’améliorer l'efficacité, la rentabilité et la compétitivité des entreprises ainsi que l’expérience client. ABBYY possède des bureaux dans 14 pays. Pour davantage d'informations, veuillez consulter le site <https://www.abbyy.com/fr/>
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse :
@@ -70,10 +70,10 @@ ABBYY permet aux entreprises d’appréhender de manière précise leurs process
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -99,14 +99,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-reinstate-fb-watch-video-tile/"><u>[New] In 2024, Reinstate FB Watch Video Tile</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-refining-shots-with-gopros-advanced-color-tools/"><u>[New] Refining Shots with GoPro's Advanced Color Tools</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-the-grandest-gatherings-a-chronicle-of-the-most-voted-posts-top-10-for-2024/"><u>[New] The Grandest Gatherings A Chronicle of the Most Voted Posts (Top 10) for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-skyline-artistry-review-studio-25-in-focus-2023/"><u>2024 Approved Skyline Artistry Review Studio 25 in Focus, 2023</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/total-inspection-samsungs-360-panorama-taker/"><u>Total Inspection Samsung’s 360° Panorama Taker</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-solutions-to-decipher-muted-facebook-videos/"><u>[Updated] 2024 Approved Solutions to Decipher Muted Facebook Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-the-world-of-digital-sound-capture-a-deep-dive/"><u>2024 Approved Navigating the World of Digital Sound Capture A Deep Dive</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-websites-engagement-with-advanced-analytics/"><u>Cookiebot-Enabled Site: Enhance Your Website's Engagement with Advanced Analytics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-the-secret-ingredient-for-supercharging-your-site-performance/"><u>Cookiebot: The Secret Ingredient for Supercharging Your Site Performance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/crafting-impactful-digital-content-strategies-for-page-excellence/"><u>Crafting Impactful Digital Content: Strategies for Page Excellence</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/crafting-the-ultimate-mc-community-dwellings/"><u>Crafting the Ultimate MC Community Dwellings</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/discover-the-scope-of-abbyys-technological-impact-annual-ocr-conversion-statistics-for-2017/"><u>Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/extract-audio-from-mp4-the-best-mp4-to-mp3-converters/"><u>Extract Audio From MP4 The Best MP4 to MP3 Converters</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-realme-c67-4g-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Realme C67 4G?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-nokia-xr21-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Nokia XR21 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-strategies-for-finding-and-using-a-lost-iphone-x/"><u>Top Strategies for Finding & Using a Lost iPhone X</u></a></li>
 </ul></div>
 

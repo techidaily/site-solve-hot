@@ -1,7 +1,7 @@
 ---
 title: Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems
-date: 2024-09-29T04:27:22.516Z
-updated: 2024-10-02T19:40:32.633Z
+date: 2024-10-09T22:09:14.788Z
+updated: 2024-10-14T18:04:26.405Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373d5c47d7a53f258bef450907.jpg
@@ -12,10 +12,10 @@ thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373
 ## 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY | Pegasystems 
@@ -31,16 +31,10 @@ Als Technologiepartner von Pega bietet ABBYY intelligente Dokumentenverarbeitung
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Vorteile der Integration
@@ -66,17 +60,10 @@ Der ABBYY FlexiCapture-Konnektor für Pega ermöglicht die Nutzung von Pega BPM 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/pegasystems_logo_rev_120px.png?h=26&iar=0&w=120)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Anwendungsszenarien 
@@ -101,6 +88,13 @@ Durch die Integration von FlexiCapture in die Kreditorenbuchhaltung in Pega verf
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Möchten Sie mit unserem Expertenteam sprechen?
 
 [Demo vereinbaren](https://tools.techidaily.com/abbyy/products/)[Kontakt aufnehmen](https://tools.techidaily.com/abbyy/products/)
@@ -120,20 +114,15 @@ Durch die Integration von FlexiCapture in die Kreditorenbuchhaltung in Pega verf
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-how-to-create-high-impact-educational-videotutorials/"><u>[New] How to Create High-Impact Educational Videotutorials</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-accessing-the-archives-of-social-media-history-pc-and-mobile-guide/"><u>[Updated] In 2024, Accessing the Archives of Social Media History PC & Mobile Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/hd-video-converter-factory-pro-50/"><u>HD Video Converter Factory Pro - 割引！50%オフの特別価格で獲得</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-securely-keep-your-wistia-videos-for-future-use/"><u>How To Securely Keep Your Wistia Videos For Future Use</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Xiaomi Redmi 13C? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/master-the-tips-to-keep-age-of-empires-ii-hd-edition-running-smoothly-without-crashes/"><u>Master the Tips to Keep Age of Empires II HD Edition Running Smoothly without Crashes</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/no-luck-with-roku-app-on-your-smart-tv-unlock-immediate-solutions-now/"><u>No Luck with Roku App on Your Smart TV? Unlock Immediate Solutions Now!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/page-located-no-longer-missing-discover-the-new-route-with-wonderfox/"><u>Page Located - No Longer Missing! | Discover the New Route with WonderFox</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/pre-upgrade-knowledge-key-elements-explained/"><u>Pre-Upgrade Knowledge Key Elements Explained</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/quick-and-easy-mp3-audio-adjuster-instantly-boost-or-reduce-your-music-volume/"><u>Quick & Easy MP3 Audio Adjuster - Instantly Boost or Reduce Your Music Volume</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seamless-playback-of-media-files-across-various-platforms-avoid-compatibility-woes/"><u>Seamless Playback of Media Files Across Various Platforms - Avoid Compatibility Woes</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seamless-steps-for-free-transforming-your-favorite-youtube-content-into-a-playable-dvd/"><u>Seamless Steps for FREE: Transforming Your Favorite YouTube Content Into a Playable DVD</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/solved-move-from-motorola-defy-2-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Motorola Defy 2 to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/rtisans-guide-to-animation-enchantment/"><u>The Artisan's Guide to Animation Enchantment</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/time-traveling-through-history-students-top-youtubes-to-watch-for-2024/"><u>Time Traveling Through History Students' Top YouTubes To Watch for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-selecting-the-top-7-youtube-live-streaming-apps-for-iosandroid-users/"><u>[New] The Ultimate Guide Selecting the Top 7 YouTube Live Streaming Apps for iOS/Android Users</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-photograph-entire-screen-area/"><u>[Updated] In 2024, Photograph Entire Screen Area</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-best-screen-grabber-gadgets-for-youtube-channels/"><u>2024 Approved Best Screen Grabber Gadgets for YouTube Channels</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/windows-11dvd/"><u>最新ガイド：Windows 11でDVDドライブを再認識する方法 - トラブルシューティング完了</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-assistance-with-abbyys-latest-innovation-the-new-mobile-capture-sdk-transforming-the-way-customers-experience-technology/"><u>Enhancing Digital Assistance with ABBYY's Latest Innovation: The New Mobile Capture SDK - Transforming the Way Customers Experience Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/experience-superior-site-personalization-with-our-cookiebot-integration/"><u>Experience Superior Site Personalization with Our Cookiebot Integration</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploring-the-professional-perks-why-joining-abbyy-is-your-smart-move/"><u>Exploring the Professional Perks: Why Joining ABBYY Is Your Smart Move</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/future-proofing-insurance-with-data-a-key-component-for-change/"><u>Future-Proofing Insurance with Data: A Key Component for Change</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-poco-x6-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Poco X6 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-to-sound-trailing-in-premiere-pro-for-2024/"><u>The Ultimate Guide to Sound Trailing in Premiere Pro for 2024</u></a></li>
 </ul></div>
 

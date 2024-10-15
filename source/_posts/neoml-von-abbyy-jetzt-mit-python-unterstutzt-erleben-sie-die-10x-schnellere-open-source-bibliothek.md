@@ -1,7 +1,7 @@
 ---
 title: NeoML Von ABBYY Jetzt Mit Python Unterstützt - Erleben Sie Die 10X Schnellere Open-Source-Bibliothek
-date: 2024-09-25T17:34:46.483Z
-updated: 2024-10-02T21:29:38.014Z
+date: 2024-10-07T19:56:37.141Z
+updated: 2024-10-14T19:38:14.018Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a08727f11a7832f787474e1a64a135e87ab43cd2d3040a1084f509333c65c397.jpg
@@ -18,10 +18,16 @@ thumbnail: https://thmb.techidaily.com/a08727f11a7832f787474e1a64a135e87ab43cd2d
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### NeoML bietet eine 50% schnellere Leistung als andere beliebte Open-Source-Bibliotheken für maschinelles Lernen.
@@ -74,18 +80,19 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-iphones-audio-upgrade-discover-best-software-for-youtube-to-mp3/"><u>[New] 2024 Approved IPhone's Audio Upgrade Discover Best Software for YouTube-to-MP3</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-a-comparative-analysis-androids-finest-video-downloaders-for-2024/"><u>[New] A Comparative Analysis Android's Finest Video Downloaders for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-quick-and-easy-twitter-to-snapchat-video-sharing-tips/"><u>[New] In 2024, Quick & Easy Twitter to Snapchat Video Sharing Tips</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-htc-u23-pro-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On HTC U23 Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-groups-latest-update-insights-from-ulf-persson-ceo-regarding-the-current-covid-19-pandemic-breaking-news/"><u>ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-lance-5-amelioration-avec-la-fonctionnalite-integree-de-mining-des-taches/"><u>ABBYY Lance 5 : Amélioration Avec La Fonctionnalité Intégrée De Mining Des Tâches</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-marketing-optimization-the-role-of-advanced-tracking-technologies-like-cookiebot/"><u>Automated Marketing Optimization: The Role of Advanced Tracking Technologies Like Cookiebot</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-samsung-galaxy-a24-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Samsung Galaxy A24 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-your-digital-presence-with-cookiebot-technology/"><u>Boosting Your Digital Presence with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-boost-your-sites-traffic-efficiently/"><u>Cookiebot-Driven Success: Boost Your Site's Traffic Efficiently</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-websites-engagement-with-advanced-analytics/"><u>Cookiebot-Enabled Site: Enhance Your Website's Engagement with Advanced Analytics</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-xr21-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Nokia XR21 Phone with Broken Screen</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/mpeg-to-mp4-conversion-guide-latest-cross-platform-techniques/"><u>MPEG to MP4 Conversion Guide: Latest Cross-Platform Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-innovations-of-sony-bdp-s6700-a-closer-look/"><u>[New] 2024 Approved Innovations of Sony BDP-S6700 A Closer Look</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-frame-rate-showdown-evaluating-30fps-and-60fps-in-videography/"><u>[Updated] 2024 Approved Frame Rate Showdown Evaluating 30Fps and 60Fps in Videography</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-best-screen-recorder-for-chromebook/"><u>[Updated] In 2024, Best Screen Recorder for Chromebook</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/capturing-chaos-in-high-definition-the-polaroid-xs-review-for-2024/"><u>Capturing Chaos in High Definition - The Polaroid XS Review for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-itel-a60-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Itel A60?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exclusive-download-hassle-free-video-closures-here/"><u>In 2024, Exclusive Download Hassle-Free Video Closures Here</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-oneplus-9-why-the-numbers-arent-adding-up/"><u>In-Depth Analysis of OnePlus 9 - Why the Numbers Aren't Adding Up</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/navigating-the-landscape-of-generative-ai-uncovering-its-functionality-and-prominent-business-users/"><u>Navigating the Landscape of Generative AI – Uncovering Its Functionality & Prominent Business Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-revolutionizing-website-analytics-and-seo/"><u>Optimized with Cookiebot Technology: Revolutionizing Website Analytics and SEO</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionize-your-website-insights-cookiebot-enabled-data-tracking-and-personalization-technology/"><u>Revolutionize Your Website Insights - Cookiebot-Enabled Data Tracking & Personalization Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/scott-opitz-appointed-as-abbyys-new-chief-technology-and-product-officer/"><u>Scott Opitz Appointed as ABBYY's New Chief Technology & Product Officer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-document-capture-with-abbyy-flexiconnect-compatible-with-pegasystems-platform/"><u>Seamless Document Capture with ABBYY FlexiConnect: Compatible with Pegasystems Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/strategic-evaluation-of-robotic-automation-through-advanced-process-analytics-techniques/"><u>Strategic Evaluation of Robotic Automation Through Advanced Process Analytics Techniques</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/streamlined-energy-switching-made-simple-butagaz-partners-with-abbyy-solutions/"><u>Streamlined Energy Switching Made Simple - Butagaz Partners with ABBYY Solutions</u></a></li>
 </ul></div>
 

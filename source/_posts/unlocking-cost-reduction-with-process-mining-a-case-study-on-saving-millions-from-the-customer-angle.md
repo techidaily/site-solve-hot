@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Cost Reduction with Process Mining: A Case Study on Saving Millions From the Customer Angle"
-date: 2024-10-01T20:44:25.795Z
-updated: 2024-10-03T09:56:35.099Z
+date: 2024-10-13T21:10:16.815Z
+updated: 2024-10-14T17:23:56.953Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0b2657385f18cc859d59520b24816f771e8e749f151532892ba053a97dc454cb.jpg
@@ -27,10 +27,10 @@ In the course of 100 years in operation, the institution has deployed hundreds o
 To answer this seemingly simple question, it was necessary to dive into the complexity of all of those systems and find a way to aggregate all of the data sources to study the execution of their transactions end to end.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Creating an end-to-end view of transactions, without coding
@@ -40,6 +40,13 @@ First, they worked internally with IT to consolidate data from 40 different syst
 With the enterprise data from these different systems, they built out a live data stream capturing two million event records per day. With this view, they were finally able to gain a truly end-to-end perspective of their transactions, enabling them to see what portion of transactions goes straight through and what portion requires some type of manual intervention.
 
 While the primary goal of the project was to enable them to benchmark their straight-through processing rates across the industry, the secondary goal was to help them identify their best opportunities for automation, i.e., the ones with the greatest manual handling. Tackling the challenge of stringing together all of these events into a single case view enabled them to achieve both, with surprising results.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Using process mining to assess automation Return on Investment (ROI)
 
@@ -51,22 +58,29 @@ Where previously, research analysts would have to look into one system after ano
 
 By investigating timelines of their suspended transactions, they were able to identify a problematic source of unnecessary expenses: once suspended transactions were unsuspended (because all necessary data had been received), they were not being processed immediately. The transactions that were delayed by at least eight hours between being unsuspended and being processed were incurring $3.6 million in expenses. With this data-based knowledge, they initiated a business case to improve the distribution process so that newly unsuspended transactions would be handled immediately, thus eliminating this unnecessary expense.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Q&A on Process Intelligence and the Automation Fabric
 
 Third-party content
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Demonstrating ROI of process improvement
 
 Another subset of transactions they investigated were high-value cases of over $5,000, which represented $11 million of their $17 million in transaction expenses (but less than 1% of transaction volume). They wanted to understand how these transactions perform compared to the lesser value transactions. With process mining, they identified that one particular type of transaction was occurring three times more often in the high value cases than it was in the lower value cases. And the impact of this was $2.4 million in expenses, due to the lengthiness of the process and the market exposure thus created. With this knowledge, they were able to create a business case to improve the design of this process to handle that type of request on the same day, thereby eliminating the market exposure and related expense.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Improving customer experience with process mining
 
@@ -88,13 +102,6 @@ He is a thought leader with market domain expertise in AI, machine learning, pro
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Additional Insights:
 
 1 / 3 
@@ -102,6 +109,13 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -122,13 +136,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -151,16 +158,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
@@ -174,10 +175,10 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
@@ -189,13 +190,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -310,24 +304,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-complete-guide-to-iphone-7-screen-recordings/"><u>[New] 2024 Approved The Complete Guide to iPhone 7 Screen Recordings</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-engaging-audiences-with-facebooks-virtual-reality-content/"><u>[New] Engaging Audiences with Facebook's Virtual Reality Content</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-proficiency-in-seconds-tailor-made-skillset-strategies-for-rapid-development/"><u>Boost Proficiency in Seconds - Tailor-Made Skillset Strategies for Rapid Development</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-traffic-with-cookiebot-advanced-marketing-automation-solutions/"><u>Boost Traffic with Cookiebot: Advanced Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-your-conversions-with-our-cookiebot-technology/"><u>Boost Your Conversions with Our Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/celebrating-smart-automation-abbyys-proclamation-of-september-as-the-official-month/"><u>Celebrating Smart Automation: ABBYY's Proclamation of September as the Official Month</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-and-the-hunt-for-lucrative-side-projects-how-legitimate-are-they-really/"><u>ChatGPT and the Hunt for Lucrative Side Projects: How Legitimate Are They Really?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-empowerment-elevate-your-websites-functionality-today/"><u>Cookiebot Empowerment: Elevate Your Website's Functionality Today</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-automation-and-personalization-for-enhanced-user-engagement/"><u>Cookiebot-Driven Automation and Personalization for Enhanced User Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-data-collection-enhance-your-websites-analytics/"><u>Cookiebot-Driven Data Collection: Enhance Your Website's Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-visitor-tracking-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-seo-and-user-engagement/"><u>Cookiebot-Enabled: Enhancing Your Website's SEO & User Engagement</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/crucial-specification-verify-your-pc-features-a-compatible-d3d11-gpu-to-function/"><u>Crucial Specification: Verify Your PC Features a Compatible D3D11 GPU to Function</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/podcasting-made-simple-easy-steps-to-capture-live-streams-for-2024/"><u>Podcasting Made Simple Easy Steps to Capture Live Streams for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/reversescreensight-tips/"><u>ReverseScreensight Tips</u></a></li>
-<li><a href="https://media-tips.techidaily.com/step-by-step-guide-setting-up-song-crossfading-feature-on-apple-music/"><u>Step-by-Step Guide: Setting Up Song Crossfading Feature on Apple Music</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-instructions-obtaining-the-logitech-mx-master-drivers-for-optimal-performance/"><u>Step-by-Step Instructions: Obtaining the Logitech MX Master Drivers for Optimal Performance</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-the-ultimate-guide-to-free-green-screen-apps-for-android-and-ios/"><u>Updated In 2024, The Ultimate Guide to Free Green Screen Apps for Android and iOS</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/winter-wonderland-spins-and-jumps/"><u>Winter Wonderland Spins and Jumps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-chart-success-using-youtube-statistics-to-grow-engagement/"><u>[New] 2024 Approved Chart Success Using YouTube Statistics to Grow Engagement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-mac-slicer-software-enhance-video-production-prowess-for-2024/"><u>[Updated] Best Mac Slicer Software Enhance Video Production Prowess for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-snap-into-clarity-10-online-tools-to-blur-proof-images/"><u>[Updated] Snap Into Clarity 10 Online Tools to Blur-Proof Images</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-video-vanishing-act-cutting-duration-on-youtube/"><u>[Updated] Video Vanishing Act Cutting Duration on YouTube</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/efficient-conversion-techniques-turning-wmv-files-into-high-quality-wav/"><u>Efficient Conversion Techniques: Turning WMV Files Into High-Quality WAV</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-vob-files-into-common-formats-like-h264-mp4-mkv-mov-and-avi/"><u>Effortless Conversion of VOB Files Into Common Formats Like H.264 MP4, MKV, MOV & AVI</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-save-your-favorite-antenna-tv-episodes-updated-techniques/"><u>How to Save Your Favorite Antenna TV Episodes: Updated Techniques</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-vivo-y100i-power-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Vivo Y100i Power 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unlock-insta-money-potential-with-our-top-7-list/"><u>In 2024, Unlock Insta Money Potential with Our Top 7 List</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/join-wonderfoxs-lucrative-affiliate-scheme-and-earn-profits-now/"><u>Join WonderFox's Lucrative Affiliate Scheme & Earn Profits Now!</u></a></li>
 </ul></div>
 

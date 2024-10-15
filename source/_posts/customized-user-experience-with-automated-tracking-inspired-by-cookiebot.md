@@ -1,7 +1,7 @@
 ---
 title: "Customized User Experience with Automated Tracking: Inspired by Cookiebot"
-date: 2024-09-26T04:40:26.327Z
-updated: 2024-09-28T08:40:26.083Z
+date: 2024-10-08T16:26:26.568Z
+updated: 2024-10-14T19:22:00.704Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/177db7c45381f8f94f304fef5764a3ae21d49762f0d50b119bc79b8987d4ee6b.jpg
@@ -20,10 +20,10 @@ Transportation & Logistics | Accounts Payable Automation
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY Intelligent Document Processing Reduces Invoice Processing Time by 90%
@@ -32,22 +32,21 @@ Transportation & Logistics | Accounts Payable Automation
 
 ![Sumitomo Warehouse Co. Ltd. & ABBYY](https://static3.abbyy.com/abbyycommedia/38086/ds-260_sumitomo-case-study_tn_gray_556-303.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Customer Overview
 
 ![Sumitomo Warehouse Co. Ltd.](https://static4.abbyy.com/abbyycommedia/30003/sumitomo-en-logo-116x80.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name         | Sumitomo Warehouse Co. Ltd.                                                 |
@@ -101,10 +100,10 @@ Invoice-processing time reduced from more than 40 minutes to 4 minutes per docum
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
@@ -114,6 +113,13 @@ Invoice-processing time reduced from more than 40 minutes to 4 minutes per docum
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static3.abbyy.com/abbyycommedia/38111/ds-260_sumitomo-case-study_tn_gray_360-162.jpg)](https://static3.abbyy.com/abbyycommedia/38078/customer-story-intelligent-document-processing-transportation-sumitomo-warehouse-en.pdf "PDF Version") [PDF Version](https://static3.abbyy.com/abbyycommedia/38078/customer-story-intelligent-document-processing-transportation-sumitomo-warehouse-en.pdf "PDF Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Read the document](https://static3.abbyy.com/abbyycommedia/38078/customer-story-intelligent-document-processing-transportation-sumitomo-warehouse-en.pdf "PDF Version") 
 
@@ -142,22 +148,18 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-samsung-galaxy-m14-4g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Samsung Galaxy M14 4G? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Oppo A38 | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-iphone-se-2020-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off iPhone SE (2020) without Password</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-artistic-arenas-of-2022s-olympians/"><u>In 2024, Artistic Arenas of 2022'S Olympians</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-dissecting-tseries-profits-from-youtube-platforms/"><u>In 2024, Dissecting TSeries Profits From YouTube Platforms</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-your-iphone-13-pro-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>In 2024, How to Unlock Your iPhone 13 Pro Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-nokia-g310-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Nokia G310? Fixed | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-apple-iphone-13-here-is-the-answer-drfone-by-drfone-virtual-ios/"><u>In 2024, Wondering the Best Alternative to Hola On Apple iPhone 13? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/introducing-abbyys-innovative-no-code-solution-vantage-and-exclusive-ai-tools-collection/"><u>Introducing ABBYY's Innovative No-Code Solution: Vantage Ⅱ & Exclusive AI Tools Collection</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-obstacles-in-customer-onboarding-key-drivers-and-critical-issues-revealed-through-survey-data/"><u>Navigating the Obstacles in Customer Onboarding: Key Drivers and Critical Issues Revealed Through Survey Data</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/new-accessible-reading-solution-abbyy-collaborates-with-amedia-for-an-ocr-app-designed-for-the-visually-impaired-community/"><u>New Accessible Reading Solution: ABBYY Collaborates with Amedia for an OCR App Designed for the Visually Impaired Community</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-online-presence-mastering-effective-pages/"><u>Optimizing Your Online Presence: Mastering Effective Pages</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/revitalizza-le-tue-fotografie-in-forma-di-4k8k10k-utilizzando-la-tecnologia-ai-di-winxvideo/"><u>Revitalizza Le Tue Fotografie in Forma Di 4K/8K/10K Utilizzando La Tecnologia AI Di Winxvideo</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-american-supply-network-in-2020-lessons-from-reuters-panel-on-efficient-automation-techniques/"><u>Revolutionize Your American Supply Network in 2020: Lessons From Reuter's Panel on Efficient Automation Techniques</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50% Expected Within Two Years, Says TechTarget</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-building-a-sustainable-income-via-youtube-and-adsense/"><u>[New] Building a Sustainable Income via YouTube and AdSense</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-decoding-youtubes-procedure-after-a-video-is-uploaded/"><u>[New] Decoding YouTube's Procedure After a Video Is Uploaded</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-mastering-webcam-and-screen-capture-unison-techniques-for-2024/"><u>[New] Mastering Webcam & Screen Capture Unison Techniques for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-the-best-practices-for-recording-apex-heroes/"><u>[Updated] The Best Practices for Recording Apex Heroes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-copyright-concerns-for-recording-screens/"><u>2024 Approved YouTube Copyright Concerns for Recording Screens</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-troubleshoot-and-eliminate-latency-problems-for-wireless-keyboards-on-windows-systems/"><u>How to Troubleshoot and Eliminate Latency Problems for Wireless Keyboards on Windows Systems</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-top-10-clear-sound-microphones-for-cams/"><u>In 2024, Top 10 Clear Sound Microphones for Cams</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-videos-into-a-series-of-images/"><u>Step-by-Step Guide: Transforming Videos Into a Series of Images</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/the-ultimate-guide-to-the-most-effective-av-to-dvd-converters-of-2024-for-pcs-running-win-1011/"><u>The Ultimate Guide To The Most Effective Av To Dvd Converters of 2024 for PCs Running Win 10/11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vlcts-how-to-merge-ts-files-using-vlc-media-player/"><u>VLCメディアプレーヤーでTSファイル連結の手順 - How to Merge TS Files Using VLC Media Player</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027274485-windows-10/"><u>Windows 10向けゲーム録画の究極ガイド</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/windows-users-handbook-transforming-ts-videos-to-xvid-with-easy-methods/"><u>Windows Users' Handbook: Transforming TS Videos to Xvid with Easy Methods</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windowsh2-hevc/"><u>WindowsでH.2지베이 HEVCフォーマットの動画再生に問題がある方のハウツー</u></a></li>
 </ul></div>
 

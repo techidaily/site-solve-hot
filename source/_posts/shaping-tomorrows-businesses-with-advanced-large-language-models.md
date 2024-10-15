@@ -1,7 +1,7 @@
 ---
 title: Shaping Tomorrow's Businesses with Advanced Large Language Models
-date: 2024-10-03T16:21:46.872Z
-updated: 2024-10-08T17:00:05.762Z
+date: 2024-10-11T17:01:45.344Z
+updated: 2024-10-15T00:30:58.435Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d4011b13ce09e30b67e00ca49a12c263fc568d55d53da9d960e8b4889ca636b6.jpg
@@ -39,13 +39,6 @@ Bringing value to people is at the cornerstone of everything we do at ABBYY. Dec
 
 Along this journey, we witnessed rapid hardware advancements, such as the launch of AWS in 2006, which introduced the larger public to cloud computing, and the advent of General Purpose GPUs, which opened doors for the artificial intelligence (AI) and machine learning (ML) advancements we see today.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### AI systems shaping the future of intelligent enterprise
 
 When we talk about the rapid advancements in AI and ML, it's worth noting that these technologies are older than commonly believed.
@@ -61,22 +54,21 @@ The hype surrounding LLMs is real. The “Peak of Inflated Expectations” has n
 ![Are Large Language Models (LLMs) the Future?](https://static1.abbyy.com/abbyycommedia/37501/are-large-language-models-llms-the-future-4.png?width=601&height=389)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 What makes it even more extraordinary is that this isn't limited to the tech community; LLMs have gained widespread recognition. Everyone seems to have heard about what LLMs can do, what they are believed to be capable of, and even their perceived shortcomings.
 
 In fact, the European Union quickly passed new AI legislation, a remarkable feat considering the pace at which lawmakers usually operate. Perhaps they sought inspiration from sci-fi movies or ChatGPT to draft the laws!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Leveraging ChatGPT with ABBYY Vantage
 
@@ -108,6 +100,13 @@ Join me on [The Intelligent Enterprise](https://tools.techidaily.com/abbyy/produ
 
 ![Maxime Vermeir 110X110 (1)](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -116,6 +115,13 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Additional Insights:
 
 1 / 3 
@@ -123,10 +129,10 @@ Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg) **Is Generative AI Trustworthy?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Subscribe for updates
@@ -186,16 +192,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-exploring-snapseeds-power-for-everyday-photos/"><u>[New] Exploring Snapseed's Power for Everyday Photos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-key-to-mastering-tiktok-a-user-friendly-manual-for-applewindows-computers-for-2024/"><u>[New] The Key to Mastering TikTok A User-Friendly Manual for Apple/Windows Computers for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-how-to-assemble-a-personalized-youtube-music-list-for-2024/"><u>[Updated] How to Assemble a Personalized YouTube Music List for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-2023s-leading-youtube-engagement-tools/"><u>[Updated] In 2024, 2023'S Leading YouTube Engagement Tools</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-giggles-galore-an-in-depth-look-at-the-goofy-film/"><u>In 2024, 'Giggles Galore' – An In-Depth Look at The Goofy Film</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/lenovo-thinkpad-t14s-launches-with-stunning-features-qualcomm-snapdragon-x-elite-processor-impressive-32gb-ram-and-a-whopping-1tb-ssd/"><u>Lenovo ThinkPad T14s Launches with Stunning Features: Qualcomm Snapdragon X Elite Processor, Impressive 32GB RAM & a Whopping 1TB SSD</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mp4mkvmovmtsm2ts/"><u>MP4とMKVのようなMOVやMTS/M2TS形式のビデオファイルをスマートに分割するテクニック</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/sound-quality-face-off-google-nest-audio-versus-nest-mini-explored/"><u>Sound Quality Face-Off: Google Nest Audio Versus Nest Mini Explored</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-changing-the-dvd-region-setting-on-your-pc/"><u>Step-by-Step Guide to Changing the DVD Region Setting on Your PC</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-adding-subtitles-to-your-facebook-videos/"><u>Step-by-Step Guide: Adding Subtitles to Your Facebook Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-3-secure-erome-video-downloading-tools-safely-extracting-content/"><u>Top 3 Secure Erome Video Downloading Tools - Safely Extracting Content</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-elitepixel-recorder-winos-series/"><u>[New] ElitePixel Recorder WinOS Series</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-strategies-for-effective-ppt-sharing-in-google-meet-sessions-for-2024/"><u>[New] Strategies for Effective PPT Sharing in Google Meet Sessions for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-screencapture-hq-top-browsers-for-digital-footprints-for-2024/"><u>[Updated] ScreenCapture HQ Top Browsers for Digital Footprints for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/advanced-tips-for-animation-using-windows-movie-maker/"><u>Advanced Tips for Animation Using Windows Movie Maker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-evaluating-tablets-based-on-their-physical-characteristics-size-and-weight/"><u>Comprehensive Guide to Evaluating Tablets Based on Their Physical Characteristics: Size & Weight</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/kddiabbyy-ocr/"><u>KDDIとABBYY OCRソフトウェアの新たな提携について:日本発! | 最新プレスリリース</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/latest-update-abbyy-releases-enhanced-abbyy-flexicapture-v122/"><u>Latest Update: ABBYY Releases Enhanced ABBYY FlexiCapture V12.2</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/model-b-1913-27-adjustable-rear-sight-two-settings-optional-safety-first-firing-pin-block-lever-between-trigger-and-slide-unfluted-grip/"><u>Model B - 1913-27, Adjustable Rear Sight (Two Settings), Optional Safety First Firing Pin Block Lever Between Trigger and Slide, Unfluted Grip</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigating-digital-change-in-insurance-your-ultimate-checklist-featuring-abbyy-solutions/"><u>Navigating Digital Change in Insurance: Your Ultimate Checklist Featuring ABBYY Solutions</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-comprehensive-guide-for-free-video-translator-downloading/"><u>New 2024 Approved A Comprehensive Guide for Free Video Translator Downloading</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/nouvelle-version-du-logiciel-de-reconnaissance-ocr-abbyy-finereader-server-est-maintenant-disponible/"><u>Nouvelle Version Du Logiciel De Reconnaissance OCR ABBYY : FineReader Server Est Maintenant Disponible</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimized-with-advanced-traffic-analytics-the-cookiebot-way/"><u>Optimized with Advanced Traffic Analytics: The Cookiebot Way</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-revolutionizing-website-analytics-and-seo/"><u>Optimized with Cookiebot Technology: Revolutionizing Website Analytics and SEO</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionize-your-website-insights-cookiebot-enabled-data-tracking-and-personalization-technology/"><u>Revolutionize Your Website Insights - Cookiebot-Enabled Data Tracking & Personalization Technology</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/snappy-screens-the-windows-way/"><u>Snappy Screens The Windows Way</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-vivo-s18e-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo S18e Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unpacking-the-future-of-computing-with-a-review-on-the-raspberry-pi-400/"><u>Unpacking the Future of Computing with a Review on the Raspberry Pi 400</u></a></li>
 </ul></div>
 

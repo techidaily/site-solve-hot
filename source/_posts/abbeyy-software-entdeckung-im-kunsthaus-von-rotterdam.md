@@ -1,7 +1,7 @@
 ---
 title: ABBEYY-Software-Entdeckung Im Kunsthaus Von Rotterdam
-date: 2024-10-05T16:53:56.877Z
-updated: 2024-10-08T18:20:02.401Z
+date: 2024-10-11T21:34:34.842Z
+updated: 2024-10-15T01:08:44.420Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553b264310d7d2980b9ce91d3e.jpg
@@ -19,6 +19,13 @@ Social Work
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Enthüllt: ABBYY Software im Rotterdam Museum of Modern Art
 
 [Druckversion des Artikels anzeigen oder herunterladen (PDF 455 kb)](https://static4.abbyy.com/abbyycommedia/6164/cs-simon-heijdens-rs-d.pdf) 
@@ -29,18 +36,18 @@ Social Work
 | ------- | ------------------------------------------------------ |
 | Website | [www.simonheijdens.com](http://www.simonheijdens.com/) |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Zum Hintergrund
 
 Simon Heijdens ist ein weltbekannter holländischer Lichtinstallationskünstler. Ausgebildet in Design und experimentellem Film, wird seine Arbeit heute in Galerien rund um den Globus gezeigt und Unternehmen wie Swarovski engagieren ihn wegen seiner Fähigkeit, Natur und Gefühl in einen künstlichen Raum zu bringen. Heijdens benutzt Licht und Projektion, um die Faszination für die Rolle auszudrücken, die Objekte in unserer Gesellschaft spielen und um zu zeigen, wie sich unsere Wahrnehmung dieser Objekte verändern kann. Er kombiniert Technologie mit subtilem Design um künstlichen Objekten einen natürlichen Charakter zu verleihen und um in einem ansonsten statischen Raum wieder Zeit und Wandel einzuführen.
 
 Heijdens’ neueste Arbeit mit dem Titel „Wortgeflecht” wird im Espresso Café im Rotterdam Museum of Modern Art gezeigt und war eine technologische Herausforderung. Zusätzlich zum Design von Raum und Einrichtung wollte Heijdens ein Kunstwerk schaffen, das die Besucher des Cafés mit einbezieht. Er stellte sich die Cafétische als Oberfläche für einen Dialog vor, in dem Informationen in Form von Zeitungsschlagzeilen, Prospekten oder sogar Zigarettenschachteln ausgetauscht werden. Heijdens wollte diese Informationen aufzeichnen da er glaubte, dass sie sehr viel über die einzelnen Momente im Zeitverlauf erzählen. Er wollte eine lebendige![„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art](https://static1.abbyy.com/abbyycommedia/6029/museumofmodernart.png "„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art ") Aufzeichnung der Geschichte des Cafés schaffen, in der jeder Tisch seine eigene Geschichte erzählen sollte. „Was wäre, wenn ein Tisch ein Archiv seiner eigenen Nutzung werden könnte?” fragt Heijdens. „In meiner Arbeit geht es um das Aufbrechen der statischen Natur von Architektur. Ich mache Einschnitte in einem Raum um zu zeigen, was er erlebt hat und um zuzuhören, wie er benutzt wurde. Ich wollte nicht, dass die Menschen einfach nur durch das Café gehen und es wieder verlassen, ohne ihre Spuren zu hinterlassen. Ich wollte, dass zurückbleibt was dort passierte” sagt er.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Die Herausforderung
 
@@ -53,10 +60,10 @@ Da das Werk eine dauerhafte Installation im Café sein sollte, musste es in der 
 „Ich arbeitete auch mit einigen recht unterschiedlichen Elementen, angefangen von Beegungsmeldern über Bilderfassung und Zeichenerkennung bis hin zur tatsächlichen Projektion. Alle diese einzelnen Elemente zusammen zum Funktionieren zu bringen, war eine Herausforderung.”
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Die Lösung
@@ -66,13 +73,6 @@ Heijdens sah sich mehrere serverbasierte Lösungen zur optischen Zeichenerkennun
 Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und die ABBYY Software ermittelte jeglichen darin enthaltenen Text. Die Software bereinigte die Bilder, ergänzte unvollständige Wörter und wandelte sie in einfachen, durchsuchbaren Text um. Dieser wurde dann an einen Linux Server geschickt, um in den Textkreis eingewoben und an die Decke projiziert zu werden. Der Text wurde auch an die Registrierkasse des Cafés geschickt, wo die Worte dieses Augenblickes auf den Kassenzettel des Kunden gedruckt werden konnten. Der Beleg wurde so zu einem Teil des Kunstwerkes und zu einem Erinnerungsstück, das der Kunde mitnehmen konnte. „Das System läut über zwei Plattformen, von der OCR Einheit auf dem Windows Recognition Server zur Technologie für die Projektion auf dem Linux Server”, sagt Jupp Stoepetie, CEO von ABBYY Europe. „Die ganze Integration war außerordentlich einfach, so dass Simon alles ganz alleine einrichten konnte.“ Tatsächlich fand der erste Besuch eines Vertreters von ABBYY vor Ort anlässlich der Enthüllung des Kunstwerkes statt. Das Software-Setup war so einfach durchzuführen, dass ABBYYs technische Unterstützung gar nicht erforderlich war.   
 „Auch die automatische Fehlertoleranz war Teil der Lösung”, so Jupp Stoepetie weiter.  
 „Das System ist in der Lage, auf intelligente Weise Aufgaben aufzuteilen und zu erkennen, wenn diese nicht ausgeführt werden. Gibt es ein Problem, so werden diese Aufgaben einfach umverteilt, um den Engpass zu umgehen. Die Lösung toleriert Systemfehler der darunter liegenden Computersysteme und kann sich selbst korrigieren, ohne dass menschliches Eingreifen erforderlich ist.”
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Das Ergebnis
 
@@ -84,6 +84,13 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -91,19 +98,6 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 [Kontakt ›](https://tools.techidaily.com/abbyy/products/)
 
 Teilen 
-
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -126,19 +120,14 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-draw-eyes-to-your-subject-iphone-photo-tips-with-leading-lines/"><u>[New] In 2024, Draw Eyes to Your Subject IPhone Photo Tips with Leading Lines</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-dissecting-your-profit-share-in-youtube-short-creation/"><u>[Updated] Dissecting Your Profit Share in YouTube Short Creation</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/advanced-stealth-tactics-eliminate-11s-search-icon/"><u>Advanced Stealth Tactics: Eliminate 11'S Search Icon</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-key-ingredient-in-your-seo-recipe/"><u>Cookiebot: The Key Ingredient in Your SEO Recipe</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customize-with-cookiebot-boost-engagement-and-growth-on-your-site/"><u>Customize with Cookiebot: Boost Engagement and Growth on Your Site</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-ad-targeting-with-the-advanced-technology-of-cookiebot/"><u>Customized Ad Targeting with the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/digital-preservation-with-abbyy-tools-at-the-core-of-south-koreas-archival-project/"><u>Digital Preservation with ABBYY Tools at the Core of South Korea's Archival Project</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-web-personalization-using-the-power-of-cookiebot-technology/"><u>Elevate Web Personalization Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-website-traffic-with-advanced-cookiebot-seo-solutions/"><u>Enhance Website Traffic with Advanced Cookiebot SEO Solutions</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/evaluating-the-need-for-a-chatgpt-app-when-its-better-not-to-have-one/"><u>Evaluating the Need for a ChatGPT App - When It's Better Not To Have One</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-samsung-galaxy-s23-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Samsung Galaxy S23 phone? | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-integrating-cognitive-science-into-organizational-leadership-practices/"><u>In 2024, Integrating Cognitive Science Into Organizational Leadership Practices</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-premier-mac-gif-capturer-pro/"><u>In 2024, Premier Mac GIF Capturer Pro</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-50-must-try-virtual-bikes-for-riders-for-2024/"><u>The 50 Must-Try Virtual Bikes for Riders for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/how-to-troubleshoot-and-fix-the-black-screen-problem-in-windows-10-following-a-system-upgrade/"><u>How to Troubleshoot and Fix the Black Screen Problem in Windows 10 Following a System Upgrade</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-y100-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo Y100 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mgs/"><u>MGSアニメーションのクリップ撮りテクニック</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-steps-recording-teamviewer-meetings-on-windows-11/"><u>Simple Steps: Recording TeamViewer Meetings on Windows 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-capturing-your-powerpoint-slides-with-hd-audio-and-video/"><u>Step-by-Step Guide: Capturing Your PowerPoint Slides with HD Audio & Video</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-mp4-converter-from-dvd-for-windows-10-and-11-users/"><u>Top-Rated MP4 Converter From DVD for Windows 10 & 11 Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unmasking-the-dangerous-monsters-in-monster-hunter-world-an-expert-review/"><u>Unmasking the Dangerous Monsters in 'Monster Hunter: World' – An Expert Review</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-v29-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo V29 Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
 </ul></div>
 

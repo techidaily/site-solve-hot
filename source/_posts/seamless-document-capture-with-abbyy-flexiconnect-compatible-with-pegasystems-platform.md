@@ -1,7 +1,7 @@
 ---
 title: "Seamless Document Capture with ABBYY FlexiConnect: Compatible with Pegasystems Platform"
-date: 2024-10-01T18:16:12.606Z
-updated: 2024-10-08T18:31:07.862Z
+date: 2024-10-09T21:50:05.360Z
+updated: 2024-10-14T23:13:21.018Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4fb035ab41968a0873cebbd66.jpg
@@ -12,10 +12,16 @@ thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4f
 ## 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY | Pegasystems 
@@ -23,10 +29,16 @@ thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4f
 Enabling Pega BPM and RPA to transform documents and unstructured content automatically into actionable information for customer service and operational excellence.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY FlexiCapture Connector for Pega
@@ -126,24 +138,20 @@ Page URL
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-a-comprehensive-approach-to-live-video-on-websites/"><u>[New] A Comprehensive Approach to Live Video on Websites</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-innovative-metaverse-gags-and-their-creators/"><u>[New] In 2024, Innovative Metaverse Gags & Their Creators</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-iphone-hacks-for-minimalist-video-presentation/"><u>[Updated] In 2024, IPhone Hacks for Minimalist Video Presentation</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/a-compreehers-path-to-aspect-ratio-mastery-in-facebook-videos-for-2024/"><u>A Compreeher's Path to Aspect Ratio Mastery in Facebook Videos for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-as-your-personal-cooking-tutor-for-healthy-eating/"><u>ChatGPT as Your Personal Cooking Tutor for Healthy Eating</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Gionee F3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-stand-out-from-the-noise-logo-design-for-podcast-success/"><u>In 2024, Stand Out From the Noise Logo Design for Podcast Success</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-adobe-premiere-pro-the-complete-guide-to-importing-and-exporting-videos-for-2024/"><u>New Adobe Premiere Pro The Complete Guide to Importing and Exporting Videos for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/pioneering-changes-to-your-pubg-characters-speech-for-2024/"><u>Pioneering Changes to Your PUBG Character's Speech for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-sites-user-experience-using-the-advanced-features-of-cookiebot/"><u>Revolutionize Your Site's User Experience Using the Advanced Features of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-patient-payments-master-the-revenue-cycle-with-abbyys-ebook-on-healthcare-finance/"><u>Revolutionizing Patient Payments: Master the Revenue Cycle with ABBYY's eBook on Healthcare Finance</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/streamlining-the-process-dells-way-to-screen-recording-for-2024/"><u>Streamlining the Process Dell's Way to Screen Recording for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/the-best-solution-for-assessing-the-202e-year-with-everest-group-and-abbyys-peak-matrix/"><u>The Best Solution for Assessing the 202E Year with Everest Group and ABBYY's PEAK Matrix</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-your-phone-into-a-pro-scanner-with-abbyys-topnotch-ai-technology/"><u>Transform Your Phone Into a Pro Scanner with ABBYY's Topnotch AI Technology!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transformative-mobile-tools-discovering-the-top-game-changers-on-your-smartphone/"><u>Transformative Mobile Tools: Discovering the Top Game-Changers on Your Smartphone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-intelligent-process-automation-an-overview/"><u>Understanding Intelligent Process Automation: An Overview</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unlocking-successful-ad-campaigns-through-smart-technology-insights-into-cookiebot-solutions/"><u>Unlocking Successful Ad Campaigns Through Smart Technology: Insights Into Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/utilizing-cookiebot-technology-for-tailored-user-experience-on-websites/"><u>Utilizing Cookiebot Technology for Tailored User Experience on Websites</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/yum-chinas-finance-department-soars-higher-using-abbyy-flexicapture-at-their-shared-services-hub/"><u>YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-finding-the-best-4k-monitors-1-10-rankings-for-2024/"><u>[New] Finding the Best 4K Monitors #1-10 Rankings for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-vdy-hd-snapshot-reviews-complete-evaluation-for-2024/"><u>[New] VDY HD Snapshot Reviews Complete Evaluation for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-lens-legends-cutting-edge-camera-choices-1-10/"><u>[Updated] In 2024, Lens Legends Cutting-Edge Camera Choices #1-10</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ai-innovation-fuels-abbyys-financial-triumph-annual-revenue-soars-by-60-featured-in-idc-worldwide-marketscape-ranking/"><u>AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60% - Featured in IDC Worldwide MarketScape Ranking</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/apple-launches-comprehensive-developer-support-with-ios-17-and-visionos-on-the-horizon-what-you-need-to-know/"><u>Apple Launches Comprehensive Developer Support with iOS 17 & VisionOS on the Horizon: What You Need to Know</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automated-consent-management-with-cookiebot-enhancing-data-privacy-compliance/"><u>Automated Consent Management with Cookiebot: Enhancing Data Privacy Compliance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automatisation-des-factures-chez-pepsico-grace-a-loutil-de-reconnaissance-optique-numerique-dabbyy-flexicapture/"><u>Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-proficiency-in-seconds-tailor-made-skillset-strategies-for-rapid-development/"><u>Boost Proficiency in Seconds - Tailor-Made Skillset Strategies for Rapid Development</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-traffic-with-cookiebot-advanced-marketing-automation-solutions/"><u>Boost Traffic with Cookiebot: Advanced Marketing Automation Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-your-conversions-with-our-cookiebot-technology/"><u>Boost Your Conversions with Our Cookiebot Technology</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/expert-insights-switching-from-webp-to-jpg-format/"><u>Expert Insights Switching From WebP to JPG Format</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-poco-x5-pro-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Poco X5 Pro Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/snap-clean-top-10-apps-to-sharpen-your-digital-world-for-2024/"><u>Snap Clean Top 10 Apps to Sharpen Your Digital World for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-stock-photos-their-journey-to-internet-fame-for-2024/"><u>Top Stock Photos Their Journey to Internet Fame for 2024</u></a></li>
 </ul></div>
 

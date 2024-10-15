@@ -1,7 +1,7 @@
 ---
 title: "Navigating the 'New Normal': How and Why Cloud IT Investments Are Set to Soar"
-date: 2024-09-26T01:37:02.490Z
-updated: 2024-10-03T09:02:10.140Z
+date: 2024-10-11T20:27:06.506Z
+updated: 2024-10-14T18:48:20.208Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/819ca37a79eec3bdd5aa4e06aa1b76048f3e0307801a786c71f9bbf8a10f29d0.jpg
@@ -21,37 +21,38 @@ September 16, 2020
 
 After many years of continuous growth, IT investments are predicted to [drop by 7.3% in 2020](https://www.gartner.com/en/newsroom/press-releases/2020-07-13-gartner-says-worldwide-it-spending-to-decline-7-point-3-percent-in-2020), according to Gartner, with the largest gaps expected in spending for hardware such as IT devices and data center infrastructure. At the same time, this renowned market research company predicts worldwide revenues that relate to public cloud IT services [to increase by 6.3% in 2020](https://www.gartner.com/en/newsroom/press-releases/2020-07-13-gartner-says-worldwide-it-spending-to-decline-7-point-3-percent-in-2020). At first glance, the reports deliver contradictory messages; but in reality, they underpin the fact that the cloud computing will continue to surge during the months ahead.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fast adoption of cloud computing IT within a slow IT market
 
 ![pursue cloud IT strategies](https://static1.abbyy.com/abbyycommedia/29600/cloud-it-spending-forecast-4.png)
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the beginning of 2020, the COVID-19 pandemic reached the world quickly and caught enterprise companies by surprise. Very strict lock-down regulations in many countries cut off supply chains, made customer meetings impossible, banned employees from offices, and caused an atmosphere of uncertainty. This led to shrinking revenue, investment cut-offs, and reductions in spending (including IT) in many companies.
 
 As economies gradually re-open during the post-pandemic phase, the need to conduct postponed IT projects will lead to new IT spending—but in a changed world. In the ‘new normal’ post-pandemic times, companies will re-evaluate their IT plans, and very likely pursue cloud IT strategies.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Why will enterprises move their IT into the cloud faster than ever?
 
 ![cloud-based IT systems](https://static1.abbyy.com/abbyycommedia/29598/cloud-it-spending-forecast-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The following trends will underpin the pursuits of enterprises to move their IT infrastructure into the cloud:
 
@@ -60,13 +61,6 @@ The following trends will underpin the pursuits of enterprises to move their IT 
 * Many enterprises were strongly affected by the economic impacts and had to switch into critical ‘survivor mode.’ These companies had to sharply focus on their core business and protect business relations with their customers—and as a result, refrained from investing in their own IT infrastructure but rather outsourced many IT services in order to stay flexible. This included reducing IT personnel as well as savings on upfront payment for IT hardware and software purchases. The necessary IT resources were preferably rented within the cloud space. As the business starts growing during the post-pandemic times, the rented cloud IT resources will be able to scale with it.
 
 ![moving IT into the cloud](https://static1.abbyy.com/abbyycommedia/29599/cloud-it-spending-forecast-3.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 As enterprise customers will be increasing their spending for cloud-based IT systems, IT providers must get ready with offerings that meet the demand of their clients in the ‘new normal’ post-pandemic world: the need for flexible and scalable cloud-based applications that can be accessed by users 24/7 from wherever people need to access them—from the standard office, from the home office, or from the beach.
 
@@ -77,10 +71,10 @@ As enterprise customers will be increasing their spending for cloud-based IT sys
 Eva Weber
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -146,24 +140,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-elite-selection-of-3ds-simulators-for-pc-gamers/"><u>[New] In 2024, Elite Selection of 3Ds Simulators for PC Gamers</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-step-by-step-screencasting-team-virtual-gatherings/"><u>[New] Step-by-Step Screencasting Team Virtual Gatherings</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-6-ways-to-record-mov-files-on-windows-11/"><u>[Updated] 2024 Approved 6 Ways to Record .mov Files on Windows 11</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-gaming-at-its-peak-platform-9-insights/"><u>[Updated] Gaming at Its Peak Platform #9 Insights</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-the-ultimate-guide-to-sound-changes-in-ps-console-games-for-2024/"><u>[Updated] The Ultimate Guide to Sound Changes in PS Console Games for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-vob-files-into-common-formats-like-h264-mp4-mkv-mov-and-avi/"><u>Effortless Conversion of VOB Files Into Common Formats Like H.264 MP4, MKV, MOV & AVI</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-save-your-favorite-antenna-tv-episodes-updated-techniques/"><u>How to Save Your Favorite Antenna TV Episodes: Updated Techniques</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-easy-steps-to-record-your-vlc-videos-effectively/"><u>In 2024, Easy Steps to Record Your VLC Videos Effectively</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-harnessing-video-magic-channel-creation-wizardry/"><u>In 2024, Harnessing Video Magic Channel Creation Wizardry</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-streamlining-submission-a-podcasters-guide/"><u>In 2024, Streamlining Submission A Podcaster's Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/join-wonderfoxs-lucrative-affiliate-scheme-and-earn-profits-now/"><u>Join WonderFox's Lucrative Affiliate Scheme & Earn Profits Now!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mgs/"><u>MGSアニメーションのクリップ撮りテクニック</u></a></li>
-<li><a href="https://facebook.techidaily.com/say-it-with-a-like-favorite-platform/"><u>Say It with a Like: Favorite Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/simple-steps-recording-teamviewer-meetings-on-windows-11/"><u>Simple Steps: Recording TeamViewer Meetings on Windows 11</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-capturing-your-powerpoint-slides-with-hd-audio-and-video/"><u>Step-by-Step Guide: Capturing Your PowerPoint Slides with HD Audio & Video</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-strategies-for-securely-grabbing-premium-udemy-classes-without-breaking-a-sweat/"><u>Top Strategies for Securely Grabbing Premium Udemy Classes Without Breaking a Sweat!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-rated-mp4-converter-from-dvd-for-windows-10-and-11-users/"><u>Top-Rated MP4 Converter From DVD for Windows 10 & 11 Users</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ultimate-guide-choosing-the-1-dvd-to-mp4-conversion-software-in-202er-for-windows-11/"><u>Ultimate Guide: Choosing the #1 DVD to MP4 Conversion Software in 202Er for WINDOWS 11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-test-of-sonic-quality-sony-wh-1000xm4/"><u>Ultimate Test of Sonic Quality - Sony WH-1000XM4</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-the-secrets-of-successfully-posting-imovie-videos-on-vimeo/"><u>[New] 2024 Approved The Secrets of Successfully Posting iMovie Videos on Vimeo</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-become-a-viral-meme-magician-with-9gag-techniques/"><u>[New] Become a Viral Meme Magician with 9GAG Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigating-through-top-rated-livestreams-your-guide-to-watching-cricket/"><u>[New] Navigating Through Top-Rated Livestreams Your Guide to Watching Cricket</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-exclusive-android-3d-video-enthusiasts-choice/"><u>[Updated] Exclusive Android 3D Video Enthusiasts' Choice</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unlocking-your-potential-in-youtube-video-production-scripts/"><u>[Updated] In 2024, Unlocking Your Potential in YouTube Video Production Scripts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/craftsmanship-in-photos-and-videos-the-ultimate-8-mobile-enhancement-tools/"><u>Craftsmanship in Photos & Videos The Ultimate 8 Mobile Enhancement Tools</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-realme-gt-5-240w-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Realme GT 5 (240W) Android SIM Unlock APK</u></a></li>
+<li><a href="https://video-capture.techidaily.com/ipad-users-create-professional-time-lapse-videos/"><u>IPad Users Create Professional Time-Lapse Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/is-mkv-format-supported-by-youtube-tips-for-hd-youtube-video-conversion/"><u>Is MKV Format Supported by YouTube? Tips for HD YouTube Video Conversion</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mastering-media-format-transformation-how-to-seamlessly-create-gifs-from-webm-files-anywhere/"><u>Mastering Media Format Transformation: How to Seamlessly Create GIFs From WebM Files Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ogg-mp4/"><u>Oggオーディオに変換してください - 最上級MP4動画を保持</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/preserve-excellent-resolution-the-finest-dailymotion-video-converters-to-effortlessly-switch-to-mp4-format/"><u>Preserve Excellent Resolution: The Finest Dailymotion Video Converters to Effortlessly Switch to MP4 Format</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-videos-into-a-series-of-images/"><u>Step-by-Step Guide: Transforming Videos Into a Series of Images</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/the-ultimate-guide-to-the-most-effective-av-to-dvd-converters-of-2024-for-pcs-running-win-1011/"><u>The Ultimate Guide To The Most Effective Av To Dvd Converters of 2024 for PCs Running Win 10/11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vlcts-how-to-merge-ts-files-using-vlc-media-player/"><u>VLCメディアプレーヤーでTSファイル連結の手順 - How to Merge TS Files Using VLC Media Player</u></a></li>
 </ul></div>
 

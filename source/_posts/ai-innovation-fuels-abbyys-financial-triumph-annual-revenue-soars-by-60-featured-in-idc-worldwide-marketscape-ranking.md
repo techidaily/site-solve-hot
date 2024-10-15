@@ -1,7 +1,7 @@
 ---
 title: AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60%% - Featured in IDC Worldwide MarketScape Ranking
-date: 2024-09-29T22:57:39.659Z
-updated: 2024-10-03T02:22:11.387Z
+date: 2024-10-10T00:34:25.825Z
+updated: 2024-10-14T20:26:24.733Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9737c06562bbb999378e5773.jpg
@@ -48,10 +48,10 @@ Bruce Orcutt, Chief Marketing Officer d'ABBYY
 Après avoir nommé récemment Bruce Orcutt au poste de CMO, ABBYY intensifie ses efforts de R&D grâce à l'intégration d'une nouvelle équipe composée d'ingénieurs expérimentés. Sous la direction de Patrick Jean, CTO/CPO d'ABBYY, l'équipe comprend Sanju Nair, VP des opérations produits et PMO, ainsi que les VP ingénierie Morgan Logue et Andy Wahrenberger.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À PROPOS D’ABBYY
@@ -59,10 +59,10 @@ Après avoir nommé récemment Bruce Orcutt au poste de CMO, ABBYY intensifie se
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -70,10 +70,10 @@ ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous c
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -100,16 +100,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-affordable-setups-tailored-obs-for-budget-computers/"><u>[Updated] Affordable Setups Tailored OBS for Budget Computers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-iphone-flash-optimization-tips/"><u>2024 Approved IPhone Flash Optimization Tips</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-performance-with-the-help-of-cookiebot-technology/"><u>Enhanced Performance with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-web-traffic-management-through-smart-analytics-experience-the-efficiency-of-cookiebot-technology/"><u>Enhanced Web Traffic Management Through Smart Analytics: Experience the Efficiency of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-presence-through-state-of-the-art-cookiebot-solutions/"><u>Enhancing Digital Presence Through State-of-the-Art Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-document-automation-how-abbyy-flexicaptures-updated-rest-api-fuels-seamless-adoption-and-immediate-data-processing/"><u>Enhancing Document Automation: How ABBYY FlexiCapture's Updated REST API Fuels Seamless Adoption & Immediate Data Processing</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-samsung-galaxy-f34-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Samsung Galaxy F34 5G Through Google Earth?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/introduction-to-generative-ai-the-revolution-in-machine-learning-explained/"><u>Introduction to Generative AI: The Revolution in Machine Learning Explained</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1722993878057-stop-game-crashes-solve-your-battlefront-ii-pc-issues-today/"><u>Stop Game Crashes – Solve Your Battlefront II PC Issues Today!</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-big-tech-and-americas-new-regulatory-framework/"><u>The Future of Big Tech and America's New Regulatory Framework</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/timed-success-organizing-video-conferences-via-slackplusfilmora/"><u>Timed Success Organizing Video Conferences via Slack+Filmora</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-guide-to-exceptional-srt-text-management/"><u>[New] How-To Guide to Exceptional SRT Text Management</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-media-preservation-instagram-to-iphone-saved/"><u>[New] In 2024, Mastering Media Preservation Instagram to iPhone Saved</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-3-pinnacle-phones-for-professional-video-capture/"><u>[Updated] 3 Pinnacle Phones for Professional Video Capture</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-stay-concentrated-how-to-tame-the-chatter-of-google-video-calls/"><u>[Updated] In 2024, Stay Concentrated How to Tame the Chatter of Google Video Calls</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-automate-your-website-with-efficient-cookiebot-power-solutions/"><u>1. Automate Your Website with Efficient Cookiebot Power Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2021-kmworld-readers-favorite-titles-unveiled/"><u>2021 KMWorld Reader's Favorite Titles Unveiled</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1724312830505-uipathabbyy-flexicapture/"><u>効率的な支払処理手法：UIPath・ABBYY FlexiCaptureのパワーコンビによる自動化アップ</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/are-there-safety-concerns-associated-with-using-chatgpt/"><u>Are There Safety Concerns Associated with Using ChatGPT?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automate-your-digital-campaigns-with-precision-powered-by-advanced-cookiebot-technology/"><u>Automate Your Digital Campaigns with Precision - Powered by Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/vating-audiencvith-effective-thumbnail-sizes/"><u>Captivating Audiencvith Effective Thumbnail Sizes</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/hoewelikomme-er-voor-bij-het-creeren-van-een-persoonlijk-quiz-tentoonstelling/"><u>Hoewelikomme Er Voor Bij Het Creëren Van Een Persoonlijk Quiz-Tentoonstelling</u></a></li>
+<li><a href="https://windows11.techidaily.com/instant-permadelete-configuring-your-desktop-trash-bin-on-windows-11-devices/"><u>Instant PermaDelete: Configuring Your Desktop Trash Bin on Windows 11 Devices</u></a></li>
+<li><a href="https://techtrends.techidaily.com/latest-google-pixel-smartwatch-4th-generation-insights-into-the-launch-timeline-anticipated-costs-and-features/"><u>Latest Google Pixel Smartwatch 4Th Generation - Insights Into the Launch Timeline, Anticipated Costs & Features</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/picking-a-champion-in-video-software-vlcmx-for-2024/"><u>Picking a Champion in Video Software VLC/MX for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-guide-to-bisecting-movies-for-every-device-desktops-laptops-ios-and-android-systems/"><u>Simple Guide to Bisecting Movies for Every Device: Desktops, Laptops, iOS and Android Systems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-flawlessly-turn-avchd-content-into-prores-files/"><u>Step-by-Step Guide to Flawlessly Turn AVCHD Content Into ProRes Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-seamlessly-changing-m4v-videos-to-webm-for-online-use/"><u>Step-by-Step Tutorial on Seamlessly Changing M4V Videos to WebM for Online Use</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-resolving-non-playable-xvid-codec-files-in-your-plex-library/"><u>Troubleshooting Guide: Resolving Non-Playable Xvid Codec Files in Your Plex Library</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vlcmp4mp3/"><u>VLCを使用してMP4ファイルをMP3に転記する方法</u></a></li>
 </ul></div>
 

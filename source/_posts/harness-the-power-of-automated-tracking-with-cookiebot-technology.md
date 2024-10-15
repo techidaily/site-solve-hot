@@ -1,7 +1,7 @@
 ---
 title: Harness the Power of Automated Tracking with Cookiebot Technology
-date: 2024-10-02T05:34:54.943Z
-updated: 2024-10-02T18:02:33.978Z
+date: 2024-10-09T22:34:04.366Z
+updated: 2024-10-14T17:51:55.429Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/781e8428af43f7240e5d953add419c8aa194f2d4e4f1f7a9a67dc80aa935e243.jpg
@@ -20,10 +20,10 @@ Wholesale & Retail Trade | Invoice Processing
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY beschleunigt den Zahlungsverkehr der METRO AG Gesellschaften mit Großhandelskunden um bis zu 90% 
@@ -35,6 +35,13 @@ Groß- und Einzelhandel | Rechnungsverarbeitung
 #### Über den Kunden
 
 ![METRO Digital](https://static5.abbyy.com/abbyycommedia/36404/logo_metrodigital.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name    | METRO Digital                           |
 | ------- | --------------------------------------- |
@@ -83,28 +90,15 @@ Zudem liefert die Lösung von ABBYY deutlich mehr der benötigten Zusatzinformat
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Vantage](https://static4.abbyy.com/abbyycommedia/35821/vantage_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
@@ -112,10 +106,10 @@ Zudem liefert die Lösung von ABBYY deutlich mehr der benötigten Zusatzinformat
 [![Download the PDF version](https://static2.abbyy.com/abbyycommedia/29440/10c-ecclesia-cover3-360x162.jpg)](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") [PDF-Version](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") 
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Zum Dokument](https://static1.abbyy.com/abbyycommedia/36476/customerstory-intelligentedokumentenverarbeitung-metro-digital-de.pdf "PDF-Version") 
@@ -141,16 +135,22 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-blitzing-through-images-on-win11-for-2024/"><u>[New] Blitzing Through Images on Win11 for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-unlocking-the-power-of-iphones-high-dynamic-range/"><u>[New] In 2024, Unlocking the Power of iPhone's High Dynamic Range</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-streamlining-the-process-of-ppt-recording/"><u>[Updated] Streamlining the Process of PPT Recording</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726028139677-7/"><u>最新動画削減ソフトウェアリスト・日本語版上位7つ - おすすめベータサイト</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-streamline-creative-processes-with-youtube-studio-editing-insights/"><u>In 2024, Streamline Creative Processes with YouTube Studio Editing Insights</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-ultimate-guide-to-choosing-a-professional-video-editor-filmora-or-democracy-creator/"><u>In 2024, The Ultimate Guide to Choosing a Professional Video Editor (Filmora or Democracy Creator)</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/toms-hardware-decoded-in-depth-analysis-of-modern-computing-and-electronics/"><u>Tom's Hardware Decoded: In-Depth Analysis of Modern Computing and Electronics</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-the-ultimate-fcp-x-shortcut-adding-effects-in-3-simple-steps/"><u>Updated 2024 Approved The Ultimate FCP X Shortcut Adding Effects in 3 Simple Steps</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726030257633-vlc/"><u>VLCメディアプレーヤーによる動画編集: 簡単な切り取りとカット手順</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-ultimate-snapchat-checklist-for-engaging-content-for-2024/"><u>[New] The Ultimate Snapchat Checklist for Engaging Content for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5yuv55s744gm44or44ov44o844od44kk44oz44oi44gn5yan55sf44gn44gn44gq44ge55cg55sx44go5aplusplus562w6kmz5acx/"><u>動画がパワーポイントで再生できない理由と対策詳報</u></a></li>
+<li><a href="https://discover-able.techidaily.com/1726225385971-m4a-aac-movavi/"><u>網路直接免費更改 M4A 到 AAC - 使用 Movavi 編解碼器</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comprehensive-tutorial-converting-3g2-media-files-to-mp4-avi-and-additional-formats-easily/"><u>Comprehensive Tutorial: Converting 3G2 Media Files to MP4, AVI, and Additional Formats Easily</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/convert-mp3-to-wav-free-a-step-by-step-guide-for-windows-users/"><u>Convert MP3 to WAV Free: A Step-by-Step Guide for Windows Users</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-apple-iphone-12-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling Apple iPhone 12 Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-xiaomi-redmi-a2-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Xiaomi Redmi A2</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-the-art-of-collage-creation-for-2024/"><u>Mastering the Art of Collage Creation for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mp4mkvmovmtsm2ts/"><u>MP4とMKVのようなMOVやMTS/M2TS形式のビデオファイルをスマートに分割するテクニック</u></a></li>
+<li><a href="https://fox-info.techidaily.com/pro-action-recorder-guide-top-15-camcorder-list/"><u>Pro Action Recorder Guide Top 15 Camcorder List</u></a></li>
+<li><a href="https://program-issues.techidaily.com/r-type-final-2-stability-issues-how-to-prevent-pc-game-crashes/"><u>R-Type Final 2 Stability Issues: How to Prevent PC Game Crashes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-changing-the-dvd-region-setting-on-your-pc/"><u>Step-by-Step Guide to Changing the DVD Region Setting on Your PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-adding-subtitles-to-your-facebook-videos/"><u>Step-by-Step Guide: Adding Subtitles to Your Facebook Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-3-secure-erome-video-downloading-tools-safely-extracting-content/"><u>Top 3 Secure Erome Video Downloading Tools - Safely Extracting Content</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/upcoming-release-apple-pushes-back-introduction-of-ai-capabilities-to-october-latest-news-from-zdnet/"><u>Upcoming Release: Apple Pushes Back Introduction of AI Capabilities to October - Latest News From ZDNet</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/which-should-you-use-obs-studio-or-bandicam-in-2024/"><u>Which Should You Use, OBS Studio or Bandicam, In 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wma3/"><u>WMA音楽を巧みに編集:ベストの3つのコストフリーソフト選び</u></a></li>
 </ul></div>
 

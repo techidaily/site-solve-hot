@@ -1,7 +1,7 @@
 ---
 title: "Understanding Intelligent Process Automation: An Overview"
-date: 2024-09-29T18:57:56.110Z
-updated: 2024-10-03T08:26:59.830Z
+date: 2024-10-10T00:14:55.267Z
+updated: 2024-10-15T00:50:07.678Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dba9ef92930f5d20237b2a75fb5ee76b8bab75f866f82161cefcc63f630df758.jpg
@@ -17,38 +17,17 @@ June 03, 2022
 
 ![](https://static2.abbyy.com/abbyycommedia/35736/intelligent-processing-automation-blog-cover-848x444.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What is Intelligent Process Automation (IPA)?
 
 [Intelligent Process Automation](https://tools.techidaily.com/abbyy/products/) is grounded in the recognition that business processes have two main dimensions: the process itself and the data (typically found in documents) that fuels it. On the process side, it’s vital to understand how processes actually work, not just how they should work. And any successful approach to process automation would be incomplete without consideration of the documents that carry information from one step to the next.
 
 Intelligent Process Automation leverages artificial intelligence (AI) and machine learning (ML) to bring together two powerful capabilities: Process Intelligence and Intelligent Document Processing.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Why is IPA important?
 
 From the dawn of the digital age, businesses have been chasing the goal of true process automation—enabling machines to take on entire processes and freeing human workers to focus on more interesting, value-added pursuits. For a time, robotic process automation (RPA) appeared to hold the answer, but it failed to live up to its potential as a standalone solution. In a recent survey on intelligent automation, [RPA proved to be the least-implemented solution](https://tools.techidaily.com/abbyy/products/) over the past year.
 
 Today, organizations seeking true process automation are finding the answer in an approach that’s both simpler and more complex: complex in its multifaceted nature, but simple for humans to implement and manage. Welcome to [Intelligent Process Automation (IPA).](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What are the capabilities of Intelligent Process Automation?
 
@@ -70,6 +49,13 @@ While many traditional approaches to process automation focused on data flows, m
 
 ![what is IDP vs legacy tech](https://static1.abbyy.com/abbyycommedia/34935/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Intelligent Document Processing (IDP)](https://tools.techidaily.com/abbyy/products/) applies AI-based document processing “skills” to read and understand documents in a way that humans understand and manage content. As a result, the information contained in documents becomes immediately available and actionable, when and where it's needed, with little to no human intervention required. In addition to saving time and money, IDP reduces the risk of costly errors and frees employees to focus on more challenging work.
 
 [Learn more about ABBYY Vantage, the industry’s only low-code / no-code intelligent document processing platform.](https://tools.techidaily.com/abbyy/products/)
@@ -88,25 +74,25 @@ There’s no question that [robotic process automation](https://tools.techidaily
 
 ![Icon with gears, paper, and a head representing how intelligent process automation encompasses the &quot;big picture&quot; of applying AI technologies to mirror human decision-making at every stage with Intelligent Process Automation. And a description of what is IPA, text repeated below.](https://static1.abbyy.com/abbyycommedia/35771/what-is-ipa-technology-lg-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Intelligent Process Automation encompasses the “big picture” of business processes, applying AI technologies (e.g., Intelligent Document Processing, process mining, task mining, natural language processing, machine learning, advanced analytics) to mirror human decision-making at every stage. When and where relatively simple, rules-based decision-making is required, RPA can be an appropriate solution and may be used quite successfully. IPA capabilities allow you to [scale RPA projects](https://tools.techidaily.com/abbyy/products/) by expanding automation further.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What can Intelligent Process Automation do for businesses?
 
 By combining the capabilities of Process Intelligence and Intelligent Document Processing, Intelligent Process Automation helps businesses understand processes before, during, and after automation. It identifies deviations or inefficiencies that can waste time and resources. This means businesses can use real-world data from their own operations to identify and prioritize processes most likely to benefit from automation. They also gain insight into how documents function as the basis for skilled decision-making at every stage of the process. These insights enable the business to determine how they can manage documents to make the process work more efficiently, and then apply the document skills needed to optimize content processing.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Which industries can benefit from Intelligent Process Automation?
 
@@ -130,6 +116,13 @@ While earlier approaches to automation required significant infrastructure inves
 3. Intelligently automate where it makes sense, prioritizing processes that offer the greatest potential ROI from automation
 4. Automate monitoring of results to enable continuous improvement.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The future of process automation is intelligent
 
 By blending the unique capabilities of Process Intelligence and Intelligent Document Processing, Intelligent Process Automation (IPA) is ushering in a new era for business processes optimization. Organizations seeking to bridge the gaps encountered in earlier approaches and tap into the full power of AI are uncovering new possibilities—without having to make huge infrastructure investments or hire entire teams of data scientists.
@@ -139,6 +132,19 @@ Find out how [ABBYY Intelligent Process Automation solutions](https://tools.tech
 [Contact us](https://tools.techidaily.com/abbyy/products/)
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Process Mining](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -203,18 +209,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-expertly-edited-content-choosing-the-best-editor/"><u>[New] 2024 Approved Expertly Edited Content Choosing The Best Editor</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-giggle-guide-quick-tips-for-meme-artistry/"><u>[New] Giggle Guide Quick Tips for Meme Artistry</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-comprehensive-approach-to-integrating-whiteboards-in-zoom-sessions-for-2024/"><u>[Updated] Comprehensive Approach to Integrating Whiteboards in Zoom Sessions for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-efficient-scratching-tool-for-chromeos/"><u>[Updated] Efficient Scratching Tool for ChromeOS</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-samsung-galaxy-m14-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionize-your-sites-personalization-and-analytics-effortlessly/"><u>Cookiebot: Revolutionize Your Site's Personalization and Analytics Effortlessly</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionizing-personalized-engagement-and-retargeting/"><u>Cookiebot: Revolutionizing Personalized Engagement and Retargeting</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebots-intelligent-technology-propelling-success-in-digital-marketing/"><u>Cookiebot's Intelligent Technology Propelling Success in Digital Marketing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/data-management-in-the-cloud-by-abbyy-select-your-region-wisely/"><u>Data Management in the Cloud by ABBYY - Select Your Region Wisely</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/drive-more-traffic-using-cookiebots-advanced-analytics-tools/"><u>Drive More Traffic Using Cookiebot's Advanced Analytics Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-online-presence-with-cookiebot-seo-solutions-for-maximum-organic-visibility/"><u>Elevate Your Online Presence with Cookiebot SEO Solutions for Maximum Organic Visibility</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-nokia-g42-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Nokia G42 5G Devices</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/no-monetary-investment-how-to-acquire-fcp/"><u>No Monetary Investment? How to Acquire FCP</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-mac-tools-to-tighten-instagram-video-content-for-2024/"><u>[New] Mac Tools to Tighten Instagram Video Content for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-quick-zoomers-guide-to-clearer-instagram-narratives/"><u>[New] The Quick-Zoomer's Guide to Clearer Instagram Narratives</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-efficient-marketing-automation-tools/"><u>Cookiebot Driven Solutions: Efficient Marketing Automation Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-empowered-sites-boost-organic-visibility/"><u>Cookiebot-Empowered Sites Boost Organic Visibility</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-analytics-unleashing-new-possibilities-in-user-tracking/"><u>Cookiebot-Enhanced Analytics: Unleashing New Possibilities in User Tracking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-personalization-enhancing-your-websites-visitor-experience/"><u>Cookiebot-Enhanced Personalization: Enhancing Your Website's Visitor Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-sites-boost-your-websites-performance/"><u>Cookiebot-Enhanced Sites: Boost Your Website's Performance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience/"><u>Cookiebot-Enhanced User Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-a-recipe-for-successful-site-engagement/"><u>Cookiebot-Enhanced User Experience: A Recipe for Successful Site Engagement</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-experience-personalized-advertising-with-advanced-tracking-technology/"><u>Cookiebot-Enhanced: Experience Personalized Advertising with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-fueled-engagement-tailored-interactions-and-improved-analytics/"><u>Cookiebot-Fueled Engagement: Tailored Interactions & Improved Analytics</u></a></li>
+<li><a href="https://win-blog.techidaily.com/destiny-2s-beyond-light-pc-gameplay-issues-resolved-updated-fixes/"><u>Destiny 2'S Beyond Light PC Gameplay Issues Resolved - Updated Fixes!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discovering-the-best-our-full-scrutiny-of-inshot-app-for-2024/"><u>Discovering the Best - Our Full Scrutiny of InShot App for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effortless-troubleshooting-for-computer-wont-stay-awake-problems/"><u>Effortless Troubleshooting for Computer Won't Stay Awake Problems</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhancing-your-posts-with-music-on-instagram-a-comprehensive-how-to/"><u>Enhancing Your Posts with Music on Instagram: A Comprehensive How-To</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/evaluating-top-tier-artificnial-intelligence-chatbots-chatgpt-vs-microsoft-bing-vs-google-bard-which-takes-the-lead/"><u>Evaluating Top-Tier Artificnial Intelligence Chatbots: ChatGPT Vs. Microsoft Bing Vs. Google Bard - Which Takes the Lead?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-block-openais-crawlers-from-scraping-your-website/"><u>How to Block OpenAI's Crawlers From Scraping Your Website</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/how-to-make-a-youtube-thumbnail-on-mac/"><u>How to Make a YouTube Thumbnail On Mac</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/refine-your-beauty-videos-with-youtubes-palette-tweaking-for-2024/"><u>Refine Your Beauty Videos with Youtube's Palette Tweaking for 2024</u></a></li>
 </ul></div>
 

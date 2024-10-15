@@ -1,7 +1,7 @@
 ---
 title: Transform Your Phone Into a Pro Scanner with ABBYY's Topnotch AI Technology!
-date: 2024-09-26T04:07:41.881Z
-updated: 2024-10-03T00:54:49.896Z
+date: 2024-10-14T01:44:05.345Z
+updated: 2024-10-14T21:20:45.120Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/716b773a3a0bbb4238a628ab28cfde8731d3dd391169cbf818a66e733201ea5d.jpg
@@ -45,22 +45,16 @@ Sections for the various document formats will be displayed at the top of the Ga
 
 ![classification_search_fs_8](https://static1.abbyy.com/abbyycommedia/31422/classification_search_fs_8.png)
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 “Training” our neural network involved studying tens of thousands of photographs provided by a multitude of ABBYY employees. Artificial intelligence, like any diligent student, requires a wealth of knowledge to learn from. As part of this process, ABBYY developers meticulously marked out each provided photo by hand. This was how the AI was “taught” the difference between books and A4 documents, business cards and ID’s, and so on. We decided to implement seven distinct sections for the most popular document types uploaded to [FineScanner](https://go.onelink.me/0oMB/2b084a0a). This data was obtained by means of a questionnaire answered by our users.
 
 According to testing results, the accuracy of classification is approximately 90 – 95%. But it depends on the quality of photos in your gallery.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Find photos using text search
 
@@ -68,14 +62,14 @@ Moreover, we want you to be able to find the photos that you need even quicker t
 
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
-Simply begin typing your search phrase into the bar at the top of the Gallery screen. You can also search through documents from a specific category (e.g. A4) by navigating to the appropriate document category folder and searching there. Doing so will restrict your search to that specific document type.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Simply begin typing your search phrase into the bar at the top of the Gallery screen. You can also search through documents from a specific category (e.g. A4) by navigating to the appropriate document category folder and searching there. Doing so will restrict your search to that specific document type.
 
 ## Activating the new smart gallery and the search feature
 
@@ -108,13 +102,6 @@ To measure your document using augmented reality, do the following:
 4) Follow the instructions on your screen.
 
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If the size of your document corresponds to one of the standard sizes (e.g. A4 or driver’s license), [FineScanner](https://go.onelink.me/0oMB/2b084a0a) will ask you whether you want to set the document to be treated as a document of that particular size. For documents of non-standard size, you can choose to save the detected size for later use. To do so, tap the detected document measurements and switch “Save to list” to “On”. Once that is done, specify a name for your new format, for example, “Flyer”.
 
@@ -187,10 +174,10 @@ _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for And
 We are proud to present the newest generation of mobile scanners from ABBYY Mobile – FineScanner AI 8\. Now, FineScanner will not only scan and store your documents but will also become your personal smartphone archivist. FineScanner can now automatically sort all of your photos into seven different document types, help you find specific photos using the search feature, and precisely measure your documents’ size using augmented reality.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A new generation of smart galleries
@@ -220,10 +207,10 @@ Sections for the various document formats will be displayed at the top of the Ga
 According to testing results, the accuracy of classification is approximately 90 – 95%. But it depends on the quality of photos in your gallery.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Find photos using text search
@@ -233,6 +220,13 @@ Moreover, we want you to be able to find the photos that you need even quicker t
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
 Simply begin typing your search phrase into the bar at the top of the Gallery screen. You can also search through documents from a specific category (e.g. A4) by navigating to the appropriate document category folder and searching there. Doing so will restrict your search to that specific document type.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Activating the new smart gallery and the search feature
 
@@ -266,13 +260,6 @@ To measure your document using augmented reality, do the following:
 
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If the size of your document corresponds to one of the standard sizes (e.g. A4 or driver’s license), [FineScanner](https://go.onelink.me/0oMB/2b084a0a) will ask you whether you want to set the document to be treated as a document of that particular size. For documents of non-standard size, you can choose to save the detected size for later use. To do so, tap the detected document measurements and switch “Save to list” to “On”. Once that is done, specify a name for your new format, for example, “Flyer”.
 
 The sooner [you update your FineScanner app](https://go.onelink.me/0oMB/2b084a0a), the sooner you’ll be able to try out all of these new features! We look forward to reading your feedback and requests on the application page in both the App Store and Google Play.
@@ -286,6 +273,13 @@ To learn more about key updates for other ABBYY mobile apps that have been imple
 [](https://youtu.be/oo00Gxcptyw) 
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -306,19 +300,24 @@ Share
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-master-the-art-of-live-streaming-old-content-with-facebook-tools/"><u>[Updated] 2024 Approved Master the Art of Live-Streaming Old Content with Facebook Tools</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-breakthrough-technology-for-screens-showmores-revolutionary-recorder/"><u>[Updated] Breakthrough Technology for Screens ShowMore's Revolutionary Recorder</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-how-to-zoom-inout-in-instagram-stories/"><u>[Updated] In 2024, How to Zoom In/Out in Instagram Stories</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-tiktok-to-tokens-financial-figures-of-pewdiepie-for-2024/"><u>[Updated] TikTok to Tokens Financial Figures of PewDiePie for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-revolutionize-design-with-the-top-tier-plugins-for-ae/"><u>2024 Approved Revolutionize Design with the Top-Tier Plugins for AE</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-cloud-your-ultimate-solution-for-seamless-document-conversion-and-automation/"><u>Abbyy Cloud: Your Ultimate Solution for Seamless Document Conversion and Automation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyyand/"><u>ABBYYジャパンと共同開発した最新技術:パーソルプロセス&テクノロジーによる革新</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-ocr-and/"><u>ABBYYの優れた帳票データエクステラクション – 多ページ、複雑な表やレイアウトを扱い、容易にOCR &出力可能</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-lead-capture-how-our-solutions-are-enhanced-with-cookiebot-technology/"><u>Automated Lead Capture: How Our Solutions Are Enhanced with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-for-seamless-website-personalization-and-tracking/"><u>Cookiebot-Driven Solutions for Seamless Website Personalization and Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-user-experience-with-cutting-edge-technology/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience with Cutting-Edge Technology</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/essential-free-defrag-utilities-to-optimize-performance-best-of-2n4/"><u>Essential Free Defrag Utilities to Optimize Performance - Best of 2N4</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-selection-8-must-have-laptop-backgrounds/"><u>In 2024, Ultimate Selection 8 Must-Have Laptop Backgrounds</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/transforming-photos-remove-background-with-ease/"><u>Transforming Photos Remove Background with Ease</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-streamlined-capturing-top-5-mac-tools-for-effective-snipping/"><u>[New] 2024 Approved Streamlined Capturing Top 5 Mac Tools for Effective Snipping</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-to-get-people-to-subscribe-to-your-youtube-channel/"><u>[New] How to Get People to Subscribe to Your YouTube Channel</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-mastering-zoom-for-fb-live-broadcasts/"><u>[New] In 2024, Mastering Zoom for FB Live Broadcasts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-stream-your-webcam-in-real-time-using-vlc-software/"><u>[Updated] 2024 Approved Stream Your Webcam in Real Time Using VLC Software</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-transferring-facebook-videos-directly-to-whatsapp/"><u>[Updated] 2024 Approved Transferring Facebook Videos Directly to WhatsApp</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-innovators-to-watch-leading-av-and-acoustic-artisans-for-2024/"><u>[Updated] Innovators to Watch Leading Av & Acoustic Artisans for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-in-depth-analytics-integration-boosts-business-intelligence-in-abbyy-flexicapture-systems/"><u>1. In-Depth Analytics Integration Boosts Business Intelligence in ABBYY FlexiCapture Systems</u></a></li>
+<li><a href="https://extra-information.techidaily.com/deep-dive-magix-video-pro-x-features-and-performance/"><u>Deep Dive Magix Video Pro X Features and Performance</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-update-your-amd-radeon-graphics-drivers-on-windows-11/"><u>How to Update Your AMD Radeon Graphics Drivers on Windows 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimierung-der-datenaufnahme-wie-spezielle-ki-die-prozesse-revolutioniert-insights-aus-dem-abbey-blog/"><u>Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-for-superior-data-collection-and-analysis/"><u>Optimized with Cookiebot Technology for Superior Data Collection and Analysis</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimizing-your-website-mastering-the-art-of-effective-pages/"><u>Optimizing Your Website: Mastering the Art of Effective Pages</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/rebooting-baseline-configurations-and-improving-time-management-techniques-insights-by-abbyy-professionals/"><u>Rebooting Baseline Configurations & Improving Time Management Techniques - Insights by ABBYY Professionals</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/redesigning-kyc-protocols-for-enhanced-compliance-expert-tips-from-the-abbyy-thought-leaders/"><u>Redesigning KYC Protocols for Enhanced Compliance: Expert Tips From the ABBYY Thought Leaders</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/revitalize-your-antiquated-images-with-free-ai-solutions-the-ultimate-selection-of-the-top-10-applications/"><u>Revitalize Your Antiquated Images with Free AI Solutions: The Ultimate Selection of the Top 10 Applications</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionize-your-online-advertising-strategy-like-a-pro-using-techniques-similar-to-cookiebots-methodology/"><u>Revolutionize Your Online Advertising Strategy Like a Pro Using Techniques Similar to Cookiebot's Methodology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transforming-accounts-payable-how-iguras-integration-with-abbyy-enhances-efficiency-for-businesses/"><u>Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unlocking-cost-reduction-with-process-mining-a-case-study-on-saving-millions-from-the-customer-angle/"><u>Unlocking Cost Reduction with Process Mining: A Case Study on Saving Millions From the Customer Angle</u></a></li>
+<li><a href="https://win11.techidaily.com/winning-vectors-top-virtual-environments-for-windows-11-tech/"><u>Winning Vectors: Top Virtual Environments for Windows 11 Tech</u></a></li>
 </ul></div>
 

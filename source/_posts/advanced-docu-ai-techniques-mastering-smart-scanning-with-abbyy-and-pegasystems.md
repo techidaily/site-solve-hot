@@ -1,7 +1,7 @@
 ---
 title: "Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems"
-date: 2024-09-28T08:54:00.010Z
-updated: 2024-10-03T11:52:47.203Z
+date: 2024-10-10T21:43:11.476Z
+updated: 2024-10-14T16:44:55.281Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b444eae6e981167865c0c0478.jpg
@@ -10,6 +10,19 @@ thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b4
 ## Advanced Docu-AI Techniques: Mastering Smart Scanning with ABBYY & Pegasystems
 
 ## 
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ABBYY | Pegasystems 
 
@@ -22,20 +35,6 @@ Permettre aux BPM et RPA de Pega de transformer automatiquement des documents et
 En tant que partenaire technologique de Pega, ABBYY fournit des solutions de traitement intelligent des documents qui permettent aux clients Pega d’ajouter un nouveau niveau d’automatisation à leur gestion de documents et de contenu non structuré. La technologie ABBYY classe et extrait automatiquement les données des documents pour convertir le contenu en informations exploitables et structurées qui rendent vos processus Pega plus intelligents, ce qui permet d’améliorer grandement l’expérience client et l’efficacité opérationnelle.
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Avantages de l’intégration 
 
@@ -60,10 +59,17 @@ Le connecteur ABBYY FlexiCapture pour Pega permet aux BPM et RPA de Pega de tran
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/pegasystems_logo_rev_120px.png?h=26&iar=0&w=120)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Cas d’utilisation
@@ -89,10 +95,10 @@ L’ajout de FlexiCapture aux processus de comptabilité fournisseurs Pega perme
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Prêt à parler à un expert ?
@@ -114,24 +120,24 @@ L’ajout de FlexiCapture aux processus de comptabilité fournisseurs Pega perme
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-vr-liftoff-top-peripherals-and-their-impacts/"><u>[New] VR Liftoff - Top Peripherals & Their Impacts</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solved-how-to-fix-google-chrome-black-screen-problem/"><u>[Solved] How to Fix Google Chrome Black Screen Problem</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-explore-prime-cardboard-compatible-vr-adventures/"><u>[Updated] Explore Prime Cardboard-Compatible VR Adventures</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-unlock-the-potential-of-autoplay-vids-on-fb-platform-for-2024/"><u>[Updated] Unlock the Potential of Autoplay Vids on FB Platform for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-vivo-v29-pro-frp-bypass-by-drfone-android/"><u>About Vivo V29 Pro FRP Bypass</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-transformation-of-wmv-files-turn-them-into-mp4movmp3-for-universal-compatibility/"><u>Effortless Transformation of WMV Files - Turn Them Into MP4/MOV/MP3 for Universal Compatibility!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-ways-to-access-jackie-chan-films-online/"><u>Effortless Ways to Access Jackie Chan Films Online</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/get-your-free-trial-of-the-ultimate-mp4-video-converter-safe-and-secure-online-shopping/"><u>Get Your Free Trial of the Ultimate MP4 Video Converter - Safe and Secure Online Shopping</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-rapid-shot-mastery-the-ultimate-guide-to-homemade-cinematography/"><u>In 2024, Rapid Shot Mastery The Ultimate Guide to Homemade Cinematography</u></a></li>
-<li><a href="https://change-location.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/master-the-art-of-converting-jpeg-pictures-to-gif-format-with-these-easy-to-follow-techniques/"><u>Master the Art of Converting JPEG Pictures to GIF Format with These Easy-to-Follow Techniques!</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-burning-videos-to-dvd-a-comprehensive-guide-for-windows-and-mac-users/"><u>New Burning Videos to DVD A Comprehensive Guide for Windows and Mac Users</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/record-and-save-with-zero-cost-on-android-devices/"><u>Record & Save with Zero Cost on Android Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seamless-transformation-of-video-files-to-mp3s-mastering-convert2mp3-plus-top-substitutes/"><u>Seamless Transformation of Video Files to MP3s: Mastering Convert2MP3 Plus Top Substitutes</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/secure-methods-for-downloading-youtube-content-save-your-favorite-videos-safely/"><u>Secure Methods for Downloading YouTube Content - Save Your Favorite Videos Safely</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-combining-multiple-videos-into-one-with-google-photos-for-windowsmac-users/"><u>Step-by-Step Guide to Combining Multiple Videos Into One with Google Photos for Windows/Mac Users</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-downloading-tweets-as-video-files-from-any-smartphone-or-computer/"><u>Step-by-Step Guide: Downloading Tweets as Video Files From Any Smartphone or Computer</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-3gp-videos-into-high-quality-mov-formats/"><u>Step-by-Step Guide: Transforming 3GP Videos Into High-Quality MOV Formats</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/twitter-terminology-clarified-retweet-or-re-tweet-what-sets-them-apart/"><u>Twitter Terminology Clarified: Retweet or Re-Tweet - What Sets Them Apart?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-discover-the-top-free-tools-for-youtube-image-downloads/"><u>[New] 2024 Approved Discover the Top Free Tools for YouTube Image Downloads</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-from-tube-to-chat-sharing-video-content-from-youtube-and-twitter-directly/"><u>[New] 2024 Approved From Tube to Chat Sharing Video Content From YouTube & Twitter Directly</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-craft-your-narrative-best-free-mobile-editors-android-focus/"><u>[New] Craft Your Narrative Best Free Mobile Editors, Android Focus</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-how-to-add-music-in-premiere-pro-in-2024/"><u>[New] How To Add Music In Premiere Pro, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-name-inspiration-strategies-for-success/"><u>[Updated] In 2024, Channel Name Inspiration Strategies for Success</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027882035-dvd/"><u>「無償でパソコンへDVDデータ移行のワクワク映像方法」</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-efficient-conversion-techniques-transforming-aiff-files-into-high-quality-aacapple-lossless-m4a-audio/"><u>1. Efficient Conversion Techniques: Transforming AIFF Files Into High-Quality AAC/Apple Lossless M4A Audio</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-ultimate-guide-effortless-conversion-of-avchd-files-into-multiple-formats/"><u>1. Ultimate Guide: Effortless Conversion of AVCHD Files Into Multiple Formats</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-infinix-note-30-vip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726029550014-mkv/"><u>難易度ゼロ：テレビでMKV動画を見せるための確実な方法とヒント</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030305632-top3/"><u>最新の人気無料フォトムービー制作ツールTOP3を紹介します</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027045701-avidemux/"><u>Avidemux 用ビデオからオーディオを分離・抽出する手順</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-13-mini-to-others-ios-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 mini To Others ios devices? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-7-plus-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 7 Plus to the Latest iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-video-exposure-on-youtube-with-high-impact-channels-for-2024/"><u>Optimizing Video Exposure on YouTube with High-Impact Channels for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unheard-voices-on-youtube-livestream-success-beyond-1000-supporters/"><u>Unheard Voices on YouTube Livestream Success Beyond 1000 Supporters</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028671636-windows-113/"><u>ビデオ映像カッティング手順：Windows 11で最も人気の3つ</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028693121-7/"><u>ベストの無料音声合成ビデオツールとウェブサイト上のトップ7</u></a></li>
 </ul></div>
 

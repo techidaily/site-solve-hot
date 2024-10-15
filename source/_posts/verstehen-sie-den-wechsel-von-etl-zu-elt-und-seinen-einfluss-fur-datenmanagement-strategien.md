@@ -1,7 +1,7 @@
 ---
 title: Verstehen Sie Den Wechsel Von ETL Zu ELT Und Seinen Einfluss Für Datenmanagement-Strategien
-date: 2024-10-01T09:27:49.317Z
-updated: 2024-10-02T17:21:44.049Z
+date: 2024-10-08T22:09:16.119Z
+updated: 2024-10-14T22:36:12.065Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf760faf0d85aa4162c1de5de.jpg
@@ -16,10 +16,10 @@ Whitepaper
 ![Von „ETL“ zu „ELT“ und warum das für die nächste Generation von Process Mining und Process Discovery wichtig ist](https://static1.abbyy.com/abbyycommedia/30286/83b-from-etl-to-elt-de-262x340.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Wie die verschiedenen Methoden der Datentransformation das Ergebnis des Process Minings und der Process Discovery beeinflussen
@@ -27,10 +27,10 @@ Whitepaper
 Eine wichtige Voraussetzung für ein effektives Process Mining ist die Fähigkeit, auf Ereignisprotokolle unterschiedlicher Aufzeichnungssysteme zuzugreifen, noch während diese Ereignisse ablaufen. Diese Ereignisprotokolldaten bilden die Grundlage für neue Erkenntnisse, Prognosen und Entscheidungsprozesse. Doch zunächst einmal müssen die Daten umgewandelt werden.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
@@ -40,16 +40,10 @@ Dieses Whitepaper erläutert die verschiedenen Ansätze der Datentransformation 
 Erfahren Sie, warum der Wechsel von ETL zu ELT für die nächste Generation des Process Discovery, Mining und Analysis einen echten Unterschied macht.
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -59,10 +53,10 @@ Erfahren Sie, warum der Wechsel von ETL zu ELT für die nächste Generation des 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -134,20 +128,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-avoid-these-8-steps-that-newcomers-often-miss-on-youtube-for-2024/"><u>[New] Avoid These 8 Steps that Newcomers Often Miss on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-transforming-ones-and-twosies-into-avis-with-ease-for-2024/"><u>[Updated] Transforming Ones and Twosies Into Avis with Ease for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/brighter-horizons-is-intense-light-for-hdr-right-in-2024/"><u>Brighter Horizons Is Intense Light for HDR Right, In 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-infinix-gt-10-pro-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Infinix GT 10 Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effortless-technique-for-extracting-dvd-chapters-with-exclusive-subtitles-only/"><u>Effortless Technique for Extracting DVD Chapters with Exclusive Subtitles Only</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-video-editing-efficiency-with-professional-prores-file-conversion-from-mts-source/"><u>Enhance Video Editing Efficiency with Professional ProRes File Conversion From MTS Source</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/five-proven-fixes-for-when-your-onedrive-videos-wont-start-step-by-step-instructions/"><u>Five Proven Fixes for When Your OneDrive Videos Won't Start: Step-by-Step Instructions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/hd-video-converter-factory-pro-50/"><u>HD Video Converter Factory Pro - 割引！50%オフの特別価格で獲得</u></a></li>
-<li><a href="https://fox-http.techidaily.com/high-speed-action-analysis-hero5-vs-star-for-2024/"><u>High-Speed Action Analysis Hero5 Vs Star for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-securely-keep-your-wistia-videos-for-future-use/"><u>How To Securely Keep Your Wistia Videos For Future Use</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-apex-legends-eliminating-the-error-code-leaf-in-the-new-update/"><u>Mastering Apex Legends: Eliminating the Error Code 'Leaf' In the New Update</u></a></li>
-<li><a href="https://review-topics.techidaily.com/motorola-razr-40-won-t-play-mp4-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Motorola Razr 40 won’t play MP4 files</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/no-luck-with-roku-app-on-your-smart-tv-unlock-immediate-solutions-now/"><u>No Luck with Roku App on Your Smart TV? Unlock Immediate Solutions Now!</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/troubleshooting-win11s-blue-screen-effective-strategies/"><u>Troubleshooting Win11's Blue Screen - Effective Strategies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlocking-the-secrets-of-high-conversion-rates-in-youtube-banner-designs-for-2024/"><u>Unlocking the Secrets of High Conversion Rates in YouTube Banner Designs for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-supercharging-srt-with-macwindows/"><u>[New] The Ultimate Guide to Supercharging SRT with Mac/Windows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mp3-to-video-stream-mp3-to-youtube-in-3-easy-steps/"><u>[Updated] MP3 to Video Stream MP3 to YouTube in 3 Easy Steps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-secrets-to-mass-downloading-videos-from-tiktok/"><u>2024 Approved Secrets to Mass Downloading Videos From TikTok</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-boost-your-sites-traffic-efficiently/"><u>Cookiebot-Driven Success: Boost Your Site's Traffic Efficiently</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-websites-engagement-with-advanced-analytics/"><u>Cookiebot-Enabled Site: Enhance Your Website's Engagement with Advanced Analytics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-the-secret-ingredient-for-supercharging-your-site-performance/"><u>Cookiebot: The Secret Ingredient for Supercharging Your Site Performance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/crafting-impactful-digital-content-strategies-for-page-excellence/"><u>Crafting Impactful Digital Content: Strategies for Page Excellence</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/discover-the-scope-of-abbyys-technological-impact-annual-ocr-conversion-statistics-for-2017/"><u>Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/discovering-cutting-edge-innovations-the-intersection-of-ai-and-process-mining-today/"><u>Discovering Cutting-Edge Innovations: The Intersection of AI and Process Mining Today</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-site-visits-experience-the-benefits-of-cookiebot-powered-marketing-solutions/"><u>Elevate Your Site Visits - Experience the Benefits of Cookiebot Powered Marketing Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-assistance-with-abbyys-latest-innovation-the-new-mobile-capture-sdk-transforming-the-way-customers-experience-technology/"><u>Enhancing Digital Assistance with ABBYY's Latest Innovation: The New Mobile Capture SDK - Transforming the Way Customers Experience Technology</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/igtv-saved-iosandroid-techniques-and-tricks-for-2024/"><u>IGTV Saved IOS/Android Techniques and Tricks for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-c53-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme C53 Phone FRP Lock</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/resolving-binkw32dll-file-not-found-issues/"><u>Resolving 'Binkw32.dll' File Not Found Issues</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/social-media-streamlining-iphoneandroid-tips-for-effective-feeds-for-2024/"><u>Social Media Streamlining IPhone/Android Tips for Effective Feeds for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-tips-addressing-visual-anomalies-on-computer-screens/"><u>Troubleshooting Tips: Addressing Visual Anomalies on Computer Screens</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog"
-date: 2024-09-29T18:01:09.723Z
-updated: 2024-10-03T11:46:23.202Z
+date: 2024-10-10T23:30:11.299Z
+updated: 2024-10-14T22:15:47.289Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ae77072947e6de85d2a8d631e24f7937491d0d11e8e4a458198601a87eb9beb.jpg
@@ -27,13 +27,6 @@ Nehmen wir einmal die Verpflichtung zur [elektronischen Rechnungstellung der EU]
 
 Im Folgenden werde ich daher anhand des Beispiels ABBYY versuchen, etwas Transparenz in die Welt der Abkürzungen (LLM, CNN, ML, NLP, IDP) zu bringen.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### KI-Innovation als Grundlage für ABBYY Intelligent Document Processing (IDP) 
 
 Grundsätzlich kann man sagen, dass Intelligente Dokumentenverarbeitung (IDP) eine hochentwickelte Automatisierungstechnologie zur Erfassung, Auswertung, Extraktion, Kategorisierung und Verarbeitung aussagekräftiger Daten aus großen Dokumenten-Strömen in leicht zugänglichen Formaten ist. Diese Technologie kann verschiedene Arten von Dokumenten verarbeiten, darunter Papier, PDFs, Word-Dokumente, Tabellenkalkulationen und viele andere Formate. IDP zielt vor allem darauf ab, nützliche Informationen aus großen Dokumenten zu extrahieren, ohne dass menschliche Eingaben erforderlich sind. 
@@ -50,10 +43,10 @@ Die [IDP-Plattform von ABBYY](https://tools.techidaily.com/abbyy/products/) ist 
 Mit der richtigen Kombination von Technologien und Techniken können die [IDP-Lösungen von ABBYY jede Art von Dokument verarbeiten](https://tools.techidaily.com/abbyy/products/) \- jedes Format, jede Sprache, jede Struktur. Alle spezialisierten Techniken wurden für die bestmöglichen Schlussfolgerungen und den geringstmöglichen Ressourcenbedarf optimiert, so dass die Kosten und der ROI für die Kunden optimiert werden können.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Large Language Models (LLMs) und Kontext bezogene Antworten. 
@@ -64,6 +57,19 @@ Dies ist somit eine kostengünstige Methode, die die Fähigkeiten großer Sprach
 
 So unterstützt ABBYY die Unternehmen, mit generativer KI erfolgreich zu sein: Daten liegen oft in Silos innerhalb des Unternehmens vor, sind aber größtenteils in Geschäftsdokumenten eingeschlossen. Eine intelligente Dokumentenverarbeitung extrahiert Dokumentendaten und stellt sie in einen Kontext. Diese Daten und der Kontext werden dann mit der Benutzer-Prompot an das LLM kombiniert, um sie inhaltsbezogen zu machen. Das bedeutet, Genauigkeit, Qualität und Zuverlässigkeit.
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Convolutional Neural Networks (CNN) und Transformatoren
 
 ABBYYs End-to-End-Ansatz für OCR (Optical Character Recognition) – optische Zeichenerkennung und ICR (was für Intelligent Character Recognition – also die handgeschriebenen Zeichen steht) wurde vor vielen Jahren bereits auf den Markt gebracht und seitdem kontinuierlich weiterentwickelt. ABBYY verwendet die gleichen Technologien wie ChatGPT und andere LLMs - neuronale Faltungsnetzwerke, Transformatoren und große Sprachmodelle. 
@@ -72,6 +78,19 @@ Das LLM, das ABBYY einsetzt, ist sehr spezifisch auf die Bedürfnisse der Kunden
 
 Diese Technik verbessert die Leistung und Genauigkeit unserer OCR-Funktionen insgesamt drastisch und wird in Kombination mit unserem statistischen Ansatz eingesetzt. Die KI entscheidet automatisch, welcher Ansatz für Ihre Dokumente am besten geeignet ist, um sie im Hinblick auf Konsistenz, Genauigkeit und Geschwindigkeit zu optimieren, was zu besseren Durchsatzraten führt. 
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Deep Learning und schnelles maschinelles Lernen (ML) 
 
 Deep Learning ermöglicht es ABBYY, KI-Modelle in seiner Plattform für einen ganz bestimmten Zweck vorzutrainieren. Das ist etwas anderes als bei Open-Source-LLMs oder Anbietern generativer KI, die diese als API anbieten. Während generative KI erstaunliche neue Möglichkeiten schafft, wie man mit Technologien interagiert, wird sie nicht bei allem gut funktionieren. Durch Deep Learning werden Modelle für einen ganz bestimmten Zweck trainiert, und darin ist es hervorragend, denn es ist zweckgebunden. Wie oben erwähnt, setzt ABBYY eine Kombination aus vielen verschiedenen Technologien ein, um eine intelligente Dokumentenverarbeitung der Spitzenklasse zu bieten. 
@@ -79,10 +98,16 @@ Deep Learning ermöglicht es ABBYY, KI-Modelle in seiner Plattform für einen ga
 Im ABBYY Produkt „Vantage“ vereint ABBYY eine Kombination aus Deep Learning und schnellem maschinellem Lernen auf einer Low-Code-IDP-Plattform, um die Durchsatzrate zu maximieren. Mit Deep Learning allein können die Kunden mit den von ABBYY trainierten Modellen sofort eine Genauigkeit von oftmals bis zu 90 Prozent erreichen. Durch die Einbeziehung des schnellen maschinellen Lernens kann die Genauigkeit sogar auf über 95 Prozent steigen. Schnelles maschinelles Lernen merkt sich die Ausreißer, die tiefes maschinelles Lernen (Deep Learning) nicht erreichen konnte, und arbeitet schnell, mit nur wenigen Variationen der fraglichen Dokumente. Das Modell verbessert sich kontinuierlich anhand der verarbeiteten Dokumente -und deren Variationen-, sowie basierend auf manuellem Input während des sogenannten HITL (Human in the Loop). Was so viel bedeutet wie manuelle Verifikation. Somit erzielen die Modelle mit der Zeit eine immer höhere Genauigkeit.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Natural Language Processing (NLP) 
@@ -100,13 +125,6 @@ Um ein Update zu erhalten, wenn neue Artikel veröffentlicht sind, melden Sie si
 [Anmeldung](https://tools.techidaily.com/abbyy/products/)
 
 ![Christian Marquardt](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/christian-marquadt-110x110.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Christian Marquardt 
 
@@ -177,22 +195,21 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-screenscout-quest-uncovering-affordable-tiktok-visuals-without-a-cost-for-2024/"><u>[New] ScreenScout Quest Uncovering Affordable TikTok Visuals Without a Cost for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/youtube72024/"><u>「推薦される最強のYouTubeダウンローダー7組！2024年版ランキング完全ガイド」</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-how-can-you-convert-an-opus-file-into-ogg-format-at-no-cost/"><u>1. How Can You Convert an OPUS File Into OGG Format at No Cost?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-dynamic-duels-revisited-best-hand-to-hand-games-ranked/"><u>2024 Approved Dynamic Duels Revisited Best Hand-to-Hand Games Ranked</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/5-outstanding-no-cost-tools-to-save-your-favorite-youtube-content-on-windows-ten/"><u>5 Outstanding No-Cost Tools to Save Your Favorite YouTube Content on Windows # Ten</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726026567366-gopro/"><u>高品質なGoProフィルムに変える解像度調節手順</u></a></li>
-<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-oppo-reno-10-pro-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Oppo Reno 10 Pro 5G FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ensuring-total-privacy-methods-to-completely-erase-your-iphone-data-permanently-with-the-help-of-stellar/"><u>Ensuring Total Privacy: Methods to Completely Erase Your iPhone Data Permanently with the Help of Stellar</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fast-conversion-guide-transforming-webm-files-into-mkv-format/"><u>Fast Conversion Guide: Transforming WebM Files Into MKV Format</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-apple-iphone-6-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 6 System? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-combining-images-for-an-engaging-picture-panorama/"><u>In 2024, Combining Images for an Engaging Picture Panorama</u></a></li>
-<li><a href="https://discover-great.techidaily.com/romance-revival-the-best-enduring-amour-films-ideal-for-a-memorable-valentines-celebration/"><u>Romance Revival: The Best Enduring Amour Films Ideal for a Memorable Valentine's Celebration</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/snapchat-downloads-for-mac-easy-steps-included-for-2024/"><u>Snapchat Downloads for Mac - Easy Steps Included for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-notch-evaluation-of-the-microsoft-sculpt-keyboard-exceptional-worth-for-money/"><u>Top-Notch Evaluation of the Microsoft Sculpt Keyboard – Exceptional Worth for Money</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/wavmp3windowsmac/"><u>WAVからMP3への変換方法：WindowsとMac両方で使える手軽な解決策</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windows-11-hd4k/"><u>Windows 11でフリーマガジン: HDや4Kにビデオ解像度調整の簡単ガイド</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726028147002-xperia/"><u>Xperiaデバイスで動画再生に失敗する方法: パワーオフから回復</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/levate-video-popularity-with-smart-thumbnails/"><u>[New] Elevate Video Popularity with Smart Thumbnails</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-chortle-central-leading-laughter-stars-on-tiktok/"><u>[Updated] 2024 Approved Chortle Central Leading Laughter Stars on TikTok</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-easy-steps-to-alter-story-video-playback-speed/"><u>[Updated] Easy Steps to Alter Story Video Playback Speed</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028139677-7/"><u>最新動画削減ソフトウェアリスト・日本語版上位7つ - おすすめベータサイト</u></a></li>
+<li><a href="https://games-able.techidaily.com/essential-ram-upgrades-of-2023-boosting-gaming-and-productivity-with-expert-picks-from-zdnet/"><u>Essential RAM Upgrades of 2023: Boosting Gaming and Productivity with Expert Picks From ZDNet</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-tecno-camon-20-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-infinix-hot-40-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Infinix Hot 40</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/in-depth-analysis-of-crucials-powerful-overclocked-c36-ddr5-memory-sticks-the-road-back-to-enhanced-performance/"><u>In-Depth Analysis of Crucial's Powerful Overclocked C36 DDR5 Memory Sticks: The Road Back to Enhanced Performance</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-new-capabilities-in-ipados-18-from-wwdc-2024-which-ipads-are-eligible-technews-today/"><u>Unveiling New Capabilities in iPadOS 18 From WWDC 2024 - Which iPads Are Eligible? | TechNews Today</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030257633-vlc/"><u>VLCメディアプレーヤーによる動画編集: 簡単な切り取りとカット手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027274485-windows-10/"><u>Windows 10向けゲーム録画の究極ガイド</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windowsh2-hevc/"><u>WindowsでH.2지베이 HEVCフォーマットの動画再生に問題がある方のハウツー</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1725289881166-ai-windows-mac-10/"><u>무료 AI 비디오 인핸서를 위해: Windows, Mac 모드로 시청하기! 가장 우수한 10개 선택</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
 </ul></div>
 

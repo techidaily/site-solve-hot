@@ -1,7 +1,7 @@
 ---
 title: Scott Opitz Appointed as ABBYY's New Chief Technology & Product Officer
-date: 2024-10-02T18:22:45.749Z
-updated: 2024-10-08T16:47:52.964Z
+date: 2024-10-11T23:52:06.603Z
+updated: 2024-10-14T22:50:47.553Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/05054cfe506491b99a35f8cf834debaebdbdb9bad3863dd1f8be14d01cc17569.jpg
@@ -34,10 +34,10 @@ Er hatte zahlreiche Führungspositionen in den Bereichen Technologie- und Gesch�
 \[1\] IDC, Worldwide Intelligent Process Automation Software Forecast, 2021–2025, Doc # US48015622, July 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -51,10 +51,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -62,10 +62,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -91,14 +91,17 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-mastering-multilingual-subtitling-a-comprehensive-approach-vimeo/"><u>[New] 2024 Approved Mastering Multilingual Subtitling A Comprehensive Approach (Vimeo)</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-google-pixel-8-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Google Pixel 8 Phone?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-sounds-ownership-policy/"><u>Instagram Sounds Ownership Policy</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/introducing-abbyy-one-the-cutting-edge-tool-revolutionizing-smart-business-process-automation/"><u>Introducing ABBYY One: The Cutting-Edge Tool Revolutionizing Smart Business Process Automation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-cookiebot-power-boost-personalization-and-engagement-in-digital-campaigns/"><u>Leverage Cookiebot Power: Boost Personalization & Engagement in Digital Campaigns</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-cookiebot-technology-for-dynamic-user-experiences-online/"><u>Leverage Cookiebot Technology for Dynamic User Experiences Online</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/nutzung-von-ki-und-ml-zur-verhutung-digitaler-straftaten-und-erfullung-gesetzlicher-anforderungen-einblicke-durch-abbyy/"><u>Nutzung Von KI Und ML Zur Verhütung Digitaler Straftaten Und Erfüllung Gesetzlicher Anforderungen – Einblicke Durch ABBYY</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-stuck-on-downloading-of-oppo-reno-10-5g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Oppo Reno 10 5G? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/screensnapper-prox-the-premier-pc-screen-recorder-by-apowersoft/"><u>ScreenSnapper ProX The Premier PC Screen Recorder by Apowersoft</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1716069881588-new-capturing-screens-with-internal-recorder-on-mate-1020-and-p-series-p20-p10-smartphones-for-2024/"><u>[New] Capturing Screens with Internal Recorder on Mate 10/20 & P Series (P20, P10) Smartphones. For 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-navigating-the-world-of-facebook-cover-vids-explained-for-2024/"><u>[Updated] Navigating the World of Facebook Cover Vids Explained for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbruch-einfluss-von-abnutzbaren-tools-auf-die-automation-der-forderungsabwicklung-und-integration-in-sap/"><u>Abbruch: Einfluss Von ABNutzbaren Tools Auf Die Automation Der Forderungsabwicklung Und Integration in SAP</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-enhances-sales-organization-with-new-leadership-joe-rayfield-named-vp/"><u>ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP</u></a></li>
+<li><a href="https://fox-that.techidaily.com/balancing-your-airpod-experience-find-out-why-one-side-is-louder-and-how-to-fix-it/"><u>Balancing Your AirPod Experience: Find Out Why One Side Is Louder and How to Fix It</u></a></li>
+<li><a href="https://win-popular.techidaily.com/how-to-save-your-favorite-ctv-shows-a-step-by-step-guide-with-ctv-downloader/"><u>How To Save Your Favorite CTV Shows: A Step-by-Step Guide with CTV Downloader</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-motion-blur-aadobe-photoshop-tutorial/"><u>Mastering Motion Blur AAdobe Photoshop Tutorial</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionize-your-web-presence-using-cutting-edge-cookiebot-technology/"><u>Revolutionize Your Web Presence Using Cutting-Edge CookieBot Technology</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/step-by-step-guide-building-your-own-powerhouse-for-professional-video-editing/"><u>Step-by-Step Guide: Building Your Own Powerhouse for Professional Video Editing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/tout-sur-lintegration-de-la-gestion-numerisation-et-traitement-automatisee-de-documents-methodologie-en-5-etapes-par-abbyy/"><u>Tout Sur L'Intégration De La Gestion Numérisation Et Traitement Automatisée De Documents - Méthodologie en 5 Étapes Par ABBYY</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/write-smarter-not-harder-leverage-hix-ai-and-gpt-4-for-efficient-content-creation/"><u>Write Smarter, Not Harder: Leverage HIX AI and GPT-4 for Efficient Content Creation</u></a></li>
 </ul></div>
 

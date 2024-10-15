@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News"
-date: 2024-10-03T18:42:44.080Z
-updated: 2024-10-08T16:29:46.750Z
+date: 2024-10-12T20:46:47.548Z
+updated: 2024-10-14T21:39:52.931Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5404a87cd8723307a9d0e6c73b4b785c1ac7bfa81bbe5b64a2be76707a27a2f.jpg
@@ -45,26 +45,23 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-advancements-in-quantum-hdr-technology-explained/"><u>[New] 2024 Approved Advancements in Quantum HDR Technology Explained</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-srt-to-subcap-mastery-in-3-steps/"><u>[New] SRT to SUBCAP Mastery in 3 Steps</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-complete-guide-to-crafting-youtube-masterpieces/"><u>[Updated] 2024 Approved The Complete Guide to Crafting YouTube Masterpieces</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-flight-with-top-5-hmds-for-drone-racing/"><u>[Updated] Mastering Flight with Top 5 HMDs for Drone Racing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-top-8-interactive-gloves-in-vr/"><u>2024 Approved Unveiling Top 8 Interactive Gloves in VR</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/free-web-meeting-applications-your-ultimate-guide-to-cloud-collaboration-for-2024/"><u>Free Web Meeting Applications Your Ultimate Guide to Cloud Collaboration for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-motorola-moto-e13-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Motorola Moto E13 Quickly? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-free-visual-treasury-select-10-sites-included/"><u>In 2024, Free Visual Treasury – Select 10 Sites Included</u></a></li>
-<li><a href="https://win-blog.techidaily.com/navigating-around-nwstoreexe-issues-strategies-for-smooth-operation/"><u>Navigating Around NW_Store.exe Issues: Strategies for Smooth Operation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-how-to-easily-disableremove-youtube-shorts-permanently/"><u>[New] How to Easily Disable/Remove YouTube Shorts Permanently?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-your-path-to-perfect-captures-the-complete-guide-to-netflix-on-mac/"><u>[New] Your Path to Perfect Captures The Complete Guide to Netflix on Mac</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-inside-the-latest-youtube-income-regulations/"><u>[Updated] Inside the Latest YouTube Income Regulations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-step-by-step-guide-to-installing-streamlabs-in-obs-mac-for-2024/"><u>[Updated] Step-by-Step Guide to Installing Streamlabs in OBS (Mac) for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-marketing-strategy-using-cutting-edge-cookiebot-solutions-for-user-tracking/"><u>Elevate Your Marketing Strategy Using Cutting-Edge Cookiebot Solutions for User Tracking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-user-experience-with-automated-conversion-tracking-the-power-of-cookiebot/"><u>Enhanced User Experience with Automated Conversion Tracking - The Power of Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-website-performance-with-cookiebot-technology/"><u>Enhanced Website Performance with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-footprints-using-cookiebot-solutions-skyrocket-your-web-visibility/"><u>Enhancing Digital Footprints Using Cookiebot Solutions: Skyrocket Your Web Visibility</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/erweiterte-texterfassungsfunktionen-in-echtzeit-von-abbyy-ein-leistungsfahigeres-kundenerlebnis-im-digitalen-raum/"><u>Erweiterte Texterfassungsfunktionen in Echtzeit Von ABBYY: Ein Leistungsfähigeres Kundenerlebnis Im Digitalen Raum</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/harness-the-power-of-ai-note-taking-made-simple-by-chatgpt/"><u>Harness the Power of AI: Note-Taking Made Simple by ChatGPT</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-comparative-review-top-cloud-services-prices/"><u>In 2024, Comparative Review Top Cloud Services' Prices</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Driven with Automated Bots: A Deep Dive Into Smart Marketing Technology"
-date: 2024-09-30T01:17:41.336Z
-updated: 2024-10-02T22:59:10.107Z
+date: 2024-10-10T17:27:14.252Z
+updated: 2024-10-15T00:28:15.795Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b5866ca0d81d1cb562971c20.jpg
@@ -21,10 +21,10 @@ BPO/Service Providers | Document Processing
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## パーソルグループ名刺管理システムにABBYYのモバイル対応AI OCRソリューションを採用   
@@ -34,9 +34,29 @@ BPO | 文書処理
 
 ![](https://static1.abbyy.com/abbyycommedia/33435/06-persol-ja-cover-556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### お客様の概要
 
 ![パーソルホールディングス株式会社](https://static4.abbyy.com/abbyycommedia/33438/06c3-persol-ja-logo-80x80.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | 氏名     | パーソルホールディングス株式会社                  |
 | ------ | --------------------------------- |
@@ -124,13 +144,6 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ABBYY Mobile Web Capture](https://static4.abbyy.com/abbyycommedia/21986/12-mobile-capture-sdk.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Mobile Web Capture](https://tools.techidaily.com/abbyy/products/) 
@@ -138,13 +151,6 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static2.abbyy.com/abbyycommedia/33439/06d-persol-ja-cover-360x162.jpg)](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") [PDF版](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [詳細を読む](https://static3.abbyy.com/abbyycommedia/33377/persol-customer-story-ja.pdf "PDF版") 
 
@@ -157,16 +163,16 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
@@ -190,18 +196,21 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-digital-disarmament-regaining-fb-power/"><u>[New] 2024 Approved Digital Disarmament Regaining FB Power</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-easy-ways-to-factory-reset-a-locked-iphone-se-2022-without-itunes-drfone-by-drfone-ios/"><u>3 Easy Ways to Factory Reset a Locked iPhone SE (2022) Without iTunes | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-m14-4g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy M14 4G</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-nokia-g42-5g-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Nokia G42 5G</u></a></li>
-<li><a href="https://fox-that.techidaily.com/bluetooth-basics-for-new-iphones-users-a-comprehensive-guide/"><u>Bluetooth Basics for New iPhones Users - A Comprehensive Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1722898324570-can-i-swim-with-my-data-intact-understanding-iphone-15-pro-maxs-water-protection/"><u>Can I Swim With My Data Intact? Understanding iPhone 15 Pro Max's Water Protection</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-predictions-for-ai-how-focused-ml-techniques-will-transform-industry-specific-business-problems-in-224/"><u>Future Predictions for AI: How Focused ML Techniques Will Transform Industry-Specific Business Problems in 2#24</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-artificial-intelligence-for-enhanced-insurance-risk-assessment/"><u>Harnessing Artificial Intelligence for Enhanced Insurance Risk Assessment</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harnessing-the-power-of-cookiebot-for-enhanced-marketing-results/"><u>Harnessing the Power of Cookiebot for Enhanced Marketing Results</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-mcdonalds-employs-abbyy-ocr-tech-in-their-mobile-app-insights-from-the-official-abbyy-blog/"><u>How McDonald's Employs ABBYY OCR Tech in Their Mobile App: Insights From the Official ABBYY Blog</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-xperia-10-v-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Xperia 10 V.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/integrating-abbyy-sdk-into-packaging-automation-enhancing-efficiency-in-transport-and-logistics/"><u>Integrating ABBYY SDK Into Packaging Automation: Enhancing Efficiency in Transport and Logistics</u></a></li>
-<li><a href="https://win-blog.techidaily.com/navigating-through-blockades-ultimate-solutions-when-roblox-wont-load/"><u>Navigating Through Blockades: Ultimate Solutions When Roblox Won't Load</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-how-to-perfectly-record-and-preserve-your-ps3-games-for-2024/"><u>[New] How to Perfectly Record and Preserve Your PS3 Games for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-a-buyers-guide-to-exceptional-hdr-photography-equipment/"><u>[New] In 2024, A Buyer's Guide to Exceptional HDR Photography Equipment</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-watchful-eye-discovering-twitters-hd-features/"><u>[New] Watchful Eye Discovering Twitter’s HD Features</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-transform-your-social-media-experience-livestream-fb-flawlessly/"><u>[Updated] 2024 Approved Transform Your Social Media Experience Livestream FB Flawlessly</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-compiled-lists-best-online-stores-for-youtube-tones-and-videos/"><u>[Updated] Compiled Lists Best Online Stores for Youtube Tones and Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-utilizing-edges-split-screen-feature-pip/"><u>2024 Approved Utilizing Edge's Split Screen Feature PIP</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/android-screen-capture-made-easy-free-for-2024/"><u>Android Screen Capture Made Easy, Free for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/deloitte-und-abbey-zusammenarbeit-beendet-innovatives-losungsportfolio-fur-die-optimierung-von-geschaftsprozessen/"><u>Deloitte Und ABBEY Zusammenarbeit Beendet - Innovatives Lösungsportfolio Für Die Optimierung Von Geschäftsprozessen</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-efficiency-in-the-abbyy-procurement-cycle-expert-ap-automation-tools-for-businesses/"><u>Enhance Efficiency in the ABBYY Procurement Cycle: Expert AP Automation Tools for Businesses</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-marketing-insights-with-the-cookiebot-platform/"><u>Enhanced Marketing Insights with the Cookiebot Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhanced-web-analytics-with-automated-cookie-technology-discover-the-power-of-your-productservice/"><u>Enhanced Web Analytics with Automated Cookie Technology: Discover the Power of [Your Product/Service]</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-analytics-through-cookiebot-enabled-sites/"><u>Enhancing Analytics Through Cookiebot-Enabled Sites</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/erweiterte-moglichkeiten-der-dokumentbearbeitung-mit-neuem-update-in-finereader-14-abbyy-software/"><u>Erweiterte Möglichkeiten Der Dokumentbearbeitung Mit Neuem Update in FineReader 14, ABBYY Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/experience-tailored-content-with-our-cookiebot-integration-technology/"><u>Experience Tailored Content with Our Cookiebot Integration Technology</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/get-your-hands-on-the-affordable-msi-bravo-with-rtx-4060-graphics-sub-1000-deals/"><u>Get Your Hands on the Affordable MSI Bravo with RTX 4060 Graphics: Sub-$1,000 Deals</u></a></li>
+<li><a href="https://os-tips.techidaily.com/quick-guide-how-to-retrieve-lost-images-from-your-icloud-photo-library/"><u>Quick Guide: How to Retrieve Lost Images From Your iCloud Photo Library</u></a></li>
 </ul></div>
 

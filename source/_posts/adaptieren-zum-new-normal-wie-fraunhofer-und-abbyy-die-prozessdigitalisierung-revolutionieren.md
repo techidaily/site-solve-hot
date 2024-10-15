@@ -1,7 +1,7 @@
 ---
 title: "Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren"
-date: 2024-09-26T02:54:24.138Z
-updated: 2024-10-03T09:07:59.737Z
+date: 2024-10-11T21:16:27.918Z
+updated: 2024-10-14T18:15:02.668Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0d31f5646fe3a9a749251ddb64d10288427198f92e87a603dc09ffcf334ba8c5.jpg
@@ -14,10 +14,10 @@ Studie
 ## Prozessdigitalisierung für das „New Normal“
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Branchenübergreifende Studie zu Herausforderungen und Chancen der Prozessoptimierung
@@ -25,24 +25,24 @@ Studie
 ![Prozessdigitalisierung für das New Normal](https://static1.abbyy.com/abbyycommedia/34552/118-process-digitization-for-the-new-normal-de-360x232.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Prozesstechnologien wie Process Mining, Robotic Process Automation oder Process Monitoring finden in Unternehmen aller Branchen zunehmend mehr Akzeptanz und Anwendung. Beschleunigt wird diese Entwicklung durch Trends wie Fachkräftemangel, mehr Automatisierungs- und Innovationsdruck und nicht zuletzt die Covid-19-Pandemie.
 
 Unsere aktuelle Studie in Zusammenarbeit mit dem Fraunhofer-Institut für Angewandte Informationstechnik FIT zeigt allerdings, dass viele Unternehmen mit dem aktuellen Stand ihrer Geschäftsprozesse noch nicht zufrieden sind und großes Verbesserungspotenzial sehen. Im Rahmen der Studie wurden Unternehmen der Branchen Versicherungen und Banken sowie Logistik und Produktion befragt.
 
-### Laden Sie die Studie jetzt herunter, um mehr über den aktuellen Stand zum Einsatz von Prozesstechnologien und damit einhergehende Handlungsempfehlungen zu erfahren.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### Laden Sie die Studie jetzt herunter, um mehr über den aktuellen Stand zum Einsatz von Prozesstechnologien und damit einhergehende Handlungsempfehlungen zu erfahren.
 
 ## Danke für Ihr Interesse an ABBYY.
 
@@ -51,10 +51,10 @@ Unsere aktuelle Studie in Zusammenarbeit mit dem Fraunhofer-Institut für Angewa
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -126,17 +126,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-youtube-mastery-elevating-your-channel-with-strategic-spotlight-techniques/"><u>[Updated] 2024 Approved YouTube Mastery Elevating Your Channel with Strategic Spotlight Techniques</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-dissecting-metaverse-and-multimeva-what-sets-them-apart-insightful-guide-for-2024/"><u>[Updated] Dissecting Metaverse and Multimeva What Sets Them Apart (Insightful Guide) for 2024</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/1720600433832-stellar-data-recovery-windows/"><u>「Stellar Data Recovery: Windows版無料、完全修復機能付き」</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-ultimate-playbook-for-watching-live-world-class-cricket-games/"><u>2024 Approved The Ultimate Playbook for Watching Live, World-Class Cricket Games</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-digital-campaigns-using-the-power-of-cookiebot/"><u>Elevate Your Digital Campaigns Using the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/empower-your-site-with-cookiebot-advanced-analytics-and-custom-user-experience-features/"><u>Empower Your Site with Cookiebot: Advanced Analytics & Custom User Experience Features</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/ending-the-headache-correcting-minecrafts-unexpected-shutdowns-by-improving-your-graphics-drivers-in-windows/"><u>Ending the Headache: Correcting Minecraft's Unexpected Shutdowns by Improving Your Graphics Drivers in Windows</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-document-management-efficiency-the-new-wave-of-sharp-mfps-featuring-abbyy-ocr-technology-as-showcased-on-abbyys-expert-blog/"><u>Enhance Document Management Efficiency: The New Wave of Sharp MFPs Featuring ABBYY OCR Technology, as Showcased on ABBYY's Expert Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-cookiebots-advanced-tracking-technology/"><u>Enhance User Experience with Cookiebot's Advanced Tracking Technology</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-oneplus-ace-2-pro-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset OnePlus Ace 2 Pro Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/initiating-immediate-creation-of-captivating-facebook-panoramas-for-2024/"><u>Initiating Immediate Creation of Captivating Facebook Panoramas for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/spark-interest-fast-unique-bios-and-hashtags-for-tinder-success-for-2024/"><u>Spark Interest Fast Unique Bios and Hashtags for Tinder Success for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-harnessing-video-magic-channel-creation-wizardry-for-2024/"><u>[Updated] Harnessing Video Magic Channel Creation Wizardry for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-navigating-the-world-of-video-capturing-on-diverse-devices-for-2024/"><u>[Updated] Navigating the World of Video Capturing on Diverse Devices for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/30plus-metaverse-quotes-to-inspire-you-include-ar-and-vr-for-2024/"><u>30+ Metaverse Quotes to Inspire You [Include AR & VR] for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-for-beginners-learn-and-share-at-these-nine-virtual-gatherings/"><u>AI for Beginners: Learn and Share at These Nine Virtual Gatherings</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/boosting-your-pcs-gameplay-top-tips-for-enhancing-gaming-performance-in-windows-11/"><u>Boosting Your PC's Gameplay: Top Tips for Enhancing Gaming Performance in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-2er-ipad-pro-with-m1-chip-unmatched-desktop-power-in-portable-form/"><u>Comprehensive Analysis of the 2Er iPad Pro with M1 Chip - Unmatched Desktop Power in Portable Form</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionizing-personalized-engagement-and-retargeting/"><u>Cookiebot: Revolutionizing Personalized Engagement and Retargeting</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebots-intelligent-technology-propelling-success-in-digital-marketing/"><u>Cookiebot's Intelligent Technology Propelling Success in Digital Marketing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/data-management-in-the-cloud-by-abbyy-select-your-region-wisely/"><u>Data Management in the Cloud by ABBYY - Select Your Region Wisely</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/drive-more-traffic-using-cookiebots-advanced-analytics-tools/"><u>Drive More Traffic Using Cookiebot's Advanced Analytics Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-online-presence-with-cookiebot-seo-solutions-for-maximum-organic-visibility/"><u>Elevate Your Online Presence with Cookiebot SEO Solutions for Maximum Organic Visibility</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-analytics-and-roi-through-ai-driven-conversions-unleash-the-potential-of-cookiebot-solutions/"><u>Enhance Analytics and ROI Through AI-Driven Conversions: Unleash the Potential of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-site-traffic-with-our-advanced-technology-experience-the-power-of-cookiebot/"><u>Enhance Site Traffic with Our Advanced Technology - Experience the Power of Cookiebot!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-technology/"><u>Enhance Web Analytics with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/how-to-upgrade-from-windows-11-home-to-pro/"><u>How to Upgrade From Windows 11 Home to Pro</u></a></li>
+<li><a href="https://blog-min.techidaily.com/introducing-automated-summary-clips-on-youtube-using-artificer-intellect-algorithms/"><u>Introducing Automated Summary Clips on YouTube Using Artificer Intellect Algorithms</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Realme 12 5G | Dr.fone</u></a></li>
 </ul></div>
 

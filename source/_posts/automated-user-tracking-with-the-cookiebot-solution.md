@@ -1,7 +1,7 @@
 ---
 title: Automated User Tracking with the Cookiebot Solution
-date: 2024-09-27T02:58:08.432Z
-updated: 2024-10-03T11:38:07.524Z
+date: 2024-10-08T01:28:57.317Z
+updated: 2024-10-15T00:27:29.343Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1040d06f8d0aa10730551351f9cb44d3bcea699d80952a8774c562402ba30c3b.jpg
@@ -31,13 +31,6 @@ One of the critical aspects of online services involving sensitive data—such a
 
 ![Identity proofing in action example](https://static1.abbyy.com/abbyycommedia/36102/poi-gif-5_using-poi-2.gif?width=847&height=477)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 A common misperception of identity proofing equates it with another common online security concept, _identity authentication_. Authentication is the use of a combination of credentials—generally a username and password—to gain access to a resource. However, before users can be assigned credentials, especially for access to sensitive resources, they must first verify who they are through identity proofing.
 
 ## How does identity proofing work?
@@ -50,7 +43,21 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 ![](https://static1.abbyy.com/abbyycommedia/36099/2_steps-in-identity-proofing-and-identity-affirmation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
 
@@ -59,6 +66,13 @@ While identity proofing is a vital capability for organizations looking to secur
 Identity affirmation, [according to Gartner](https://www.gartner.com/en/documents/3990087), “describes capabilities that either assess solely whether the real-world identity exists or can provide supporting risk or trust signals to an identity claim.” Successful identity affirmation requires access to multiple outside data sources. For example, in a low-confidence, high-risk transaction, a business will want to verify an address via a utility bill, birth certificate, income statement, and credit bureau data to verify that this data corresponds to an actual human being.
 
 When businesses leverage identity proofing and identity affirmation in tandem, they can enjoy a high level of confidence that the users they interact with really are who they say they are.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is there a “one-stop shop” for identity proofing and affirmation capabilities?
 
@@ -72,10 +86,10 @@ While many vendors offer identity proofing and affirmation tools, few actually d
 * Process intelligence and mining to identify opportunities for process improvement
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What are common use cases for identity proofing?
@@ -116,13 +130,6 @@ Not only can you minimize the risk of fraud—and the corresponding costs in ter
 
 Learn about ABBYY's comprehensive identity proofing solution. [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/) does it all. 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### ABBYY Proof of Identity
 
 Easy for your customers. Secure for your business.
@@ -130,13 +137,6 @@ Easy for your customers. Secure for your business.
 [Contact us for a demo](https://tools.techidaily.com/abbyy/products/) 
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Customer Experience](https://tools.techidaily.com/abbyy/products/) [Customer Onboarding](https://tools.techidaily.com/abbyy/products/) [Data Privacy](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Government](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Insurance](https://tools.techidaily.com/abbyy/products/) [Legal](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -201,24 +201,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-simplify-live-streaming-and-archiving-with-vlc-webcam-integration-for-2024/"><u>[New] Simplify Live Streaming and Archiving with VLC Webcam Integration for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-fix-frozen-mobile-youtube-videos-on-multiple-devices/"><u>[Updated] Fix Frozen Mobile YouTube Videos on Multiple Devices</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-navigating-the-world-of-fb-instream-ads-a-comprehensive-setup-manual-for-2024/"><u>[Updated] Navigating the World of FB Instream Ads A Comprehensive Setup Manual for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726030046414-windows-media-player/"><u>「ファイル再生中のWindows Media Player 問題」: 修正方法と解決策</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-compatible-platforms-a-step-by-step-guide-to-watching-wtv-videos-anywhere/"><u>1. Compatible Platforms: A Step-by-Step Guide to Watching WTV Videos Anywhere</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-step-by-step-guide-adjusting-your-sound-quality-by-changing-the-bitrate/"><u>1. Step-by-Step Guide: Adjusting Your Sound Quality by Changing the Bitrate</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/enhance-visual-engagement-mastering-instagram-image-posts/"><u>Enhance Visual Engagement Mastering Instagram Image Posts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/harnessing-the-power-of-imagery-for-engaging-fb-slideshows/"><u>Harnessing the Power of Imagery for Engaging FB Slideshows</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-choosing-free-video-editing-software-on-iphone-and-ipad/"><u>In 2024, Choosing Free Video Editing Software on iPhone & iPad</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-elevating-video-experience-non-youtube-hubs-explained/"><u>In 2024, Elevating Video Experience Non-Youtube Hubs Explained</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-f14-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy F14 5G Phone without Any Data Loss</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-strategies-to-increase-views-via-thumbnails/"><u>In 2024, Strategies to Increase Views via Thumbnails</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726029019563-insta/"><u>Insta動画を最高に見せる投稿テクニック</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-how-to-listen-to-and-transform-fsb-recordings-into-mp3-files/"><u>Step-by-Step Tutorial on How to Listen to and Transform FSB Recordings Into MP3 Files</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-14-free-mobile-anime-viewing-apps-best-picks-for-android-and-ios-devices/"><u>Top 14 FREE Mobile Anime Viewing Apps: Best Picks for Android & iOS Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-7-screen-recording-tools-for-pcs-and-macbooks-find-the-perfect-one/"><u>Top 7 Screen Recording Tools for PCs & MacBooks - Find the Perfect One</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-avi-playback-issues-for-a-seamless-experience-on-chromebooks/"><u>Troubleshooting AVI Playback Issues for a Seamless Experience on Chromebooks</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-how-to-successfully-add-hevc-footage-in-after-effects/"><u>Troubleshooting Guide: How to Successfully Add HEVC Footage in After Effects</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlocking-an-icloud-locked-ipad-and-iphone-7-by-drfone-ios/"><u>Unlocking an iCloud Locked iPad and iPhone 7</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-reverberation-artisan-collection/"><u>[New] In 2024, Reverberation Artisan Collection</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-getting-live-on-instagram-a-simple-how-to/"><u>[Updated] In 2024, Getting Live on Instagram A Simple How-To</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-art-of-crafting-engaging-igtv-titles-for-2024/"><u>[Updated] The Art of Crafting Engaging IGTV Titles for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/4-effective-strategies-to-resolve-unsupported-video-file-formats/"><u>4 Effective Strategies to Resolve Unsupported Video File Formats</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/6auy5zob6loq44gq54sh5paz5yuv55s744gr5lik57sa44ko44ov44kn44kv44oi44ks5yqg44gi44kl44ox44ot44gu44og44kv44ol44od44kv/"><u>高品質な無料動画に上級エフェクトを加えるプロのテクニック</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/gifand10/"><u>最新！動画化のためのGIFを効率よく変換するフリーソフト&サイトベスト10選</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/beginners-journey-to-mastery-how-to-select-and-use-effective-pc-screenshots-software/"><u>Beginner's Journey to Mastery: How to Select and Use Effective PC Screenshots Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comprehensive-guide-to-breaking-encrypted-iso-images-with-dependable-decoding-software/"><u>Comprehensive Guide to Breaking Encrypted ISO Images with Dependable Decoding Software</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/conversione-libera-da-wmv-a-mp4-preservando-il-98-della-qualita-originale/"><u>Conversione Libera Da WMV a MP4, Preservando Il 98% Della Qualità Originale</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/easy-tutorial-on-transforming-tivo-files-into-high-quality-mp4-videos/"><u>Easy Tutorial on Transforming TiVo Files Into High-Quality MP4 Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-guide-from-wmv-to-h264-and-back/"><u>Effortless Conversion Guide: From WMV to H.264 And Back</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-downloads-a-complete-guide-to-setting-up-advanced-download-manager-on-all-platforms/"><u>Elevate Your Downloads: A Complete Guide to Setting Up Advanced Download Manager on All Platforms</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-convert-media-files-for-optimal-playback-on-smartphones-including-nokia-samsung-htc-and-blackberry-models/"><u>How to Convert Media Files for Optimal Playback on Smartphones Including Nokia, Samsung, HTC & Blackberry Models</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-efficiently-manage-and-edit-your-iphone-photographs-common-issues-and-fixes/"><u>How to Efficiently Manage and Edit Your iPhone Photographs: Common Issues and Fixes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-k11x-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mac-tools-to-tighten-instagram-video-content/"><u>In 2024, Mac Tools to Tighten Instagram Video Content</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-the-secrets-of-lightroom-on-android-platforms/"><u>In 2024, Unveiling the Secrets of Lightroom on Android Platforms</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721471553081-master-seamless-audio-transition-with-these-six-fixes-making-your-airpods-smartly-switch-between-apple-gadgets/"><u>Master Seamless Audio Transition with These Six Fixes: Making Your AirPods Smartly Switch Between Apple Gadgets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/reset-password-quickly-regaining-access-post-hack/"><u>Reset Password Quickly Regaining Access Post-Hack</u></a></li>
 </ul></div>
 

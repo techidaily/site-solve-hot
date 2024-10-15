@@ -1,7 +1,7 @@
 ---
 title: Accelerate PO Management and Elevate Service Quality Through GEMLUX’s Advanced ABBYY IDP Solutions Within NetSuite
-date: 2024-09-30T12:17:20.547Z
-updated: 2024-10-03T05:33:17.382Z
+date: 2024-10-07T22:50:08.905Z
+updated: 2024-10-14T23:07:23.324Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8873a1de6b737b1bdaf613e6b23cabb06e207ebbce95a2d263cbd7e4a2de27ba.jpg
@@ -44,13 +44,6 @@ By making purchase order processing more efficient, sales reps can spend more ti
 
 Kailyn Nordsiek, ERP Systems Specialist
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Challenge
 
 GEMLUX sales reps were spending 30 to 45 minutes manually entering data from customer purchase orders into their NetSuite ERP. POs could be 10 pages long with as many as 100 line items. Every time sales reps entered a line, they had to review customizations in place, while answering calls from customers.
@@ -77,10 +70,10 @@ The seamless integration of ABBYY IDP with NetSuite enables consolidation of lin
 ABBYY IDP has the ability to process any kind of document. With the successful integration of NetSuite with ABBYY IDP, GEMLUX can extend those benefits to other areas of document processing.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Value
@@ -95,11 +88,25 @@ ABBYY IDP has the ability to process any kind of document. With the successful i
 
 ![FC_1](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### ABBYY Solutions for Accounts Payable Automation
 
 [Learn more](https://tools.techidaily.com/abbyy/products/)
 
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### PDF Version
 
@@ -108,17 +115,10 @@ ABBYY IDP has the ability to process any kind of document. With the successful i
 ![laptop mug](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -140,22 +140,21 @@ ABBYY IDP has the ability to process any kind of document. With the successful i
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-mastering-live-streaming-for-peak-engagement-for-2024/"><u>[Updated] Mastering Live Streaming for Peak Engagement for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-vivo-v29e-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Vivo V29e to iPhone | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-on-iphone-se-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock On iPhone SE Online</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/bypass-restrictions-the-ultimate-tutorial-on-viewing-bilibili-worldwide/"><u>Bypass Restrictions: The Ultimate Tutorial on Viewing Bilibili Worldwide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/converting-youtube-content-into-convenient-audio-format-a-step-by-step-guide/"><u>Converting YouTube Content Into Convenient Audio Format: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/create-your-own-iphone-ringtone-with-mp4-video-a-step-by-step-guide/"><u>Create Your Own iPhone Ringtone with MP4 Video: A Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/discovering-the-leading-6-head-mounted-gopro-systems-for-capturing-life/"><u>Discovering the Leading 6 Head-Mounted GOPRO Systems for Capturing Life</u></a></li>
-<li><a href="https://program-issues.techidaily.com/get-the-latest-logitech-g403-drivers-and-enjoy-seamless-pc-gaming/"><u>Get the Latest Logitech G403 Drivers and Enjoy Seamless PC Gaming</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-boost-your-creative-edge-on-instagram-with-more-free-filters/"><u>In 2024, Boost Your Creative Edge on Instagram with More Free Filters</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/quick-tempo-adjustment-application-selection-for-2024/"><u>Quick Tempo Adjustment Application Selection for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-xiaomi-redmi-note-13-pro-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Xiaomi Redmi Note 13 Pro 5G Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-essential-igtv-feeds-for-modern-viewers/"><u>[New] In 2024, Essential IGTV Feeds for Modern Viewers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-mastering-vimeos-end-screens-for-creative-directives/"><u>[Updated] Mastering Vimeo's End Screens for Creative Directives</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/1-ultimate-guide-top-5-premier-free-tools-for-retrieving-lost-images-from-your-digital-camera/"><u>1. Ultimate Guide: Top 5 Premier Free Tools for Retrieving Lost Images From Your Digital Camera</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-harness-youtubes-power-25-steps-to-prominence-and-recognition/"><u>2024 Approved Harness YouTube's Power 25 Steps to Prominence and Recognition</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-vivo-y02t-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Vivo Y02T</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explore-the-best-ios-camera-enhancing-apps-all-at-no-cost/"><u>In 2024, Explore the Best iOS Camera Enhancing Apps - All at No Cost</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-best-of-the-best-free-avi-video-rotation-software/"><u>New In 2024, Best of the Best Free AVI Video Rotation Software</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>New In 2024, How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
+<li><a href="https://techidaily.com/remove-the-lock-of-motorola-razr-40-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of Motorola Razr 40</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-steps-for-free-transforming-your-favorite-youtube-content-into-a-playable-dvd/"><u>Seamless Steps for FREE: Transforming Your Favorite YouTube Content Into a Playable DVD</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/speedy-methods-for-embedding-text-overlays-in-movies/"><u>Speedy Methods for Embedding Text Overlays in Movies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/speedy-solutions-for-converting-your-mkv-videos-to-compatible-avi-version/"><u>Speedy Solutions for Converting Your MKV Videos to Compatible AVI Version</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-creating-a-gif-from-your-favorite-youtube-video/"><u>Step-by-Step Guide: Creating a GIF From Your Favorite YouTube Video</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/tech-rivalry-unveiled-apples-ongon-dispute-with-adobe-over-flash-support/"><u>Tech Rivalry Unveiled: Apple's Ongon Dispute with Adobe over Flash Support</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-avi-to-dvd-transcoder-for-windows-11-users-in-2e24/"><u>Top Rated AVI to DVD Transcoder for Windows 11 Users in 2E24</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-two-strategies-for-successful-amv-downloads/"><u>Top Two Strategies for Successful AMV Downloads</u></a></li>
 </ul></div>
 

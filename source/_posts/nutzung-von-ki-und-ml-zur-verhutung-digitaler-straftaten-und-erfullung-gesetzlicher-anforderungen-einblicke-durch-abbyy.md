@@ -1,7 +1,7 @@
 ---
 title: Nutzung Von KI Und ML Zur Verhütung Digitaler Straftaten Und Erfüllung Gesetzlicher Anforderungen – Einblicke Durch ABBYY
-date: 2024-10-02T03:30:18.517Z
-updated: 2024-10-03T02:55:11.056Z
+date: 2024-10-12T19:11:31.262Z
+updated: 2024-10-14T19:51:10.538Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/febc5e8eb723097c959ee0c4369a98c541397c828606f3e607457279dcc62863.jpg
@@ -20,16 +20,10 @@ Im Bankwesen sind die jährlichen Kosten für Cyberangriffe unter allen Branchen
 Um ihre Produktivität zu erhöhen, setzen Finanzinstitute mehr und mehr auf Automatisierung, mobile Technologien und kontaktlose Interaktionen. Diese Maßnahmen können aber neue Schwachstellen schaffen, die sich Cyberkriminelle zunutze machen. Was können Finanzinstitute gegen die ständigen Angriffe unternehmen?
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
@@ -43,10 +37,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 * verdächtige Verhaltensmuster in Prozessen zu entdecken
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -56,10 +50,10 @@ Laden Sie unser E-Book herunter und erfahren Sie, wie Digital Intelligence Banke
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -131,15 +125,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-ultimate-exclusive-windows-11s-media-importers/"><u>[New] 2024 Approved The Ultimate Exclusive Windows 11'S Media Importers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-tune-sharing-compliance-instagram-ip-codex/"><u>2024 Approved Tune-Sharing Compliance Instagram IP Codex</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cut-costs-enhance-visuals-free-banners-for-video-makers/"><u>Cut Costs, Enhance Visuals – Free Banners for Video Makers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-efficiency-in-the-abbyy-procurement-cycle-expert-ap-automation-tools-for-businesses/"><u>Enhance Efficiency in the ABBYY Procurement Cycle: Expert AP Automation Tools for Businesses</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-marketing-insights-with-the-cookiebot-platform/"><u>Enhanced Marketing Insights with the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-web-analytics-with-automated-cookie-technology-discover-the-power-of-your-productservice/"><u>Enhanced Web Analytics with Automated Cookie Technology: Discover the Power of [Your Product/Service]</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-analytics-through-cookiebot-enabled-sites/"><u>Enhancing Analytics Through Cookiebot-Enabled Sites</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-videos-not-playing-with-my-galaxy-s23-by-stellar-video-repair-mobile-video-repair/"><u>How to fix videos not playing with my Galaxy S23?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-honor-v-purse-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Honor V Purse Data? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/movavigifonline-webp/"><u>Movaviで簡単GIF作成:フリーONLINE WEBPからの変換</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/professional-tips-sharpen-and-brighten-your-iphones-hdri-in-adobe-premiere-pro/"><u>[Professional Tips] Sharpen and Brighten Your iPhone's HDRI in Adobe Premiere Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-efficient-editing-for-quick-youtube-content/"><u>[Updated] 2024 Approved Efficient Editing for Quick YouTube Content</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-effective-methods-for-capturing-youtube-live-broadcasts/"><u>[Updated] Effective Methods for Capturing YouTube Live Broadcasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-improving-sound-speeds-a-guide-for-safe-spotify-use/"><u>[Updated] Improving Sound Speeds A Guide for Safe Spotify Use</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-the-digital-frontier-best-oculus-gaming-setups/"><u>2024 Approved Leading the Digital Frontier Best Oculus Gaming Setups</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comprehensive-guide-on-eula-notification-policies/"><u>Comprehensive Guide on EULA Notification Policies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-customization-enhancing-user-experience/"><u>Cookiebot-Driven Customization: Enhancing User Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-personalization-enhance-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhance Your Website's User Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Tracking Technology</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unlock-new-dimensions-with-these-vr-videos/"><u>In 2024, Unlock New Dimensions with These VR Videos</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/the-ultimate-guide-upgrading-ati-radeon-gpu-drivers-on-a-windows-machine/"><u>The Ultimate Guide: Upgrading ATI Radeon GPU Drivers on a Windows Machine</u></a></li>
+<li><a href="https://win-web.techidaily.com/ultimate-guide-to-finding-and-restoring-deleted-files-on-windows-881-best-freeware-solutions/"><u>Ultimate Guide to Finding and Restoring Deleted Files on Windows 8/8.1 - Best Freeware Solutions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/zerogpt-and-its-shortcomings-unveiling-4-moments-of-ai-detection-tools-going-wrong/"><u>ZeroGPT and Its Shortcomings: Unveiling 4 Moments of AI Detection Tools Going Wrong</u></a></li>
 </ul></div>
 

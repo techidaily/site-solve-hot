@@ -1,7 +1,7 @@
 ---
 title: Enhance Web Analytics with the Power of Cookiebot Technology
-date: 2024-09-25T19:21:20.091Z
-updated: 2024-10-02T20:55:57.522Z
+date: 2024-10-09T00:07:46.870Z
+updated: 2024-10-15T01:36:31.078Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f780668281f43de469309d641324f16afda3a68eb738e8c283227d7e47f57830.jpg
@@ -29,29 +29,9 @@ Gehe direkt zu:
 [Verknüpfung von Process Intelligence mit intelligenter Prozessautomatisierung (IPA)](https://www.abbyy.com/de/blog/what-is-process-intelligence/#ipa)  
 [Häufig gestellte Fragen](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Was ist Process Intelligence?
 
 **Process Intelligence ist eine Kombination von datengesteuerten Fähigkeiten, die der Analyse und Verbesserung von Geschäftsabläufen dienen.**  Sie nutzt die Daten aus unternehmenseigenen Informationssystemen, um Muster und Erkenntnisse zu finden, die den Weg zu neuen betrieblichen Effizienzen weisen. **Die fünf wesentlichen Säulen für nachhaltige Process Intelligence sind Prozesserkennung, Prozessanalyse, Prozessüberwachung, Prozessvorhersage und Prozesssimulation.**  Unternehmen können die daraus resultierenden Erkenntnisse nutzen, um ihre Prozesse zu erkennen, zu verstehen und effektiver zu verwalten.
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Die fünf Säulen von Process Intelligence
 
@@ -101,15 +81,22 @@ In jeder Branche ermöglicht [die Integration von Process Intelligence in eine d
 
 Krankenhäuser und andere Gesundheitsdienstleister können Process Intelligence nutzen, um das Patientenerlebnis und die klinische Effektivität zu verbessern, Qualitätsstandards aufrechtzuerhalten und Compliance-Risiken zu vermeiden. Sie können die Einhaltung von Vorschriften erleichtern, indem sie klinische Abläufe in Echtzeit überwachen und das Personal proaktiv warnen, wenn Protokolle nicht eingehalten oder Prozessabweichungen festgestellt werden.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Banken
 
 Process Intelligence ermöglicht es Banken und anderen Finanzinstituten, die digitale Transformation voranzutreiben und Prioritäten bei der Risikokontrolle und der Einhaltung von Vorschriften zu unterstützen. Sie können Transaktionsdaten nahezu in Echtzeit analysieren, um den Kundenservice zu verbessern, die Genauigkeit der Berichterstattung zu erhöhen und das Risiko kostspieliger Fehler zu verringern. Prozessüberwachung hilft ihnen, sicherzustellen, dass SLAs, Compliance-Mandate und gesetzliche Anforderungen eingehalten werden, und verringert so das Risiko kostspieliger Fehler, die andernfalls übersehen werden könnten.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Versicherungen
@@ -131,6 +118,13 @@ Vor der Implementierung der Automatisierung setzte das Unternehmen Process-Minin
 * Standardisierung der Ausführung von Aufgaben
 
 Nach der Umsetzung dieser Optimierungen implementierte das Unternehmen eine intelligente Prozessautomatisierungslösung, die robotische Prozessautomatisierungsbots (RPA-Bots) für die Dateneingabe und -extraktion, KI-Algorithmen für die Entscheidungsfindung, Workflow-Automatisierung für die Orchestrierung des End-to-End-Prozesses und Process-Intelligence-Tools zur Überwachung der Leistung des automatisierten Prozesses und zur Ermittlung weiterer verbesserungswürdiger Bereiche umfasste.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Ein ganzheitlicher Ansatz für Process Intelligence
 
@@ -162,6 +156,13 @@ Damit ein Prozess erfolgreich automatisiert werden kann, muss er zunächst verst
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -171,13 +172,6 @@ Scott Opitz ist Chief Technology Officer und verantwortlich für die globale Pro
 In seiner 30-jährigen Laufbahn in der Computerbranche hat Scott Opitz verschiedene Unternehmen in den Bereichen Anwendungsintegration, Geschäftsprozessmanagement und Business Intelligence gegründet und aufgebaut. Er war Gründer sowie President und Chief Executive Officer von Altosoft Corporation, einem Unternehmen für Business Intelligence-Software, das dann von Kofax übernommen wurde. Nach der Übernahme von Altosoft war Scott Opitz als Senior Vice President & General Manager für Analytics tätig. 
 
 Zuvor fungierte er unter anderem als Senior Vice President, Worldwide Marketing & Business Development für webMethods (heute Software AG), wobei er für Marketing, Geschäftsentwicklung und strategische Produktplanung verantwortlich zeichnete. Zu webMethods war er im Zuge von dessen Übernahme von IntelliFrame Corporation gekommen, einem Unternehmen, das sowohl Produkte zur Datenintegration als auch die integrierte Workflow- und BPM-Plattform InVista bereitstellte, die Opitz mitgegründet hatte. Scott Opitz hat außerdem zahlreiche Führungspositionen in den Bereichen Technologie, Marketing und Geschäftsentwicklung für staatliche und privatwirtschaftliche Unternehmen bekleidet.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Gefällt mir, teilen oder neu posten 
 
@@ -204,16 +198,20 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-proven-pc-strategies-elevating-video-quality-and-engagement-on-youtube/"><u>[New] 2024 Approved Proven PC Strategies Elevating Video Quality and Engagement on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-optimal-video-downloads-with-top-converters/"><u>[New] In 2024, Optimal Video Downloads with Top Converters</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-uniting-your-network-with-cross-platform-skype-chat-groups-a-how-to-guide/"><u>[New] In 2024, Uniting Your Network with Cross-Platform Skype Chat Groups A How-To Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-verdict-on-android-photo-editing-does-picku-excel/"><u>[New] The Verdict on Android Photo Editing – Does PickU Excel?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-hope-on-the-big-screen-top-10-cinematic-power-ups/"><u>[Updated] Hope on the Big Screen Top 10 Cinematic Power-Ups</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/android-lacking-procreate-discover-top-6-alternatives-for-your-digital-art-needs/"><u>Android Lacking Procreate? Discover Top 6 Alternatives for Your Digital Art Needs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-homogeneiser-la-gestion-des-factures-dans-sap-a-laide-dabbyy-solutions-innovantes-pour-le-traitement-comptable-chez-rochling/"><u>Comment Homogénéiser La Gestion Des Factures Dans SAP À L'aide D'ABBYY : Solutions Innovantes Pour Le Traitement Comptable Chez Röchling</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-enhance-your-websites-performance/"><u>Cookiebot-Driven Solutions: Enhance Your Website's Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-analytics-unleashing-powerful-insights/"><u>Cookiebot-Enabled Analytics: Unleashing Powerful Insights</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-sites-user-engagement/"><u>Cookiebot-Enabled: Enhance Your Site's User Engagement</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-poco-f5-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Poco F5 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-ace-google-call-best-screen-saver-bgs-list/"><u>[Updated] In 2024, Ace Google Call Best Screen Saver BGs List</u></a></li>
+<li><a href="https://techtrends.techidaily.com/10-must-have-notetaking-apps-redefining-productivity-trends/"><u>10 Must-Have Notetaking Apps Redefining Productivity Trends</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-nubia-red-magic-9-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comment-lintelligence-artificielle-renforce-la-motivation-des-collaborateurs-gain-dacces-a-linformation-dans-les-rapports/"><u>Comment L'Intelligence Artificielle Renforce La Motivation Des Collaborateurs : Gain D'Accès À L'Information Dans Les Rapports</u></a></li>
+<li><a href="https://win11.techidaily.com/comparing-local-data-exchange-protocols-google-and-windows-showdown/"><u>Comparing Local Data Exchange Protocols: Google & Windows Showdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-lamicall-s-stationary-for-tablets-a-study-in-practical-design/"><u>Comprehensive Review of the Lamicall S Stationary for Tablets: A Study in Practical Design</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-web-personalization-solutions/"><u>Cookiebot-Driven Web Personalization Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-features-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Features: Enhancing User Experience with Smart Tracking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-marketing-automation-solutions/"><u>Cookiebot-Enabled Marketing Automation Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-solutions-optimize-your-online-experience/"><u>Cookiebot-Enabled Solutions: Optimize Your Online Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Enhancing User Experience with Smart Tracking Technology</u></a></li>
+<li><a href="https://windows11.techidaily.com/crafting-quick-repair-pathways-creating-custom-win-shortcuts/"><u>Crafting Quick Repair Pathways: Creating Custom Win Shortcuts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-fitbit-inspire-hr-your-perpetual-companion-in-personalized-wellness-and-activity-tracking/"><u>Evaluating the Fitbit Inspire HR: Your Perpetual Companion in Personalized Wellness and Activity Tracking</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-motorola-moto-g04-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Motorola Moto G04 Lock Screen Password?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/visual-humor-for-iphones-enthusiasts/"><u>Visual Humor for iPhones Enthusiasts</u></a></li>
 </ul></div>
 

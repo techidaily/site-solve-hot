@@ -1,7 +1,7 @@
 ---
 title: ABBYY FineReader Serverで過去50年間の文書検索能力向上
-date: 2024-10-07T18:36:15.900Z
-updated: 2024-10-08T16:22:14.760Z
+date: 2024-10-09T18:53:29.613Z
+updated: 2024-10-15T00:13:20.694Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fa466aca4e0117af9ede098ff5beff07b4b780680a77e468de6afed425dad313.jpg
@@ -19,6 +19,13 @@ Construction | Engineering & Manufacturing | Digital Archiving | Document Manage
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 過去50年分のドキュメントの検索性を高めるため ABBYY FineReader Serverを導入
 
 製造 | デジタルアーカイブ 
@@ -26,10 +33,10 @@ Construction | Engineering & Manufacturing | Digital Archiving | Document Manage
 ![Chiyoda](https://static1.abbyy.com/abbyycommedia/23842/chiyoda-556x303.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### お客様の概要
@@ -37,16 +44,10 @@ Construction | Engineering & Manufacturing | Digital Archiving | Document Manage
 ![千代田化工建設](https://static4.abbyy.com/abbyycommedia/23841/logo-chiyoda-small.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | 氏名     | 千代田化工建設                                             |
@@ -125,23 +126,9 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 
 [![ABBYY FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Server](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ドキュメントアーカイブ <small>ENG</small>](https://static1.abbyy.com/abbyycommedia/14355/5-document-archiving.jpg)](https://tools.techidaily.com/abbyy/products/) [ドキュメントアーカイブ ENG](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
@@ -156,6 +143,13 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 [ABBYYについて](https://tools.techidaily.com/abbyy/products/) 
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
 
@@ -178,17 +172,24 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-nokia-c110-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Nokia C110 | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-decoding-the-divergence-360-film-vs-virtual-reality/"><u>2024 Approved Decoding the Divergence 360° Film Vs. Virtual Reality</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-nixing-the-green-glow-youtubes-mac-solution-manual/"><u>2024 Approved Nixing the Green Glow YouTube's Mac Solution Manual</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-step-into-the-archive-old-stories-on-facebook/"><u>2024 Approved Step Into the Archive Old Stories on Facebook</u></a></li>
-<li><a href="https://win-blog.techidaily.com/enhance-your-gameplay-eliminating-crashes-in-dark-souls-iii-now-possible/"><u>Enhance Your Gameplay: Eliminating Crashes in Dark Souls III Now Possible</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-automated-tracking-with-cookiebot-technology/"><u>Harness the Power of Automated Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-for-effective-online-marketing-campaigns/"><u>Harness the Power of Cookiebot for Effective Online Marketing Campaigns</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Samsung Galaxy F15 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-samsung-galaxy-m14-4g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Samsung Galaxy M14 4G Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/insightful-strategies-on-customer-knowledge-by-abbyy-presented-at-the-2017-aiim-conference/"><u>Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leading-innovations-in-voice-recognition-abbyy-laut-secures-everest-groups-2024-market-pinnacle-with-idp-peak-matrix-test/"><u>Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test</u></a></li>
-<li><a href="https://win11.techidaily.com/stress-free-script-repair-quick-fixes-for-windows-issues/"><u>Stress-Free Script Repair: Quick Fixes for Windows Issues</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-origami-inspired-miniature-asian-abodes-in-mc/"><u>[Updated] In 2024, Origami-Inspired, Miniature Asian Abodes in MC</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-tips-for-reducing-unsteady-shots/"><u>2024 Approved Tips for Reducing Unsteady Shots</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-watch-without-limits-15plus-free-apps-to-save-your-favorite-content/"><u>2024 Approved Watch Without Limits 15+ Free Apps to Save Your Favorite Content</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5-outstanding-no-cost-tools-to-save-your-favorite-youtube-content-on-windows-ten/"><u>5 Outstanding No-Cost Tools to Save Your Favorite YouTube Content on Windows # Ten</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-powered-google-photo-editor-enhance-images-flawlessly/"><u>AI-Powered Google Photo Editor: Enhance Images Flawlessly</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fast-conversion-guide-transforming-webm-files-into-mkv-format/"><u>Fast Conversion Guide: Transforming WebM Files Into MKV Format</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fastest-winx-dvd-ripper-pro-professional-quality-hd-ripping-to-mp4-in-just-5-minutes-official-version/"><u>Fastest WinX DVD Ripper Pro: Professional Quality HD Ripping to MP4 in Just 5 Minutes | Official Version</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-13c-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Xiaomi Redmi 13C 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-vivo-x100-pro-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Vivo X100 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-vivo-y200e-5g-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Vivo Y200e 5G Phone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/linksys-wrt3200acm-review-the-pinnacle-of-open-source-wifi-technology-for-seamless-online-experiences/"><u>Linksys WRT3200ACM Review: The Pinnacle of Open Source WiFi Technology for Seamless Online Experiences</u></a></li>
+<li><a href="https://os-tips.techidaily.com/maximize-iphone-memory-using-imyfone-umate-pro-insights-comparisons-and-freebies-reviewed/"><u>Maximize iPhone Memory Using IMyFone Umate Pro - Insights, Comparisons & Freebies Reviewed</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mov-file-conversion-step-by-step-guide-to-transforming-into-a-3gp-format-on-your-computer/"><u>MOV File Conversion: Step-by-Step Guide to Transforming Into a 3GP Format on Your Computer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/region-free-dvd-player-setup-enjoy-us-movies-in-the-uk-without-any-hassle/"><u>Region-Free DVD Player Setup: Enjoy US Movies in the UK Without Any Hassle</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-guide-to-bisecting-movies-for-every-device-desktops-laptops-ios-and-android-systems/"><u>Simple Guide to Bisecting Movies for Every Device: Desktops, Laptops, iOS and Android Systems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-flawlessly-turn-avchd-content-into-prores-files/"><u>Step-by-Step Guide to Flawlessly Turn AVCHD Content Into ProRes Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-seamlessly-changing-m4v-videos-to-webm-for-online-use/"><u>Step-by-Step Tutorial on Seamlessly Changing M4V Videos to WebM for Online Use</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-resolving-non-playable-xvid-codec-files-in-your-plex-library/"><u>Troubleshooting Guide: Resolving Non-Playable Xvid Codec Files in Your Plex Library</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028147002-xperia/"><u>Xperiaデバイスで動画再生に失敗する方法: パワーオフから回復</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: 効率的な支払処理手法：UIPath・ABBYY FlexiCaptureのパワーコンビによる自動化アップ
-date: 2024-09-26T04:30:18.574Z
-updated: 2024-10-02T19:10:26.234Z
+date: 2024-10-10T00:04:02.508Z
+updated: 2024-10-14T16:35:37.777Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/246d0000b4a8f8f8e29a0c282b538c53c7dcabe9e936ddda4c95b0a712854944.jpg
@@ -20,26 +20,12 @@ Information & Communication | Accounts Payable Automation
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## UiPathとABBYY FlexiCaptureを連携   
 紙請求書に基づく支払処理を自動化し、生産性が大幅アップ
 
 サービスおよびコミュニケーション | 支払業務自動化 
 
 ![](https://static1.abbyy.com/abbyycommedia/24929/06-main-jpcasestudyntt-556x303.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### お客様の概要
 
@@ -80,6 +66,13 @@ NTTコミュニケーションズのプロキュアメント&ビリング部は�
 契約や支払業務には人手を割かねばならないため、取り扱う件数の増加に比例して事務作業も増加する。これが、同部の大きな課題となっていた。
 
 ![06D Jpcasestudyntt](https://static4.abbyy.com/abbyycommedia/24933/06d-jpcasestudyntt.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### ■紙の情報をデータ化するAI-OCRに着目
 
@@ -137,20 +130,27 @@ ABBYY FlexiCaptureを導入することによって、生産性向上施策（DX
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-[詳細を読む](https://tools.techidaily.com/abbyy/products/) 
-
-[![請求書処理の自動化](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [請求書処理の自動化](https://tools.techidaily.com/abbyy/products/) 
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
+[![請求書処理の自動化](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [請求書処理の自動化](https://tools.techidaily.com/abbyy/products/) 
+
+[詳細を読む](https://tools.techidaily.com/abbyy/products/) 
+
 [![PDF版](https://static5.abbyy.com/abbyycommedia/24928/06c-jpcasestudyntt-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/24892/customer-story-ntt-ja.pdf "PDF版") [PDF版](https://static4.abbyy.com/abbyycommedia/24892/customer-story-ntt-ja.pdf "PDF版") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [詳細を読む](https://static4.abbyy.com/abbyycommedia/24892/customer-story-ntt-ja.pdf "PDF版") 
 
@@ -163,10 +163,10 @@ ABBYY FlexiCaptureを導入することによって、生産性向上施策（DX
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
@@ -190,22 +190,20 @@ ABBYY FlexiCaptureを導入することによって、生産性向上施策（DX
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-mastering-youtube-screens-final-touches/"><u>[New] Mastering YouTube Screens' Final Touches</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-leveraging-instagram-metrics-selecting-optimal-analytics-software/"><u>[Updated] 2024 Approved Leveraging Instagram Metrics Selecting Optimal Analytics Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-efficient-conversion-techniques-transforming-aiff-files-into-high-quality-aacapple-lossless-m4a-audio/"><u>1. Efficient Conversion Techniques: Transforming AIFF Files Into High-Quality AAC/Apple Lossless M4A Audio</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-beyond-saturation-and-contrast-hdrs-role-in-quality-enhancement/"><u>2024 Approved Beyond Saturation and Contrast HDR's Role in Quality Enhancement</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-bonding-beyond-reality-top-metaverse-multiplayer-hits/"><u>2024 Approved Bonding Beyond Reality - Top Metaverse Multiplayer Hits</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-a38-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo A38 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-12-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Realme 12 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solutions-for-when-the-main-speaker-jack-on-your-gadget-stops-working/"><u>Solutions for When the Main Speaker Jack on Your Gadget Stops Working</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/speedy-methods-for-embedding-text-overlays-in-movies/"><u>Speedy Methods for Embedding Text Overlays in Movies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/speedy-solutions-for-converting-your-mkv-videos-to-compatible-avi-version/"><u>Speedy Solutions for Converting Your MKV Videos to Compatible AVI Version</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-creating-a-gif-from-your-favorite-youtube-video/"><u>Step-by-Step Guide: Creating a GIF From Your Favorite YouTube Video</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/tech-rivalry-unveiled-apples-ongon-dispute-with-adobe-over-flash-support/"><u>Tech Rivalry Unveiled: Apple's Ongon Dispute with Adobe over Flash Support</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-rated-avi-to-dvd-transcoder-for-windows-11-users-in-2e24/"><u>Top Rated AVI to DVD Transcoder for Windows 11 Users in 2E24</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-two-strategies-for-successful-amv-downloads/"><u>Top Two Strategies for Successful AMV Downloads</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-ddr4-memory-modules-of-2024/"><u>Top-Rated DDR4 Memory Modules of 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-s-leading-movie-trailer-creation-tools-for-mac-and-windows/"><u>Updated S Leading Movie Trailer Creation Tools for Mac and Windows</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-aesthetic-instagram-panoramas-for-2024/"><u>[New] Aesthetic Instagram Panoramas for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-from-hobbyist-to-pro-selecting-top-drone-editing-tools/"><u>2024 Approved From Hobbyist to Pro Selecting Top Drone Editing Tools</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/a-comprehensive-guide-streaming-moba-fun-from-mobile-legends-to-your-pc/"><u>A Comprehensive Guide: Streaming MOBA Fun From Mobile Legends to Your PC</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-confrontation-assessing-which-is-supreme-chatgpt-bing-by-microsoft-or-googles-bard/"><u>AI Confrontation: Assessing Which Is Supreme - ChatGPT, Bing by Microsoft or Google's Bard?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726027984322-avidemux/"><u>Avidemuxを使った簡単な動画編集:切り取り・区切り手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/essential-guide-to-choosing-a-superior-gif-editor-for-seamless-cropping-across-devices/"><u>Essential Guide to Choosing a Superior GIF Editor for Seamless Cropping Across Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/goproyoutube/"><u>GoProビデオをYoutubeにアップロードしたら画質がぼやける？解消方法</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-xiaomi-civi-3-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Xiaomi Civi 3 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-oppo-reno-11f-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Oppo Reno 11F 5G Device SIM</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/iphonem4a/"><u>IPhoneで音楽ファイルM4Aをうまく再生する方法：トラブルシューティングと最適なアプリ選び</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/score-the-best-bargains-prime-day-savings-on-high-quality-tribit-sound-systems/"><u>Score the Best Bargains: Prime Day Savings on High-Quality Tribit Sound Systems</u></a></li>
+<li><a href="https://techtrends.techidaily.com/streamline-pc-cleanup-with-these-15-exceptional-free-uninstall-apps/"><u>Streamline PC Cleanup with These 15 Exceptional Free Uninstall Apps</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-your-medical-practice-enhancing-patient-care-through-abbyy-paperless-data-solutions/"><u>Transform Your Medical Practice: Enhancing Patient Care Through ABBYY Paperless Data Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transforming-doc-mastery-with-abbyy-marketplace-advanced-llm-and-rag-technology-unleashed/"><u>Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed</u></a></li>
+<li><a href="https://win-able.techidaily.com/ui-flaw-in-black-ops-cold-war-corrected-eliminating-error-27711-on-playstation-and-pc/"><u>UI Flaw in Black Ops Cold War Corrected: Eliminating Error 27711 on PlayStation and PC</u></a></li>
 </ul></div>
 

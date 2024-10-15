@@ -1,7 +1,7 @@
 ---
 title: "Transforming Accounts Payable: How Igura's Integration with ABBYY Enhances Efficiency for Businesses"
-date: 2024-10-01T16:04:26.394Z
-updated: 2024-10-02T21:28:14.725Z
+date: 2024-10-08T17:58:19.361Z
+updated: 2024-10-14T21:19:28.895Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b074d81c3008e2f891a827245d.jpg
@@ -105,26 +105,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/trategies-to-arrange-content-in-youtube-media-for-2024/"><u>[New] Strategies to Arrange Content in YouTube Media for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unraveling-image-mysteries-the-triple-tactic-fb-backward-search-for-2024/"><u>[New] Unraveling Image Mysteries The Triple-Tactic FB Backward Search for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-boosting-your-youtube-shorts-profits-key-requirements-and-earning-potential/"><u>[Updated] Boosting Your Youtube Shorts Profits Key Requirements & Earning Potential</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-gopro-hero4-vs-gopro-hero5-showdown/"><u>2024 Approved GoPro Hero4 vs GoPro Hero5 Showdown</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-seamlessly-embedding-youtube-subtitles-an-easy-to-follow-guide/"><u>2024 Approved Seamlessly Embedding YouTube Subtitles An Easy-to-Follow Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbruch-einfluss-von-abnutzbaren-tools-auf-die-automation-der-forderungsabwicklung-und-integration-in-sap/"><u>Abbruch: Einfluss Von ABNutzbaren Tools Auf Die Automation Der Forderungsabwicklung Und Integration in SAP</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-enhances-sales-organization-with-new-leadership-joe-rayfield-named-vp/"><u>ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ai-innovation-fuels-abbyys-financial-triumph-annual-revenue-soars-by-60-featured-in-idc-worldwide-marketscape-ranking/"><u>AI Innovation Fuels ABBYY’s Financial Triumph, Annual Revenue Soars by 60% - Featured in IDC Worldwide MarketScape Ranking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automated-consent-management-with-cookiebot-enhancing-data-privacy-compliance/"><u>Automated Consent Management with Cookiebot: Enhancing Data Privacy Compliance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/automatisation-des-factures-chez-pepsico-grace-a-loutil-de-reconnaissance-optique-numerique-dabbyy-flexicapture/"><u>Automatisation Des Factures Chez PepsiCo Grâce À L'outil De Reconnaissance Optique Numérique D'ABBYY FlexiCapture</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-vivo-y36-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after Vivo Y36 has been deleted</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/tout-sur-lintegration-de-la-gestion-numerisation-et-traitement-automatisee-de-documents-methodologie-en-5-etapes-par-abbyy/"><u>Tout Sur L'Intégration De La Gestion Numérisation Et Traitement Automatisée De Documents - Méthodologie en 5 Étapes Par ABBYY</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unmute-your-adventures-addressing-and-fixing-no-audio-in-hearthstone/"><u>Unmute Your Adventures: Addressing and Fixing No Audio in Hearthstone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-fast-format-transformation-youtube-for-mac-ratio/"><u>[New] In 2024, Fast Format Transformation YouTube for Mac Ratio</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-easy-downloads-of-youtube-srt-subtitles-explained/"><u>[Updated] 2024 Approved Easy Downloads of YouTube SRT Subtitles Explained</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030046414-windows-media-player/"><u>「ファイル再生中のWindows Media Player 問題」: 修正方法と解決策</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/dailymotionmp3/"><u>一歩で完了！Dailymotion動画をMP3ファイルに簡単に変換する手順</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-apple-iphone-8-plus-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the Apple iPhone 8 Plus iCloud Lock</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/achieving-top-notch-clarity-recording-pro-tips-for-firestick-users/"><u>Achieving Top-Notch Clarity: Recording Pro Tips for Firestick Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/avchd-to-mp4-conversion-top-6-recommended-free-software-picks-for-superior-video-quality/"><u>AVCHD to MP4 Conversion: Top 6 Recommended Free Software Picks for Superior Video Quality</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/chromefirefoxm3u8/"><u>ChromeとFirefoxでM3U8動画を簡単にダウンロード</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/complete-guide-to-correcting-asus-pce-ac56-drivers-issues-on-windows-os-versions-10-8-and-n/"><u>Complete Guide to Correcting ASUS PCE-AC56 Drivers Issues on Windows OS Versions (10, 8 & N)</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-realme-v30t-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-invigorate-snaps-implement-inner-blur-spread-in-cs/"><u>In 2024, Invigorate Snaps Implement Inner Blur Spread in CS</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-masterclass-converting-twitter-vids-to-eye-catching-engaging-gifs/"><u>In 2024, Masterclass Converting Twitter Vids to Eye-Catching, Engaging GIFs</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

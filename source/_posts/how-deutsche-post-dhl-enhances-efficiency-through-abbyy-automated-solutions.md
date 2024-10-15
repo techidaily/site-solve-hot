@@ -1,7 +1,7 @@
 ---
 title: How Deutsche Post DHL Enhances Efficiency Through ABBYY Automated Solutions
-date: 2024-10-06T17:44:08.589Z
-updated: 2024-10-08T17:57:08.973Z
+date: 2024-10-08T01:02:11.945Z
+updated: 2024-10-14T20:06:54.367Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c075541dbef1c38bbe62a795e13b.jpg
@@ -15,13 +15,6 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
 
 English
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Featuring
 
 ![Timo Neff](https://static5.abbyy.com/abbyycommedia/31935/dhl-logo-forcards.jpg) 
@@ -29,25 +22,32 @@ English
 ![Timo Neff](https://static1.abbyy.com/abbyycommedia/31906/timoneff-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Timo Neff
 
 Team Lead, Automation Designers & Architects Digitalization@GBS Program, Global Business Services, Deutsche Post, **DHL**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Overview
 
 In the face of business continuity disruptions, one thing is undeniable – users expect quick results, reliable services, and digital accessibility. Organisations that respond to those demands with agility to improve customer service levels and productivity, with a focus on digital transformation will undoubtedly find success.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What you will learn
@@ -65,14 +65,14 @@ In this video, Deutsche Post, DHL, shares how ABBYY modernised their shipping lo
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-## Thank you, enjoy your webinar.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Thank you, enjoy your webinar.
 
 ### Check out some of the best moments and watch the full recording below.
 
@@ -143,19 +143,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-crafting-a-strong-introduction-url/"><u>[New] Crafting a Strong Introduction URL</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/pgrade-your-content-presentation-with-top-tier-templates-for-2024/"><u>[New] Upgrade Your Content Presentation with Top-Tier Templates for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-action-cam-buyers-guide-affordable-high-definition/"><u>[Updated] Action Cam Buyer’s Guide - Affordable, High Definition</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-harness-the-power-of-color-grading-a-guide-to-luts-in-photoshop-cs6/"><u>[Updated] In 2024, Harness the Power of Color Grading A Guide to LUTs in Photoshop CS6</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-landmarks-of-virtual-reality-showcases/"><u>[Updated] In 2024, Landmarks of Virtual Reality Showcases</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-intensive-analysis-macos-screenflow-version-4/"><u>[Updated] Intensive Analysis MacOS screenFlow Version 4</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-sonic-shakers-the-ultimate-audio-rippers-list-for-2024/"><u>[Updated] Sonic Shakers The Ultimate Audio Rippers List for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-empowerment-elevate-your-websites-functionality-today/"><u>Cookiebot Empowerment: Elevate Your Website's Functionality Today</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-data-collection-enhance-your-websites-analytics/"><u>Cookiebot-Driven Data Collection: Enhance Your Website's Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-visitor-tracking-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-seo-and-user-engagement/"><u>Cookiebot-Enabled: Enhancing Your Website's SEO & User Engagement</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience-with-seamless-personalization/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience with Seamless Personalization</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/tment-insights-15-must-see-youtube-channels-for-2024/"><u>Investment Insights 15 Must-See YouTube Channels for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/steps-for-transferring-your-chatgpt-conversations-securely/"><u>Steps for Transferring Your ChatGPT Conversations Securely</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-capturing-audiences-attention-with-animated-viral-video-hits-for-2024/"><u>[New] Capturing Audiences' Attention with Animated Viral Video Hits for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-enhance-customer-engagement-with-strategic-language/"><u>[New] In 2024, Enhance Customer Engagement with Strategic Language</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tone-your-vlogs-access-free-sound-tracks/"><u>[New] Tone Your Vlogs Access Free Sound Tracks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-how-to-guide-for-adding-friends-as-pins-on-snapchat/"><u>[Updated] 2024 Approved How-To Guide for Adding Friends as Pins on Snapchat</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-your-clips-with-these-premium-free-audiosite-lists/"><u>[Updated] Master Your Clips with These Premium, Free Audiosite Lists</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/gifand10/"><u>最新！動画化のためのGIFを効率よく変換するフリーソフト&サイトベスト10選</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-convert-media-files-for-optimal-playback-on-smartphones-including-nokia-samsung-htc-and-blackberry-models/"><u>How to Convert Media Files for Optimal Playback on Smartphones Including Nokia, Samsung, HTC & Blackberry Models</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-efficiently-minimize-video-files-a-guide-to-the-best-compression-techniques-and-software/"><u>How to Efficiently Minimize Video Files: A Guide to the Best Compression Techniques and Software</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-infinix-hot-40i-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from Infinix Hot 40i.</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-xr21-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Nokia XR21 Phone without Google Account?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/is-mkv-format-supported-by-youtube-tips-for-hd-youtube-video-conversion/"><u>Is MKV Format Supported by YouTube? Tips for HD YouTube Video Conversion</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723209807541-keyboard-problems-at-boot-up-heres-your-solution/"><u>Keyboard Problems at Boot-Up? Here's Your Solution!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mastering-media-format-transformation-how-to-seamlessly-create-gifs-from-webm-files-anywhere/"><u>Mastering Media Format Transformation: How to Seamlessly Create GIFs From WebM Files Anywhere</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mastering-medical-and-wellness-fb-ad-success-for-2024/"><u>Mastering Medical & Wellness FB Ad Success for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ogg-mp4/"><u>Oggオーディオに変換してください - 最上級MP4動画を保持</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/preserve-excellent-resolution-the-finest-dailymotion-video-converters-to-effortlessly-switch-to-mp4-format/"><u>Preserve Excellent Resolution: The Finest Dailymotion Video Converters to Effortlessly Switch to MP4 Format</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-videos-into-a-series-of-images/"><u>Step-by-Step Guide: Transforming Videos Into a Series of Images</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/the-ultimate-guide-to-the-most-effective-av-to-dvd-converters-of-2024-for-pcs-running-win-1011/"><u>The Ultimate Guide To The Most Effective Av To Dvd Converters of 2024 for PCs Running Win 10/11</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-how-computers-cant-match-up-to-human-creative-abilities-in-writing/"><u>Unveiling How Computers Can't Match Up to Human Creative Abilities in Writing</u></a></li>
 </ul></div>
 

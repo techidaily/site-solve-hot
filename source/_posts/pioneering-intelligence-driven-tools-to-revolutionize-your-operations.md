@@ -1,7 +1,7 @@
 ---
 title: Pioneering Intelligence-Driven Tools to Revolutionize Your Operations
-date: 2024-10-02T16:30:58.714Z
-updated: 2024-10-08T18:01:13.101Z
+date: 2024-10-08T00:43:47.219Z
+updated: 2024-10-15T00:53:21.193Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7ba232e21fac78d0bae0e04300e47bac8679a7f9cd2328362771972e45a8c12a.jpg
@@ -33,6 +33,13 @@ To further empower enterprise leaders with game-changing strategies, ABBYY held 
 * [**Make the Business Case for Intelligent Automation**](https://tools.techidaily.com/abbyy/products/) with Bruce Orcutt, SVP of Product Marketing at ABBYY, and Ashwin Gaidhani, Analyst at ISG. They discussed the common hurdles in adoption of intelligent automation, the impact today’s economy is having on IT budgets, and how you can build a business case and prove ROI with decision makers.
 * [**Fireside Chat with Innovation Leaders**](https://tools.techidaily.com/abbyy/products/) with Shanx Tripathi, Practice Lead, Capital Markets & Wealth at IBM Consulting – Financial Services; David Pewitt, VP of Intelligent Automation, AI and DataOps at Deloitte, and Swaraj Kumar Padma, BPM Automation Delivery Head at JLL. They shared best practices for beginning the automation journey, tips and tricks, stakeholder buy-in, and first-hand lessons they learned along the way. This is a must-watch session.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Learn why the Arsenal Women partnership with AI Innovator ABBYY is a game-changer
 
 [Learn more](https://abbyy.com/arsenal "Learn more") 
@@ -44,10 +51,10 @@ We are even seeing intelligent automation being embraced in the sports industry.
 ![](https://www.abbyy.com/-/media/project/abbyy/abbyy/insights/intelligent-enterprise/content-media/abbyy-awfc-logo_full-color-with-designation.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ABBYY recently made a game-changing announcement about being The Official Intelligent Automation Partner for Arsenal Women Football Club. Arsenal Women is the [most successful women's team in the UK](https://www.arsenal.com/women/honours). Arsenal Women are at the very forefront of the rapid development of women's football globally.
@@ -63,13 +70,6 @@ Gina Ray
 Senior Director of Corporate Marketing at ABBYY
 
 Connect with Gina on [LinkedIn](https://www.linkedin.com/in/ginaray/).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Additional Insights:
 
@@ -100,10 +100,10 @@ Connect with Gina on [LinkedIn](https://www.linkedin.com/in/ginaray/).
 [![Customer Point of View: Highs and Lows of the Intelligent Automation Journey](https://static3.abbyy.com/abbyycommedia/38066/ds-191_customer-point-of-view_tn_848x444-1.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
@@ -116,6 +116,13 @@ Connect with Gina on [LinkedIn](https://www.linkedin.com/in/ginaray/).
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Are Large Language Models (LLMs) the Future?**](https://tools.techidaily.com/abbyy/products/)
@@ -127,10 +134,10 @@ Connect with Gina on [LinkedIn](https://www.linkedin.com/in/ginaray/).
 [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
@@ -144,16 +151,10 @@ Connect with Gina on [LinkedIn](https://www.linkedin.com/in/ginaray/).
 [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
@@ -237,10 +238,16 @@ Connect with Gina on [LinkedIn](https://www.linkedin.com/in/ginaray/).
 [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
@@ -252,13 +259,6 @@ Connect with Gina on [LinkedIn](https://www.linkedin.com/in/ginaray/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -323,22 +323,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/avigating-famebit-pathways-to-secure-youtube-partnerships-for-2024/"><u>[New] Navigating FameBit Pathways to Secure YouTube Partnerships for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-the-art-of-audio-amalgamation-in-vimeo-videos/"><u>[New] The Art of Audio Amalgamation in Vimeo Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/44cm44ol44kz44ol44kz5yuv55s744gu44kq44o844oh44kj44kq44gg44gr5oq95ye644go5lplusd5a2y5pa55rov44cn/"><u>「ニコニコ動画のオーディオだけ抽出と保存方法」</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-best-practices-for-amassing-itunes-video-archives/"><u>2024 Approved Best Practices for Amassing iTunes Video Archives</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-converting-social-media-audio-to-personalized-mobile-alerts/"><u>2024 Approved Converting Social Media Audio to Personalized Mobile Alerts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-audio-respeeders-fast-fix-for-pace-modification/"><u>2024 Approved Top Audio Respeeders Fast-Fix for Pace Modification</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-visual-data-harvester/"><u>2024 Approved Visual Data Harvester</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/finding-and-downloading-free-yoruba-films-online/"><u>Finding & Downloading Free Yoruba Films Online</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/grandiose-know-it-all-challenges-online-for-2024/"><u>Grandiose KNOW-It All Challenges Online for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-successfully-rip-a-handbrake-dvd-with-scrambled-content-and-avoid-video-distortion/"><u>How to Successfully Rip a Handbrake DVD with Scrambled Content & Avoid Video Distortion?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-beginning-a-charitable-cyber-fundraiser-on-fb/"><u>In 2024, Beginning a Charitable Cyber Fundraiser on FB</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/quick-fix-banish-win7-screen-flicker/"><u>Quick Fix: Banish Win7 Screen Flicker</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seeking-top-sound-quality-in-compact-file-formats-what-are-your-options/"><u>Seeking Top Sound Quality in Compact File Formats - What Are Your Options?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ultimate-guide-mastering-video-scaling-techniques-in-adobe-premiere-pro/"><u>Ultimate Guide: Mastering Video Scaling Techniques in Adobe Premiere Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ultimate-techniques-and-tips-for-successfully-opening-bin-files/"><u>Ultimate Techniques and Tips for Successfully Opening BIN Files</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windows-1011youtube/"><u>Windows 10/11に最適化したYouTubeコンテンツダウンロード手順</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726028678116-windows-10/"><u>Windows 10で最適なビデオキャプチャテクニック４選：高解像度版</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-exhaustive-overview-insights-into-googles-podcast-application-for-2024/"><u>[New] Exhaustive Overview Insights Into Google's Podcast Application for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-the-loom-reel-detailed-guide-to-screen-capture/"><u>[New] In 2024, The Loom Reel Detailed Guide to Screen Capture</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quintessential-plots-making-movies-great/"><u>2024 Approved Quintessential Plots Making Movies Great</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-infinix-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Infinix</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-youtube-title-generators/"><u>Best YouTube Title Generators</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721454469088-dealing-with-iphone-touchscreen-issues-here-are-effective-fixes/"><u>Dealing with iPhone Touchscreen Issues? Here Are Effective Fixes!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-document-management-efficiency-the-new-wave-of-sharp-mfps-featuring-abbyy-ocr-technology-as-showcased-on-abbyys-expert-blog/"><u>Enhance Document Management Efficiency: The New Wave of Sharp MFPs Featuring ABBYY OCR Technology, as Showcased on ABBYY's Expert Blog</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-cookiebots-advanced-tracking-technology/"><u>Enhance User Experience with Cookiebot's Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-accessibility-how-texthelp-software-and-abbyy-assist-individuals-with-dyslexia/"><u>Enhancing Accessibility: How Texthelp Software & ABBYY Assist Individuals with Dyslexia</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-website-visitors-the-role-of-cookiebot-technology/"><u>Enhancing Website Visitors: The Role of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/expert-guide-to-implementing-advanced-ai-in-abbyy-software-fusing-machine-learning-and-natural-language-processing-techniques-for-superior-results/"><u>Expert Guide to Implementing Advanced AI in ABBYY Software: Fusing Machine Learning and Natural Language Processing Techniques for Superior Results</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploiter-au-mieux-le-potentiel-dune-entreprise-double-numerique-et-modelisation-procedurale/"><u>Exploiter Au Mieux Le Potentiel D'une Entreprise : Double Numérique Et Modélisation Procédurale</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fortschrittliche-texterfassung-mit-machine-learning-aktuelle-innovationen-von-abbyy/"><u>Fortschrittliche Texterfassung Mit Machine Learning – Aktuelle Innovationen Von ABBYY</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-elevate-your-websites-seo-and-conversion-rates/"><u>Harness the Power of Cookiebot: Elevate Your Website's SEO & Conversion Rates!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-honor-magic5-ultimate-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Honor Magic5 Ultimate</u></a></li>
+<li><a href="https://win-web3.techidaily.com/new-microsoft-announcement-paid-updates-for-windows-10-coming-soon-what-you-can-expect/"><u>New Microsoft Announcement: Paid Updates for Windows 10 Coming Soon - What You Can Expect</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone XR | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Smart Approach to Customer Onboarding: Insights Into Automation Driving Factors & Obstacles"
-date: 2024-09-28T20:17:50.330Z
-updated: 2024-10-03T11:59:29.672Z
+date: 2024-10-10T19:48:46.158Z
+updated: 2024-10-15T00:31:49.301Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/69ee34b64cf92db1f2232edf38c3580f65ba5a6c1e5baa6cfa6ccd73ff711508.jpg
@@ -18,10 +18,10 @@ Ineffective digital onboarding – when people sign up for an account or service
 Simple measures like activating the right mix of human interaction alongside automation could resolve pain points.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Download it now!
@@ -32,15 +32,28 @@ Participants included senior directors, MDs, owners and C-Level professionals fr
 
 This report reveals average global results.
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Thank you for your interest in ABBYY.
 
 [Download now](https://abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/resource-center/pdfs/report-state-of-intelligent-automation-customer-onboarding-en.pdf "Download now") 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### You might also be interested in...
@@ -48,20 +61,13 @@ This report reveals average global results.
 [![How Financial Services Firms Are Becoming More Resilient Than Ever](https://static3.abbyy.com/abbyycommedia/33034/66-how-financial-services-firms-are-becoming-more-resilient-en-360x232.jpg) How Financial Services Firms Are Becoming More Resilient Than Ever See infographic](https://static1.abbyy.com/abbyycommedia/33035/infographic-financialservices-firms-resiliency-en.pdf "How Financial Services Firms Are Becoming More Resilient Than Ever")[![Digital Strategies in Financial Services—Survey Results](https://static5.abbyy.com/abbyycommedia/34405/112-digital-strategies-in-financial-services-en-360x232.jpg) Digital Strategies in Financial Services—Survey Results Learn more](https://www.abbyy.com/resources/report/financial-services-digital-strategies-survey/ "Digital Strategies in Financial Services—Survey Results")[![Taking the Pulse on Digital Transformation in Financial Services](https://static1.abbyy.com/abbyycommedia/34654/122-taking-the-pulse-on-digital-transformation-in-financial-services-en-360x232.jpg) Taking the Pulse on Digital Transformation in Financial Services See infographic](https://static1.abbyy.com/abbyycommedia/34655/infographic-financialservices-digitaltransformationsurvey-en.pdf "Taking the Pulse on Digital Transformation in Financial Services") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -132,20 +138,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-the-art-of-navigating-telegram-web-applications/"><u>[New] Mastering the Art of Navigating Telegram Web Applications</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-step-by-step-guide-transforming-your-yt-gaming-content-with-hashtags/"><u>[New] Step-by-Step Guide Transforming Your YT Gaming Content with Hashtags</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-utilizing-jump-cuts-to-amplify-your-vlog-impact/"><u>[New] Utilizing Jump Cuts to Amplify Your Vlog Impact</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elevating-roi-in-facebooks-animated-advertising-arena/"><u>2024 Approved Elevating ROI in Facebook's Animated Advertising Arena</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-fixes-for-your-surface-pro-4-stylus-not-working-dilemma/"><u>Effective Fixes for Your Surface Pro 4 Stylus Not Working Dilemma</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-site-visits-experience-the-benefits-of-cookiebot-powered-marketing-solutions/"><u>Elevate Your Site Visits - Experience the Benefits of Cookiebot Powered Marketing Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-assistance-with-abbyys-latest-innovation-the-new-mobile-capture-sdk-transforming-the-way-customers-experience-technology/"><u>Enhancing Digital Assistance with ABBYY's Latest Innovation: The New Mobile Capture SDK - Transforming the Way Customers Experience Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/experience-superior-site-personalization-with-our-cookiebot-integration/"><u>Experience Superior Site Personalization with Our Cookiebot Integration</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-the-professional-perks-why-joining-abbyy-is-your-smart-move/"><u>Exploring the Professional Perks: Why Joining ABBYY Is Your Smart Move</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-samsung-galaxy-m14-4g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Samsung Galaxy M14 4G Devices | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/future-proofing-insurance-with-data-a-key-component-for-change/"><u>Future-Proofing Insurance with Data: A Key Component for Change</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-deutsche-post-dhl-enhances-efficiency-through-abbyy-automated-solutions/"><u>How Deutsche Post DHL Enhances Efficiency Through ABBYY Automated Solutions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-safe-is-chatgpt-addressing-concerns-over-digital-security-issues/"><u>How Safe Is ChatGPT: Addressing Concerns Over Digital Security Issues?</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-se-2020-without-passcode-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone SE (2020) Without Passcode? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/james-ritter-named-abbyys-new-cfo-strategic-leadership-in-finance/"><u>James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-conquer-the-skies-and-landscapes-in-a-canon-time-lapse-for-2024/"><u>[Updated] Conquer the Skies and Landscapes in a Canon Time-Lapse for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-initial-visual-journey-review-with-additional-paths/"><u>[Updated] Initial Visual Journey Review with Additional Paths</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/clova-ocr/"><u>「CLOVA OCRとフレックスキャプチャーを組み合わせた日本語手書き読み取り」</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elite-mp4-media-sender/"><u>2024 Approved Elite MP4 Media Sender</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-poco-c65-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Poco C65 without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-xiaomi-redmi-13c-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Xiaomi Redmi 13C</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comment-homogeneiser-la-gestion-des-factures-dans-sap-a-laide-dabbyy-solutions-innovantes-pour-le-traitement-comptable-chez-rochling/"><u>Comment Homogénéiser La Gestion Des Factures Dans SAP À L'aide D'ABBYY : Solutions Innovantes Pour Le Traitement Comptable Chez Röchling</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-enhance-your-websites-performance/"><u>Cookiebot-Driven Solutions: Enhance Your Website's Performance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-analytics-unleashing-powerful-insights/"><u>Cookiebot-Enabled Analytics: Unleashing Powerful Insights</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-sites-user-engagement/"><u>Cookiebot-Enabled: Enhance Your Site's User Engagement</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled: Enhancing User Experience with Smart Tracking</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-10plus-top-videos-and-tutorials-on-best-iphoneipad-editing-tools/"><u>In 2024, 10+ Top Videos & Tutorials on Best iPhone/iPad Editing Tools</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-still-moments-from-moving-pictures-a-review-of-10-video-to-image-converters/"><u>New In 2024, Still Moments From Moving Pictures A Review of 10 Video to Image Converters</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/swiftly-assemble-a-stunning-google-image-mosaic-with-ease/"><u>Swiftly Assemble a Stunning Google Image Mosaic with Ease</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/windows-vs-apple-silicon-can-microsofts-arm-strategy-triumph-in-the-next-gen-chip-battle/"><u>Windows Vs. Apple Silicon: Can Microsoft's ARM Strategy Triumph in the Next-Gen Chip Battle?</u></a></li>
 </ul></div>
 

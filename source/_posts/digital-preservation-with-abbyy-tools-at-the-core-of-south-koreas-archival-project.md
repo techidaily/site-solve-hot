@@ -1,7 +1,7 @@
 ---
 title: Digital Preservation with ABBYY Tools at the Core of South Korea's Archival Project
-date: 2024-10-01T10:48:33.912Z
-updated: 2024-10-03T09:33:00.088Z
+date: 2024-10-07T16:49:55.653Z
+updated: 2024-10-14T20:21:26.233Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8a0450f4fd7bc300e9114c673cd1aaae00e28e53efb0dd838d2ce71919e2b2da.jpg
@@ -19,13 +19,6 @@ Other | Digital Archiving
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## ABBYY Recognition Server® digitizes the National Assembly Library of Korea
 
 Other | Library Conversion 
@@ -33,15 +26,22 @@ Other | Library Conversion
 ![](https://static1.abbyy.com/abbyycommedia/15018/library-pic1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Customer Overview
 
 ![National Assembly Library of Korea](https://static1.abbyy.com/abbyycommedia/15025/library-logo.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | National Assembly Library of Korea |
 | ------------ | ---------------------------------- |
@@ -51,13 +51,6 @@ Other | Library Conversion
 #### Partner Overview
 
 ![ReTIA](https://static1.abbyy.com/abbyycommedia/14440/5-retia_logo.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | ReTIA                                           |
 | ------------ | ----------------------------------------------- |
@@ -117,6 +110,13 @@ The easy-to-use search function of the database, as well as the range of voice s
 
 [![ABBYY Recognition Server has rebranded as ABBYY FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (now FineReader Server)](https://tools.techidaily.com/abbyy/products/) ") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![15-education](https://static1.abbyy.com/abbyycommedia/14365/15-education.jpg)](https://tools.techidaily.com/abbyy/products/) [Education](https://tools.techidaily.com/abbyy/products/) 
@@ -124,6 +124,13 @@ The easy-to-use search function of the database, as well as the range of voice s
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![library-pic2](https://static1.abbyy.com/abbyycommedia/15019/library-pic2.jpg)](https://static2.abbyy.com/abbyycommedia/9010/case-study-national-assembly-library-of-korea-education-en.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/9010/case-study-national-assembly-library-of-korea-education-en.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [read more](https://static2.abbyy.com/abbyycommedia/9010/case-study-national-assembly-library-of-korea-education-en.pdf "PDF version") 
 
@@ -134,13 +141,6 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -163,19 +163,19 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-immediate-visuals-the-fastest-4-ways-to-snip-on-chrome-os/"><u>[New] 2024 Approved Immediate Visuals The Fastest 4 Ways To Snip on Chrome OS</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-navigating-tiktok-profile-updates-with-linktree-integration/"><u>[Updated] Navigating TikTok Profile Updates with Linktree Integration</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/5yuv55s744gm44or44ov44o844od44kk44oz44oi44gn5yan55sf44gn44gn44gq44ge55cg55sx44go5aplusplus562w6kmz5acx/"><u>動画がパワーポイントで再生できない理由と対策詳報</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ced-techniques-for-trimming-youtube-footage/"><u>Advanced Techniques for Trimming YouTube Footage</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comprehensive-tutorial-converting-3g2-media-files-to-mp4-avi-and-additional-formats-easily/"><u>Comprehensive Tutorial: Converting 3G2 Media Files to MP4, AVI, and Additional Formats Easily</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/convert-mp3-to-wav-free-a-step-by-step-guide-for-windows-users/"><u>Convert MP3 to WAV Free: A Step-by-Step Guide for Windows Users</u></a></li>
-<li><a href="https://win-dash.techidaily.com/getting-up-to-date-with-your-hp-laserjet-m5e-series-driver-downloads-and-setup-tips/"><u>Getting Up-to-Date with Your HP Laserjet M5e Series: Driver Downloads & Setup Tips</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-realme-gt-5-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Realme GT 5</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oneplus-nord-ce-3-lite-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from OnePlus Nord CE 3 Lite 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/leverage-artificial-intelligence-for-reading-pleasure-top-5-recommender-sites-and-apps-to-choose-your-next-book/"><u>Leverage Artificial Intelligence for Reading Pleasure: Top 5 Recommender Sites and Apps to Choose Your Next Book</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-changing-the-dvd-region-setting-on-your-pc/"><u>Step-by-Step Guide to Changing the DVD Region Setting on Your PC</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-3-secure-erome-video-downloading-tools-safely-extracting-content/"><u>Top 3 Secure Erome Video Downloading Tools - Safely Extracting Content</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/wma3/"><u>WMA音楽を巧みに編集:ベストの3つのコストフリーソフト選び</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-get-more-viewers-with-social-media-marketing-for-youtube/"><u>[New] 2024 Approved Get More Viewers with Social Media Marketing for YouTube</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-revolutionizing-video-creation-siri-voice-integration-in-tiktok-videos/"><u>[Updated] 2024 Approved Revolutionizing Video Creation Siri Voice Integration in TikTok Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/christmas-bundle-offers-on-dvd-collections-with-macxdvd-boost-your-earnings-by-up-to-75-ending-in-december-2vee/"><u>Christmas Bundle Offers on DVD Collections with MacXDVD - Boost Your Earnings by Up to 75% Ending in December 2Vee</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/holistic-locomotion-scrutiny-report-for-2024/"><u>Holistic Locomotion Scrutiny Report for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-perfecting-videos-a-premier-editor-for-vimeo-professionals/"><u>In 2024, Perfecting Videos A Premier Editor for Vimeo Professionals</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-pioneering-resources-leading-free-video-openers-guide/"><u>In 2024, Pioneering Resources Leading Free Video Openers Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-zero-degrees-to-glory-peak-sports-in-cold-climates/"><u>In 2024, Zero Degrees to Glory Peak Sports in Cold Climates</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/innovative-receipt-management-with-ai-technology-from-abbyy-streamlined-efficiency-for-businesses/"><u>Innovative Receipt Management with AI Technology From ABBYY - Streamlined Efficiency for Businesses</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/leveraging-cookiebot-technology-for-advanced-website-personalization-and-analytics/"><u>Leveraging Cookiebot Technology for Advanced Website Personalization & Analytics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigating-the-challenges-common-missteps-in-corporate-ai-integration-and-how-to-avoid-them/"><u>Navigating the Challenges: Common Missteps in Corporate AI Integration & How to Avoid Them</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimizing-your-bookkeeping-strategies-with-abbyys-advanced-content-intelligence-tools/"><u>Optimizing Your Bookkeeping Strategies with ABBYY's Advanced Content Intelligence Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/pioneering-intelligence-driven-tools-to-revolutionize-your-operations/"><u>Pioneering Intelligence-Driven Tools to Revolutionize Your Operations</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-tutorial-performing-a-hard-reset-on-iphone-for-recovery-mode-entry/"><u>Step-by-Step Tutorial: Performing a Hard Reset on iPhone for Recovery Mode Entry</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-high-performance-systems-a-spotlight-from-toms-hardware/"><u>Unveiling High-Performance Systems - A Spotlight From Tom's Hardware</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test
-date: 2024-09-30T18:16:48.419Z
-updated: 2024-10-02T23:35:21.898Z
+date: 2024-10-09T19:33:35.638Z
+updated: 2024-10-14T16:15:48.002Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee536102fa45e6319038a39015f.jpg
@@ -14,10 +14,10 @@ Bericht
 ## Im 6\. Jahr in Folge: Everest Group zählt ABBYY in ihrem „Intelligent Document Processing Products PEAK Matrix™ Assessment“ erneut zu den Marktführern
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY wurde im Intelligent Document Processing (IDP) Products PEAK Matrix® Assessment 2024 der Everest Group erneut als als führender Anbieter genannt. 
@@ -25,10 +25,10 @@ Bericht
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ABBYY ist mit ABBYY Vantage, der branchenweit einzigen Low-Code/No-Code-IDP-Plattform, die sich in jede intelligente Automatisierungsplattform integrieren lässt, aufgrund der Stärken in den Kategorien Vision & Capability und Market Impact hervorragend positioniert. Vantage bietet Unternehmen die Möglichkeit, strukturierte und unstrukturierte Dokumente mithilfe vorgefertigter KI-Modelle zu verarbeiten, die auf dem ABBYY Marketplace angeboten werden und innerhalb weniger Minuten mit einem hohen Maß an Genauigkeit einsatzbereit sind. 
@@ -42,10 +42,10 @@ ABBYYs Vision von zweckgebundener KI ermöglicht es Unternehmen, die besten KI-M
 _**\-Vaibhav Bansal, Vice President, Everest Group**_ 
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY. 
@@ -119,19 +119,19 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-ginger-isle-strategies-for-stardew/"><u>[New] Ginger Isle Strategies for Stardew</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-safeguard-your-memories-saving-instagram-on-iphone-for-2024/"><u>[New] Safeguard Your Memories Saving Instagram on iPhone for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-best-youtube-names-generators-plus-how-to-brainstorm/"><u>2024 Approved Best YouTube Names Generators [+ How to Brainstorm]</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-maximizing-health-outreach-via-fb-advertising/"><u>2024 Approved Maximizing Health Outreach via FB Advertising</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-poco-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Poco</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Motorola Moto G34 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-get-rid-of-tiktok-logos-best-free-watermark-removers-online-for-2024/"><u>New Get Rid of TikTok Logos Best Free Watermark Removers Online for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/cket-to-your-youtube-audience-goal-1kplus-for-2024/"><u>Skyrocket to Your YouTube Audience Goal 1K+ for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-3gp-videos-into-high-quality-mov-formats/"><u>Step-by-Step Guide: Transforming 3GP Videos Into High-Quality MOV Formats</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-how-to-listen-to-and-transform-fsb-recordings-into-mp3-files/"><u>Step-by-Step Tutorial on How to Listen to and Transform FSB Recordings Into MP3 Files</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-14-free-mobile-anime-viewing-apps-best-picks-for-android-and-ios-devices/"><u>Top 14 FREE Mobile Anime Viewing Apps: Best Picks for Android & iOS Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-7-screen-recording-tools-for-pcs-and-macbooks-find-the-perfect-one/"><u>Top 7 Screen Recording Tools for PCs & MacBooks - Find the Perfect One</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-avi-playback-issues-for-a-seamless-experience-on-chromebooks/"><u>Troubleshooting AVI Playback Issues for a Seamless Experience on Chromebooks</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-how-to-successfully-add-hevc-footage-in-after-effects/"><u>Troubleshooting Guide: How to Successfully Add HEVC Footage in After Effects</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-choreograph-cheeky-comics-via-giphy/"><u>[New] In 2024, Choreograph Cheeky Comics via Giphy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-step-by-step-turning-on-windows-11s-high-dynamic-range-mode-for-2024/"><u>[New] Step-by-Step Turning On Windows 11'S High Dynamic Range Mode for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-ultimate-tutorial-uploading-360-degree-footage-on-facebook-for-2024/"><u>[New] Ultimate Tutorial Uploading 360-Degree Footage on Facebook for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-top-50plus-overlays-for-engaging-media-content/"><u>[Updated] In 2024, Top 50+ Overlays for Engaging Media Content</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-efficient-conversion-techniques-transforming-aiff-files-into-high-quality-aacapple-lossless-m4a-audio/"><u>1. Efficient Conversion Techniques: Transforming AIFF Files Into High-Quality AAC/Apple Lossless M4A Audio</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-ultimate-guide-effortless-conversion-of-avchd-files-into-multiple-formats/"><u>1. Ultimate Guide: Effortless Conversion of AVCHD Files Into Multiple Formats</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-itel-a05s-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Itel A05s Activity | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-strategies-for-controlling-wudfhostexes-high-resource-use-on-windows-10/"><u>Effective Strategies for Controlling wudfhost.exe's High Resource Use on Windows 10</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/getting-the-most-out-of-your-logitech-g933-mouse-a-step-by-step-audio-repair-guide/"><u>Getting the Most Out of Your Logitech G933 Mouse - A Step-by-Step Audio Repair Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-nokia-c32-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Nokia C32 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/tech-rivalry-unveiled-apples-ongon-dispute-with-adobe-over-flash-support/"><u>Tech Rivalry Unveiled: Apple's Ongon Dispute with Adobe over Flash Support</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-avi-to-dvd-transcoder-for-windows-11-users-in-2e24/"><u>Top Rated AVI to DVD Transcoder for Windows 11 Users in 2E24</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-two-strategies-for-successful-amv-downloads/"><u>Top Two Strategies for Successful AMV Downloads</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
 </ul></div>
 

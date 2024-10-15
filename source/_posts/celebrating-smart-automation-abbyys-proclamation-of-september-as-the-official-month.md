@@ -1,7 +1,7 @@
 ---
 title: "Celebrating Smart Automation: ABBYY's Proclamation of September as the Official Month"
-date: 2024-09-26T21:45:25.006Z
-updated: 2024-10-03T11:29:51.810Z
+date: 2024-10-11T16:56:45.161Z
+updated: 2024-10-14T23:23:25.603Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f8c3bfe35cce5c37efbf85d203da2ba6c70ae952a01231a15536e05f0907b970.png
@@ -50,16 +50,10 @@ _Gabrielle Lukianchuk, Chief Marketing Officer_
 To learn more about Intelligent Automation Month, register for the digital events and receive the latest resources, visit <https://digital.abbyy.com/intelligent-automation-month>.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -69,10 +63,10 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -80,10 +74,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -110,16 +104,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tech-haven.techidaily.com/enhancing-printer-efficiency-via-chatgpt-expertise/"><u>Enhancing Printer Efficiency via ChatGPT Expertise</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/essential-offline-ios-game-list-unplugged-fun-awaits-in-2024/"><u>Essential Offline iOS Game List - Unplugged Fun Awaits, In 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/extended-scope-camera-platforms-for-2024/"><u>Extended Scope Camera Platforms for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/harness-the-power-of-cookiebot-for-effective-online-marketing-campaigns/"><u>Harness the Power of Cookiebot for Effective Online Marketing Campaigns</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-infinix-zero-30-5g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Infinix Zero 30 5G FRP In 3 Different Ways</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-fix-qualcomm-atheros-bluetooth-driver-issues-on-windows-10-complete-solution/"><u>How to Fix Qualcomm Atheros Bluetooth Driver Issues on Windows 10: Complete Solution</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 to other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-mastering-the-art-of-video-capturing-zdsofts-method/"><u>In 2024, Mastering the Art of Video Capturing ZDSoft's Method</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/insightful-strategies-on-customer-knowledge-by-abbyy-presented-at-the-2017-aiim-conference/"><u>Insightful Strategies on Customer Knowledge by ABBYY Presented at the 2017 AIIM Conference</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leading-innovations-in-voice-recognition-abbyy-laut-secures-everest-groups-2024-market-pinnacle-with-idp-peak-matrix-test/"><u>Leading Innovations in Voice Recognition - ABBYY LAUT Secures Everest Group's 2024 Market Pinnacle with IDP Peak Matrix Test</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/leverage-the-power-of-cookiebot-for-advanced-user-experience-optimization/"><u>Leverage the Power of Cookiebot for Advanced User Experience Optimization</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-a-review-10-most-effective-methods-for-live-cricket-streaming/"><u>[New] 2024 Approved A Review 10 Most Effective Methods for Live Cricket Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-edge-pc-techniques-for-stellar-youtube-video-production-for-2024/"><u>[Updated] Cutting-Edge PC Techniques for Stellar YouTube Video Production for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-detailed-guide-to-mastering-recordings-with-audacity/"><u>[Updated] Detailed Guide to Mastering Recordings with Audacity</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-asgard-unleashed-echoes-of-ragnarok/"><u>[Updated] In 2024, Asgard Unleashed Echoes of Ragnarök</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-your-conversions-with-our-cookiebot-technology/"><u>Boost Your Conversions with Our Cookiebot Technology</u></a></li>
+<li><a href="https://fox-http.techidaily.com/capture-life-in-stunning-form-with-iphones-essential-10-composition-guidelines/"><u>Capture Life in Stunning Form with iPhone's Essential 10 Composition Guidelines</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enablement-boost-digital-footprints-and-user-engagement/"><u>Cookiebot Enablement: Boost Digital Footprints & User Engagement.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-web-optimization-enhance-user-engagement-and-analytics-effortlessly/"><u>Cookiebot-Enabled Web Optimization: Enhance User Engagement & Analytics Effortlessly</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-experience/"><u>Cookiebot-Enhanced Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimized-engagement-and-personalization/"><u>Cookiebot-Enhanced: Optimized Engagement and Personalization</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/driven-with-automated-bots-a-deep-dive-into-smart-marketing-technology/"><u>Driven with Automated Bots: A Deep Dive Into Smart Marketing Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/empowering-websites-with-cookiebot-technology-for-advanced-tracking-and-optimization/"><u>Empowering Websites with Cookiebot Technology for Advanced Tracking and Optimization</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-shipping-efficiency-leveraging-artificial-intelligence-for-smart-document-management/"><u>Enhance Shipping Efficiency: Leveraging Artificial Intelligence for Smart Document Management</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-our-cookiebot-power-plugins/"><u>Enhance User Experience with Our Cookiebot Power Plugins</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/full-guide-to-apple-iphone-13-pro-icloud-bypass-by-drfone-ios/"><u>Full guide to Apple iPhone 13 Pro iCloud Bypass</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Vivo X Fold 2? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-canvas-to-crypto-top-7-artwork-conversion-platforms/"><u>In 2024, From Canvas to Crypto Top 7 Artwork Conversion Platforms</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-brand-potential-with-essential-phrases/"><u>In 2024, Unleashing Brand Potential with Essential Phrases</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/upload-ubiquity-from-twitter-to-snapchat-videos/"><u>Upload Ubiquity From Twitter to Snapchat Videos</u></a></li>
 </ul></div>
 

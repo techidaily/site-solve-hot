@@ -1,7 +1,7 @@
 ---
 title: "Exploring ABBYY's Findings: The Future Landscape of Cognitive Automation Solutions"
-date: 2024-10-01T19:08:14.114Z
-updated: 2024-10-08T17:50:34.792Z
+date: 2024-10-13T16:26:44.850Z
+updated: 2024-10-14T16:45:27.458Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/db345622b66c3b6984b775950925cc8114e2a134a67c761a2d6a6d2fb5b65330.jpg
@@ -45,10 +45,10 @@ Weitere Details und globale Ergebnisse über die Investitionen in künstliche In
 ![](https://static1.abbyy.com/abbyycommedia/37806/infographic-economic-challenges-survey-de.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Methodik
@@ -56,10 +56,10 @@ Weitere Details und globale Ergebnisse über die Investitionen in künstliche In
 Diese Umfrage wurde im Juli 2023 von Sapio Research im Auftrag von ABBYY durchgeführt. 1.000 IT-Entscheidungsträger aus 17 Branchen, darunter die Bereiche Finanzdienstleistungen, Gesundheitswesen, Transport/Logistik, Versicherungen, Einzelhandel und Regierungen/öffentlicher Sektor, wurden in den USA, Großbritannien, Deutschland und Frankreich befragt, um zu erörtern, wie sich derzeitige globale wirtschaftliche Herausforderungen auf Investitionen in die intelligente Automatisierung auswirken. Die Umfrage untersuchte auch, ob und welche Technologien Unternehmen in naher Zukunft einführen wollen.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -69,10 +69,10 @@ ABBYY macht Ihre Informationen nutzbar. Unsere Lösungen kombinieren Innovation 
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -80,16 +80,10 @@ ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, gesch
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -115,22 +109,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-science-behind-effective-instagram-puzzle-posts-for-2024/"><u>[New] The Science Behind Effective Instagram Puzzle Posts for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/cant-use-ringsilent-mode-on-iphone-fix-it-with-these-easy-steps/"><u>Can't Use Ring/Silent Mode on iPhone? Fix It with These Easy Steps</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-educating-kids-with-a-safe-secure-approach-in-5-ways/"><u>ChatGPT: Educating Kids with a Safe, Secure Approach in 5 Ways</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-website-optimization-boost-your-seo-effortlessly/"><u>Cookiebot-Enabled Website Optimization: Boost Your SEO Effortlessly!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-optimizing-your-site-with-smart-analytics/"><u>Cookiebot-Enhanced User Experience: Optimizing Your Site with Smart Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-enrich-your-website-with-smart-seo-solutions/"><u>Cookiebot-Enhanced: Enrich Your Website with Smart SEO Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-advertising-with-the-power-of-cookiebot-technology/"><u>Customized Advertising with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/dabbyy-welcomes-scott-opitz-in-top-executive-positions-now-cto-and-cpo/"><u>D'Abbyy Welcomes Scott Opitz in Top Executive Positions: Now CTO & CPO</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-bookkeeping-accuracy-using-abbeys-smart-document-recognition-solutions/"><u>Elevate Your Bookkeeping Accuracy Using ABBEY’s Smart Document Recognition Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-data-insights-using-cookiebot-driven-analytics-solutions/"><u>Elevate Your Data Insights Using Cookiebot-Driven Analytics Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-marketing-strategy-using-cutting-edge-cookiebot-solutions-for-user-tracking/"><u>Elevate Your Marketing Strategy Using Cutting-Edge Cookiebot Solutions for User Tracking</u></a></li>
-<li><a href="https://techtrends.techidaily.com/from-traditional-to-trendy-understanding-cable-tv-vs-modern-streaming-options/"><u>From Traditional to Trendy: Understanding Cable TV Vs. Modern Streaming Options</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-enhancing-videos-with-thoughtfully-chosen-music/"><u>In 2024, Enhancing Videos with Thoughtfully Chosen Music</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-on-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes On Apple iPhone 12 mini?</u></a></li>
-<li><a href="https://games-able.techidaily.com/labor-day-savings-alert-our-favorite-premium-samsung-tv-cuts-price-by-43-exclusive-zdnet-find/"><u>Labor Day Savings Alert: Our Favorite Premium Samsung TV Cuts Price by 43% – Exclusive ZDNET Find!</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-tips-to-restore-your-dell-speaker-functionality/"><u>Step-by-Step Tips to Restore Your Dell Speaker Functionality</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unlock-efficient-airdrop-transfers-fixes-for-all-apple-gadgets/"><u>Unlock Efficient AirDrop Transfers - Fixes for All Apple Gadgets</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-traffic-with-smart-tracking-technology/"><u>Cookiebot-Enabled Site: Enhance Your Traffic with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-your-websites-user-experience/"><u>Cookiebot-Enabled: Enhancing Your Website's User Experience</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-analytics-tools/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Analytics Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-fueled-personalization-tailoring-user-experience-with-smart-tracking/"><u>Cookiebot-Fueled Personalization: Tailoring User Experience with Smart Tracking</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-revolutionize-your-sites-personalization-and-analytics-effortlessly/"><u>Cookiebot: Revolutionize Your Site's Personalization and Analytics Effortlessly</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-updated-intel-iris-xe-graphic-card-drivers-for-modern-operating-systems/"><u>Download Updated Intel Iris Xe Graphic Card Drivers for Modern Operating Systems</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-your-newly-released-optimized-wireless-network-driver/"><u>Download Your Newly Released, Optimized Wireless Network Driver</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-motorola-moto-g13-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Motorola Moto G13 online without jailbreak</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-guide-to-initiating-and-archiving-webinars-economically/"><u>In 2024, Guide to Initiating and Archiving Webinars Economically</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/navigating-the-multi-stream-experience-on-netflix/"><u>Navigating the Multi-Stream Experience on Netflix</u></a></li>
+<li><a href="https://win11.techidaily.com/securing-your-pc-transferring-preferences-from-one-to-another/"><u>Securing Your PC: Transferring Preferences From One to Another</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/what-exactly-is-chatgpt-discovering-opportunities-with-innovative-generative-ai-technology/"><u>What Exactly Is ChatGPT? Discovering Opportunities with Innovative Generative AI Technology</u></a></li>
 </ul></div>
 

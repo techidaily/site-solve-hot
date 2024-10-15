@@ -1,7 +1,7 @@
 ---
 title: ABBYY Digital Intelligence Revolutioniert Den Automatisierten Rechnungseingang Bei Bünting - Effiziente Und Zuverlässige Unternehmenssoftware Für Die Geschäftsabwicklung
-date: 2024-10-02T07:32:58.575Z
-updated: 2024-10-02T22:13:23.010Z
+date: 2024-10-10T20:32:09.961Z
+updated: 2024-10-14T19:00:43.666Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/01734b8ef062c5f42913179297294f7a33898d76f5f56b23f4fc2e8e00dd6cb9.jpg
@@ -19,6 +19,13 @@ Wholesale & Retail Trade | Accounts Payable Automation
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ABBYY Digital Intelligence optimiert den automatisierten Rechnungsein­gang der Bünting Unternehmens­gruppe
 
 Groß- und Einzelhandel | Automatisierung der Kreditorenbuchhaltung 
@@ -30,10 +37,10 @@ Groß- und Einzelhandel | Automatisierung der Kreditorenbuchhaltung
 ![Bünting Gruppe](https://static4.abbyy.com/abbyycommedia/31810/01c-bunting-logo-158x52.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name      | Bünting Gruppe                               |
@@ -87,33 +94,25 @@ _→ Mitarbeiterressourcen werden somit frei und können für strategischere Auf
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Content Intelligence](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [Content Intelligence](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/31809/01d-bunting-cover-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/31764/buenting-customer-story-de.pdf "PDF-Version") [PDF-Version](https://static5.abbyy.com/abbyycommedia/31764/buenting-customer-story-de.pdf "PDF-Version") 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Zum Dokument](https://static5.abbyy.com/abbyycommedia/31764/buenting-customer-story-de.pdf "PDF-Version") 
@@ -121,6 +120,13 @@ _→ Mitarbeiterressourcen werden somit frei und können für strategischere Auf
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -143,21 +149,19 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-become-a-shorts-connoisseur-must-know-facts/"><u>[New] 2024 Approved Become a Shorts Connoisseur Must-Know Facts</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-brainy-battalions-ultimate-list-of-general-knowledge-trivia-networks-2024/"><u>[New] Brainy Battalions Ultimate List of General Knowledge Trivia Networks, 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-leveraging-filmora-insights-for-every-content-creator/"><u>[New] Leveraging Filmora Insights for Every Content Creator</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-melodic-movements-music-upload-mastery-for-youtube/"><u>[Updated] 2024 Approved Melodic Movements Music Upload Mastery for YouTube</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-leveraging-facebook-best-practices-for-360-videos/"><u>[Updated] In 2024, Leveraging Facebook Best Practices for 360 Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-ultimate-windows-11-video-editing-showcase/"><u>[Updated] In 2024, The Ultimate Windows 11 Video Editing Showcase</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-infinix-note-30i-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Infinix Note 30i</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/is-mkv-format-supported-by-youtube-tips-for-hd-youtube-video-conversion/"><u>Is MKV Format Supported by YouTube? Tips for HD YouTube Video Conversion</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-media-format-transformation-how-to-seamlessly-create-gifs-from-webm-files-anywhere/"><u>Mastering Media Format Transformation: How to Seamlessly Create GIFs From WebM Files Anywhere</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ogg-mp4/"><u>Oggオーディオに変換してください - 最上級MP4動画を保持</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/preserve-excellent-resolution-the-finest-dailymotion-video-converters-to-effortlessly-switch-to-mp4-format/"><u>Preserve Excellent Resolution: The Finest Dailymotion Video Converters to Effortlessly Switch to MP4 Format</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/starting-the-driver-verifier-application-on-windows-11/"><u>Starting the Driver Verifier Application on Windows 11</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-videos-into-a-series-of-images/"><u>Step-by-Step Guide: Transforming Videos Into a Series of Images</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/the-ultimate-guide-to-the-most-effective-av-to-dvd-converters-of-2024-for-pcs-running-win-1011/"><u>The Ultimate Guide To The Most Effective Av To Dvd Converters of 2024 for PCs Running Win 10/11</u></a></li>
-<li><a href="https://blog-min.techidaily.com/transform-your-livestreams-discover-the-power-of-manycam-for-digital-camera-alternatives-and-online-broadcasting-tools/"><u>Transform Your Livestreams: Discover the Power of ManyCam for Digital Camera Alternatives and Online Broadcasting Tools</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/vlcts-how-to-merge-ts-files-using-vlc-media-player/"><u>VLCメディアプレーヤーでTSファイル連結の手順 - How to Merge TS Files Using VLC Media Player</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-capture-the-light-filmographys-five-essential-camera-techniques-of-24-for-2024/"><u>[New] Capture the Light Filmography's Five Essential Camera Techniques of '24 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-direct-data-delivery-master-5-techniques-for-uploading-files/"><u>[New] Direct Data Delivery Master 5 Techniques for Uploading Files</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-livestreaming-pre-recorded-content-on-facebook-platform/"><u>2024 Approved Livestreaming Pre-Recorded Content on Facebook Platform</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-conversion-of-mp4-videos-to-flash-compatible-swf-format-anytime-anywhere/"><u>Effortless Conversion of MP4 Videos to Flash-Compatible SWF Format Anytime, Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-technique-for-extracting-dvd-chapters-with-exclusive-subtitles-only/"><u>Effortless Technique for Extracting DVD Chapters with Exclusive Subtitles Only</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-video-editing-efficiency-with-professional-prores-file-conversion-from-mts-source/"><u>Enhance Video Editing Efficiency with Professional ProRes File Conversion From MTS Source</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/five-proven-fixes-for-when-your-onedrive-videos-wont-start-step-by-step-instructions/"><u>Five Proven Fixes for When Your OneDrive Videos Won't Start: Step-by-Step Instructions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-c55-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/hd-video-converter-factory-pro-50/"><u>HD Video Converter Factory Pro - 割引！50%オフの特別価格で獲得</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-securely-keep-your-wistia-videos-for-future-use/"><u>How To Securely Keep Your Wistia Videos For Future Use</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-huawei-p60-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Huawei P60</u></a></li>
+<li><a href="https://extra-support.techidaily.com/sleep-soundly-top-aspers-techniques-unveiled-for-2024/"><u>Sleep Soundly Top Asper's Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-your-iphones-display-dilemmas-top-7-problems-and-fixes/"><u>Solving Your iPhone's Display Dilemmas: Top 7 Problems and Fixes</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-for-a-smart-4k-lens-upgrade-for-2024/"><u>The Ultimate Guide for a Smart 4K Lens Upgrade for 2024</u></a></li>
 </ul></div>
 

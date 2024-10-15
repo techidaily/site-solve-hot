@@ -1,7 +1,7 @@
 ---
 title: Exploring Brazil's Surge in Intelligent Tech Solutions During InfoShow 2Nv 2018 | Expert Analysis by ABBYY Blog Team
-date: 2024-10-02T10:10:53.104Z
-updated: 2024-10-03T10:46:41.965Z
+date: 2024-10-11T23:16:32.429Z
+updated: 2024-10-14T18:27:53.897Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545b8fd2ecff1c5ec11c0e45ff.png
@@ -28,10 +28,16 @@ Business-critical information accumulates as technology advances, putting pressu
 For ABBYY, Brazil is a top priority market, despite its instability and complexity, presenting a favorable environment for IT business. Brazil was the world's 7th largest IT market before the 2016 the economic crisis resulted in the decrease of the GDP by 3.6% with reductions across all sectors of the economy including IT. The good news though is that IT sector is expected to post growth of 5.8% this year, according to estimates released by IDC Brazil. This is already a visible evidence that some of the companies which abandoned their IT projects in the wake of the crisis are trickling back. The Government is also encouraging foreign participation in Brazilian ICT companies through the Association for Promotion of the Excellence of the Brazilian Software (Softex) and the Brazilian Agency of Promotion of exports and investments (Apex-Brazil).
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Taking responsibility for social progress
@@ -45,10 +51,10 @@ This is not ABBYY's first foray into the Brazilian market. Earlier, the company 
 [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Events](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -114,19 +120,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-the-reverse-rotation-riddle-on-social-media-platforms/"><u>[New] The Reverse Rotation Riddle on Social Media Platforms</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-viral-video-evolution-youtubes-favorites/"><u>[New] Viral Video Evolution YouTube's Favorites</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/clova-ocr/"><u>「CLOVA OCRとフレックスキャプチャーを組み合わせた日本語手書き読み取り」</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/best-chatgpt-suggestions-to-overcome-digital-disruption-a-list-of-top-8-queries/"><u>Best ChatGPT Suggestions To Overcome Digital Disruption: A List of Top 8 Queries</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boost-traffic-and-engagement-with-cookiebot-integration-the-ultimate-seo-solution/"><u>Boost Traffic and Engagement with Cookiebot Integration: The Ultimate SEO Solution</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/building-lasting-relationships-with-saas-users-5-key-techniques/"><u>Building Lasting Relationships with SaaS Users: 5 Key Techniques</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/chromatic-shift-strategies-for-skilled-alteration-for-2024/"><u>Chromatic Shift Strategies for Skilled Alteration for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-homogeneiser-la-gestion-des-factures-dans-sap-a-laide-dabbyy-solutions-innovantes-pour-le-traitement-comptable-chez-rochling/"><u>Comment Homogénéiser La Gestion Des Factures Dans SAP À L'aide D'ABBYY : Solutions Innovantes Pour Le Traitement Comptable Chez Röchling</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-solutions-enhance-your-websites-performance/"><u>Cookiebot-Driven Solutions: Enhance Your Website's Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-data-center-with-the-best-servers-racks-and-enclosures-available/"><u>Elevate Your Data Center with the Best Servers Racks and Enclosures Available</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Vivo V27e | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/is-investing-in-a-mesh-wi-fi-network-system-beneficial-for-home-or-business-use/"><u>Is Investing in a Mesh Wi-Fi Network System Beneficial for Home or Business Use?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723208938495-revive-your-bluetooth-functionality-on-windows-10-fast-and-straightforward-fixes-inside/"><u>Revive Your Bluetooth Functionality on Windows 10: Fast and Straightforward Fixes Inside.</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-beginners-guide-to-iphone-image-assembling/"><u>The Beginner's Guide to iPhone Image Assembling</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-humorhexagon-snappysatirespace/"><u>[New] 2024 Approved HumorHexagon SnappySatireSpace</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-5-excellent-external-hdd-recommendations-for-xbox/"><u>[New] 5 Excellent External HDD Recommendations for Xbox</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-perfecting-the-live-broadcast-4-tips-for-fb-enthusiasts-for-2024/"><u>[New] Perfecting the Live Broadcast 4 Tips for FB Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-short-sensation-keywords-for-enhancing-video-shows-virality/"><u>2024 Approved Short Sensation Keywords for Enhancing Video Shows' Virality</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-and-m-files-bolster-synergistic-alliance/"><u>Abbyy & M-Files Bolster Synergistic Alliance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-innovates-at-tech-summit-unveiling-the-top-7-smart-scanning-breakthroughs/"><u>ABBYY Innovates at Tech Summit: Unveiling the Top 7 Smart Scanning Breakthroughs</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/abbyy-upgrades-sdk-to-offer-immediate-capture-capabilities-for-faster-data-processing/"><u>ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/authentification-des-id-avec-trustid-et-abyeocr-un-passage-au-cloud-pour-la-validation-securisee/"><u>Authentification Des ID Avec TrustID Et ABYEOCR : Un Passage Au Cloud Pour La Validation Sécurisée</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-analytics-with-our-cookiebot-integration-solutions/"><u>Boost Analytics with Our Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/boost-your-website-traffic-with-cutting-edge-cookiebot-technology/"><u>Boost Your Website Traffic with Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-nubia-red-magic-9-pro-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Nubia Red Magic 9 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/from-sky-to-screen-advanced-methods-in-drone-video-editing/"><u>From Sky to Screen Advanced Methods in Drone Video Editing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-xiaomi-redmi-k70-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Xiaomi Redmi K70 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-the-role-of-alternate-footage/"><u>In 2024, Mastering the Role of Alternate Footage</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722008048204-online-security-alert-deceptive-chatgpt-extension-compromises-facebook-sign-ins/"><u>Online Security Alert: Deceptive ChatGPT Extension Compromises Facebook Sign-Ins</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50% Expected Within Two Years, Says TechTarget</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
 </ul></div>
 

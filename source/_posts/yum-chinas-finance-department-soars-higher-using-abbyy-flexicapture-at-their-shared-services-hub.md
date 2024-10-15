@@ -1,7 +1,7 @@
 ---
 title: YUM China's Finance Department Soars Higher Using ABBYY FlexiCapture at Their Shared Services Hub
-date: 2024-09-30T09:05:48.630Z
-updated: 2024-10-03T10:00:21.793Z
+date: 2024-10-08T20:04:14.065Z
+updated: 2024-10-14T22:53:56.149Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ffcad7f48962d75f242ed7b8339741a057dbb535926e2709bec686a6dd167dd4.jpg
@@ -19,18 +19,18 @@ Other | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Financial shared services center of YUM China reaches a new level with ABBYY FlexiCapture®
 
 Other | Accounts Payable Automation 
 
 ![](https://static1.abbyy.com/abbyycommedia/15241/yum-pic1.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Customer Overview
 
@@ -45,6 +45,13 @@ Other | Accounts Payable Automation
 #### Partner Overview
 
 ![Shanghai Taibi Information Technology LTD](https://static5.abbyy.com/abbyycommedia/14850/abbyy.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Shanghai Taibi Information Technology LTD |
 | ------------ | ----------------------------------------- |
@@ -72,21 +79,22 @@ YUM! Restaurants (China) is the Shanghai-based Chinese division of the internati
 
 offices in China
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **9** times less
 
 people in charge
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **20,000**
@@ -129,13 +137,6 @@ Moreover, ABBYY software has enabled the company to release the workforce, signi
 
 [![07a-case-extra-product](https://static4.abbyy.com/abbyycommedia/21381/07a-case-extra-product.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
@@ -153,13 +154,6 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -182,20 +176,17 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-navigating-networks-generating-social-media-sensations/"><u>[New] 2024 Approved Navigating Networks Generating Social Media Sensations</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-social-media-sovereigns-ranked-by-youtube-subscribers/"><u>[Updated] Social Media Sovereigns Ranked by YouTube Subscribers</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlock-10-passport-images-at-no-cost-desktopweb/"><u>[Updated] Unlock 10 Passport Images at No Cost – Desktop/Web</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-honor-magic-6-lite-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Honor Magic 6 Lite</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/navigating-powerpoints-voice-recognition-lands-market/"><u>Navigating PowerPoint's Voice Recognition Lands Market</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-obstacles-in-customer-onboarding-key-drivers-and-critical-issues-revealed-through-survey-data/"><u>Navigating the Obstacles in Customer Onboarding: Key Drivers and Critical Issues Revealed Through Survey Data</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/new-accessible-reading-solution-abbyy-collaborates-with-amedia-for-an-ocr-app-designed-for-the-visually-impaired-community/"><u>New Accessible Reading Solution: ABBYY Collaborates with Amedia for an OCR App Designed for the Visually Impaired Community</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-online-presence-mastering-effective-pages/"><u>Optimizing Your Online Presence: Mastering Effective Pages</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-american-supply-network-in-2020-lessons-from-reuters-panel-on-efficient-automation-techniques/"><u>Revolutionize Your American Supply Network in 2020: Lessons From Reuter's Panel on Efficient Automation Techniques</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50% Expected Within Two Years, Says TechTarget</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/superfetch-explained-your-definitive-source-of-information/"><u>SuperFetch Explained: Your Definitive Source of Information</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/ultimate-guide-to-effective-video-marketing-tools-8-for-2024/"><u>Ultimate Guide to Effective Video Marketing Tools (8) for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/voice-assistants-face-off-determining-the-ideal-choice-between-alexa-and-google/"><u>Voice Assistants Face-Off: Determining the Ideal Choice Between Alexa and Google</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-affiliate-marketing-how-to-make-money-with-it-for-2024/"><u>YouTube Affiliate Marketing How to Make Money with It for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-unpacking-twitter-video-sharing-the-whatsapp-connection/"><u>[New] 2024 Approved Unpacking Twitter Video Sharing The WhatsApp Connection</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-create-a-playlist-on-youtube/"><u>[Updated] In 2024, How to Create a Playlist on YouTube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sound-senses-try-our-free-online-rhythm-analyzers/"><u>[Updated] Sound Senses Try Our FREE Online Rhythm Analyzers</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-13-pro-max-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock iPhone 13 Pro Max Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/optimal-methods-to-source-stock-photography-and-visuals/"><u>Optimal Methods to Source Stock Photography and Visuals</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transform-your-phone-into-a-pro-scanner-with-abbyys-topnotch-ai-technology/"><u>Transform Your Phone Into a Pro Scanner with ABBYY's Topnotch AI Technology!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transformative-mobile-tools-discovering-the-top-game-changers-on-your-smartphone/"><u>Transformative Mobile Tools: Discovering the Top Game-Changers on Your Smartphone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-intelligent-process-automation-an-overview/"><u>Understanding Intelligent Process Automation: An Overview</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unlocking-successful-ad-campaigns-through-smart-technology-insights-into-cookiebot-solutions/"><u>Unlocking Successful Ad Campaigns Through Smart Technology: Insights Into Cookiebot Solutions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unparalleled-access-8-leading-fb-movie-downloader-list-for-2024/"><u>Unparalleled Access #8 Leading FB Movie Downloader List for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725289890221-winx-dvd-ripper-and-winx-video-ai/"><u>WinX DVD Ripper & Winx Video AI 在线销售服务窗口 - 最新版本下载</u></a></li>
 </ul></div>
 

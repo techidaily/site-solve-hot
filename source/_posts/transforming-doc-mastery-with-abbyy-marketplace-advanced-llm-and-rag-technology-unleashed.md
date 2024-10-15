@@ -1,7 +1,7 @@
 ---
 title: "Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed"
-date: 2024-10-01T19:19:17.617Z
-updated: 2024-10-08T18:08:21.795Z
+date: 2024-10-09T18:21:18.683Z
+updated: 2024-10-14T20:26:09.360Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0ebef61d0b2c8908bbc43dc1da12abaf166bb4f6229b3a45bf569455ab91d1f.jpg
@@ -42,10 +42,10 @@ Bruce Orcutt, Chief Marketing Officer d'ABBYY
 ABBYY Vantage assure une extraction, un traitement et une classification précis et efficaces des données opérationnelles clés dans les documents, permettant un traitement direct de 95 % des documents avec une précision de 99 %. En tant que première plateforme low-code pour l'IDP, Vantage offre une interface intuitive aux développeurs et réduit ainsi leur dépendance vis-à-vis des départements informatiques. Ils peuvent notamment intégrer facilement des compétences d'IA pré-entraînées, capables de traiter des documents de tout format, structure et langue, à tout moment.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À PROPOS D’ABBYY
@@ -69,16 +69,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/istory-streams-that-will-transform-your-study-habits/"><u>[New] History Streams That Will Transform Your Study Habits</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-capture-the-moment-idevice-screenshots-and-playback/"><u>[Updated] Capture the Moment IDevice Screenshots & Playback</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-seamless-streaming-expert-use-of-netflixs-pip-feature/"><u>[Updated] Seamless Streaming Expert Use of Netflix's PIP Feature</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-shoppers-ultimate-list-of-top-rated-webcams-for-2024/"><u>[Updated] Shopper’s Ultimate List of Top-Rated Webcams for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/adaptieren-zum-new-normal-wie-fraunhofer-und-abbyy-die-prozessdigitalisierung-revolutionieren/"><u>Adaptieren Zum New Normal: Wie Fraunhofer Und ABBYY Die Prozessdigitalisierung Revolutionieren</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ai-driven-insights-into-decoding-medical-billing-complexities-the-abbyy-healthcare-chronicle/"><u>AI-Driven Insights Into Decoding Medical Billing Complexities | The ABBYY Healthcare Chronicle</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/blue-prism-la-technologie-de-lintelligence-des-processus-pour-ameliorer-et-perfectionner-la-performance-dautomatisation/"><u>Blue Prism : La Technologie De L'Intelligence Des Processus Pour Améliorer Et Perfectionner La Performance D'Automatisation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-engagement-through-ai-discover-the-power-of-cookiebot-for-dynamic-content-delivery/"><u>Boosting Engagement Through AI: Discover the Power of Cookiebot for Dynamic Content Delivery</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-process-intelligence-collaborating-with-alteryx-and-abbyy-in-tandem/"><u>Boosting Process Intelligence: Collaborating with Alteryx and ABBYY in Tandem</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-nokia-g22-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Nokia G22 Phone? Unlock It Now</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-distort-disrupt-and-delight-the-best-free-online-glitch-tools-for-2024/"><u>Updated Distort, Disrupt, and Delight The Best Free Online Glitch Tools for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-beginners-path-to-successful-hp-screen-capturing/"><u>[New] Beginner's Path to Successful HP Screen Capturing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-zoom-in-or-out-tailoring-your-youtube-viewing-pace/"><u>[New] Zoom in or Out? Tailoring Your YouTube Viewing Pace</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-wise-owls-ultimate-general-knowledge-hubs/"><u>[Updated] In 2024, Wise Owls' Ultimate General Knowledge Hubs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigate-to-new-horizinas-top-win11-gaming-delights/"><u>[Updated] Navigate to New Horizinas Top Win11 Gaming Delights</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726030046414-windows-media-player/"><u>「ファイル再生中のWindows Media Player 問題」: 修正方法と解決策</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-compatible-platforms-a-step-by-step-guide-to-watching-wtv-videos-anywhere/"><u>1. Compatible Platforms: A Step-by-Step Guide to Watching WTV Videos Anywhere</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-step-by-step-guide-adjusting-your-sound-quality-by-changing-the-bitrate/"><u>1. Step-by-Step Guide: Adjusting Your Sound Quality by Changing the Bitrate</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-oneplus-nord-3-5g-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726029019563-insta/"><u>Insta動画を最高に見せる投稿テクニック</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-videopad-video-editor-2023-a-detailed-review-and-recommendation-for-beginners-and-pros/"><u>New In 2024, Videopad Video Editor 2023 A Detailed Review and Recommendation for Beginners and Pros</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-the-winhttpdll-file-absence-a-comprehensive-guide/"><u>Solving the winhttp.dll File Absence: A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-avi-playback-issues-for-a-seamless-experience-on-chromebooks/"><u>Troubleshooting AVI Playback Issues for a Seamless Experience on Chromebooks</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-how-to-successfully-add-hevc-footage-in-after-effects/"><u>Troubleshooting Guide: How to Successfully Add HEVC Footage in After Effects</u></a></li>
 </ul></div>
 
