@@ -1,7 +1,7 @@
 ---
 title: Les Techniques Parfaits Pour Transférer Et Conserver Votre Système Windows 11 Sur Un HDD Externel
-date: 2024-10-08T18:07:50.217Z
-updated: 2024-10-15T01:54:10.624Z
+date: 2024-10-17T16:09:38.550Z
+updated: 2024-10-20T16:05:27.879Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/487b81e16ea9432c9b3bc7ae56246949ca490ff5dbda3843a3191dbeadf76d9d.jpg
@@ -43,19 +43,6 @@ Condividi questo: ![facebook](https://www.ubackup.com/resource/images/ab-theme/u
 6. [Consigli per un'Operazione Fluida di Windows 10](https://tools.techidaily.com/ubackup/products/)
 7. [Conclusione](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Introduzione
 
 Incontrare il problema di non poter digitare nella barra di ricerca di Windows 10 può essere frustrante, interrompendo il flusso di lavoro e ostacolando la navigazione efficiente. In questa guida completa, esamineremo i dettagli di questo problema, esploreremo le possibili cause e forniremo una varietà di soluzioni per garantire che tu possa digitare senza problemi nella barra di ricerca di Windows 10.
@@ -63,16 +50,10 @@ Incontrare il problema di non poter digitare nella barra di ricerca di Windows 1
 [![non riesco a digitare nella barra di ricerca di windows 10](https://www.ubackup.com/it/articoli/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/it/others/log/can-t-type-in-search-bar-windows-10.png)
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Capire il Problema di Non Poter Digitare nella Barra di Ricerca su Windows 10
@@ -91,28 +72,15 @@ La corruzione dei file di sistema può influenzare la funzionalità della barra 
 
 Alcune applicazioni di terze parti o conflitti software potrebbero interferire con il corretto funzionamento della barra di ricerca.
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Soluzioni: Ripristinare la Funzionalità della Barra di Ricerca di Windows 10
 
 Ora, esploriamo cinque soluzioni per affrontare il problema di non poter digitare nulla nella casella di ricerca su Windows 10, garantendo un'esperienza utente fluida.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Soluzione 1: Riavvio dei Servizi Cortana e Ricerca di Windows
@@ -132,13 +100,6 @@ Fai clic con il tasto destro su entrambi Cortana ed Esplora file di Windows e sc
 Passo 4\. Prova a Digitare nella Barra di Ricerca:
 
 Prova a digitare nella barra di ricerca dopo aver riavviato i servizi.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Soluzione 2: Esegui il Risolutore dei Problemi di Ricerca e Indicizzazione
 
@@ -175,6 +136,19 @@ Sotto la scheda Opzioni Avanzate, clicca su "Ricostruisci."
 Passo 4\. Attendi il Completamento:
 
 Permetti al processo di indicizzazione di completarsi. Successivamente, controlla se il problema di non poter digitare nella barra di ricerca di Windows 10 persiste.
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Soluzione 4: Controlla gli Aggiornamenti di Windows
 
@@ -216,6 +190,13 @@ Passo 6\. Testa la Barra di Ricerca:
 
 Nel nuovo account utente, testa la funzionalità della barra di ricerca. Se funziona, suggerisce che il problema potrebbe essere specifico del tuo account utente originale.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Utilizza AOMEI Backupper per la Protezione del Sistema su Windows 10
 
 Assicurarsi la protezione dei dati è cruciale durante la risoluzione dei problemi. Considera l'utilizzo di AOMEI Backupper per creare un backup del sistema di Windows 10.
@@ -235,6 +216,13 @@ Scegli una destinazione per il backup e personalizza le impostazioni se necessar
 Passo 4\. Avvia il Backup:
 
 Clicca su "Avvia Backup" per creare un backup completo del tuo sistema Windows 10.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Domande Frequenti su Impossibilità di Digitare nella Barra di Ricerca su Windows 10
 
@@ -257,19 +245,6 @@ Aggiorna regolarmente Windows per beneficiare degli ultimi miglioramenti e corre
 Utilizza strumenti di risoluzione dei problemi come AOMEI Backupper per affrontare prontamente i problemi.
 
 Monitora i servizi di sistema come Cortana e Ricerca di Windows per un funzionamento ottimale.
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusione
 
@@ -301,6 +276,13 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Pulito e Sicuro
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
 <ins class="adsbygoogle"
@@ -318,22 +300,21 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-maximize-your-impact-knowledge-of-instagrams-video-time-policy-for-2024/"><u>[Updated] Maximize Your Impact Knowledge of Instagram's Video Time Policy for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-stories-unleashing-marketing-potential-through-advanced-analytics/"><u>Cookiebot-Driven Success Stories: Unleashing Marketing Potential Through Advanced Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-website-optimization-unlocking-success/"><u>Cookiebot-Driven Website Optimization: Unlocking Success</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cross-device-app-development-with-abbyy-ocr-streamlining-ux-testing-and-robotics-qa/"><u>Cross-Device App Development with ABBYY OCR: Streamlining UX Testing & Robotics QA</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/customized-user-experience-with-automated-tracking-inspired-by-cookiebot/"><u>Customized User Experience with Automated Tracking: Inspired by Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/driven-by-advanced-data-gathering-technology-from-cookiebot/"><u>Driven by Advanced Data-Gathering Technology From Cookiebot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effective-strategies-for-claiming-due-payments-a-guide-for-medical-practices-and-hospital-networks/"><u>Effective Strategies for Claiming Due Payments: A Guide for Medical Practices and Hospital Networks</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-web-analytics-with-the-power-of-cookiebot-solutions/"><u>Enhance Web Analytics with the Power of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhanced-traffic-conversion-with-cookiebot-technology/"><u>Enhanced Traffic Conversion with Cookiebot Technology</u></a></li>
-<li><a href="https://techidaily.com/is-your-oppo-find-x7-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Oppo Find X7 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/microsoft-addresses-and-corrects-power-controller-issues-in-line-with-acpi-standards-for-optimal-performance/"><u>Microsoft Addresses and Corrects Power Controller Issues in Line with ACPI Standards for Optimal Performance</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/sion-playback-aligning-video-views-in-real-time-for-2024/"><u>Precision Playback Aligning Video Views in Real-Time for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-capturing-videos-from-your-webcam-using-vlc-on-pc-or-mac/"><u>Step-by-Step Guide: Capturing Videos From Your Webcam Using VLC on PC or Mac</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-realme-c67-4g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Realme C67 4G to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/understanding-the-mechanisms-of-youtubes-cc-license/"><u>Understanding the Mechanisms of YouTube's CC License</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unveiling-the-advantages-4-reasons-to-prefer-claude-3/"><u>Unveiling the Advantages: 4 Reasons to Prefer Claude 3</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-seamless-iphone-photography-during-video/"><u>[New] Seamless iPhone Photography During Video</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728494100772-windows-10windows-11/"><u>簡單操作！學習如何在只用二種步驟下，改裝Windows 10到電腦上的Windows 11.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/aomei-partition-assistant-professional-netzwerkbootfunktion/"><u>AOMEI Partition Assistant Professional - Netzwerkbootfunktion</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/como-actualizar-tu-computadora-de-hdd-a-ssd-en-windows-tutoriales-para-versiones-111087/"><u>Cómo Actualizar Tu Computadora De HDD a SSD En Windows: Tutoriales Para Versiones 11/10/8/7</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/como-hacer-backup-de-todos-los-programas-instalados-en-windows-11-para-salvaguardar-tu-sistema-sin-necesidad-de-reinstalacion/"><u>Cómo Hacer Backup De Todos Los Programas Instalados en Windows 11 Para Salvaguardar Tu Sistema Sin Necesidad De Reinstalación</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/data-size-and-time-coefficient-in-video-files-20mb/"><u>Data Size and Time Coefficient in Video Files (20MB)</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-mp4-play-on-razr-40-ultra-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Does MP4 play on Razr 40 Ultra?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/error-404-pages-no-longer-available/"><u>Error 404: Pages No Longer Available</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/expert-guide-repair-unbootable-systems-with-these-four-critical-steps-including-booting-from-disc/"><u>Expert Guide: Repair Unbootable Systems with These Four Critical Steps, Including Booting From Disc!</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-tips-to-avoid-superhero-system-crashes-on-personal-computers/"><u>Expert Tips to Avoid Superhero System Crashes on Personal Computers</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/guida-passo-passo-per-il-ripristino-dei-tuoi-dati-con-i-backup/"><u>Guida Passo-Passo per Il Ripristino Dei Tuoi Dati Con I Backup</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721102279377-how-to-fix-the-last-usb-device-malfunctioned-and-windows-doesnt-recognize-it/"><u>How to Fix The Last USB Device Malfunctioned and Windows Doesn't Recognize It</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-windows-11-system-restore-failed-error-error-0x80070091-complete-solution/"><u>How to Fix Windows 11 'System Restore Failed' Error (Error 0X80070091) - Complete Solution</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-x50i-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor X50i to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mend-resolving-keyboard-issues-on-windows-11/"><u>Mend: Resolving Keyboard Issues on Windows 11</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/refine-video-creation-process-via-windows-10-photos-and-story-remix/"><u>Refine Video Creation Process via Windows 10 Photos & Story Remix</u></a></li>
 </ul></div>
 

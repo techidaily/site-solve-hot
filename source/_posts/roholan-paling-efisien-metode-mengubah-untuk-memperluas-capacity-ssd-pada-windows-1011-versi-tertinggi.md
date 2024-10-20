@@ -1,7 +1,7 @@
 ---
 title: "Roholan Paling Efisien: Metode Mengubah Untuk Memperluas Capacity SSD Pada Windows 10/11 Versi Tertinggi"
-date: 2024-10-12T01:21:48.104Z
-updated: 2024-10-15T00:40:40.832Z
+date: 2024-10-15T16:10:57.808Z
+updated: 2024-10-20T16:04:23.821Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/51abaf027a31735325c9f76686dddc367d5ab57a5b37d142ebd628755c0e5ec6.jpg
@@ -35,13 +35,6 @@ Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-a
 3. [Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers](https://tools.techidaily.com/ubackup/products/)
 4. [Dernières réflexions sur l'utilitaire de sauvegarde Buffalo](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Logiciel de sauvegarde NAS Buffalo pour système Windows
 
 NAS Buffalo est la solution idéale pour la protection des données et peut facilement éviter les défaillances informatiques causées par une attaque de virus, un plantage système, une corruption de disque, etc. Cependant, il peut également se bloquer et entraîner une perte de données dans ces situations. Vous ne souhaitez probablement pas perdre vos données, il est donc judicieux de sauvegarder votre NAS Buffalo sur un disque dur externe, une clé USB ou d'autres périphériques.
@@ -68,16 +61,16 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers
 
@@ -103,6 +96,13 @@ Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le no
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
 [![destination](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/choix-chemin-destinations.png)
@@ -120,10 +120,10 @@ De plus, vous pouvez activer la notification par e-mail une fois la tâche termi
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
@@ -143,10 +143,10 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
@@ -154,10 +154,10 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Autres articles connexes
@@ -191,10 +191,10 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -212,18 +212,20 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-first-steps-in-virtual-conferencing-with-zoom-for-2024/"><u>[New] First Steps in Virtual Conferencing with Zoom for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/hos-at-the-apex-youtube-subscribers-ranking/"><u>[New] Who's at the Apex? YouTube Subscribers Ranking</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/outube-taping-permissibility-concerns/"><u>[New] YouTube Taping Permissibility Concerns</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-experience-voice-transformation-list-of-the-best-android-recording-change-apps/"><u>[Updated] 2024 Approved Experience Voice Transformation List of the Best Android Recording Change Apps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-viral-video-to-visuals-converting-tweets-to-costless-cgi/"><u>2024 Approved Viral Video to Visuals Converting Tweets to Costless CGI</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723012874555-cant-use-steam-remote-play-discover-effective-methods-to-get-it-running-smoothly/"><u>Can't Use Steam Remote Play? Discover Effective Methods to Get It Running Smoothly</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-customization-enhancing-user-experience/"><u>Cookiebot-Driven Customization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-personalization-enhance-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhance Your Website's User Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-user-experience-boost-your-sites-potential/"><u>Cookiebot-Enhanced User Experience: Boost Your Site's Potential</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-optimize-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enhanced: Optimize Your Site with Cutting-Edge Tracking Technology</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/exemplary-6-skyline-minecraft-abodes/"><u>Exemplary 6 Skyline Minecraft Abodes</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/navigating-video-upload-procedures-on-chrome-devices/"><u>Navigating Video Upload Procedures on Chrome Devices</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-xiaomi-13t-pro-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Xiaomi 13T Pro Phone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-rapid-capture-sounds-alongside-images/"><u>[New] 2024 Approved Rapid Capture Sounds Alongside Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-the-art-of-instagram-video-bordering/"><u>[Updated] 2024 Approved Mastering the Art of Instagram Video Bordering</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-starting-point-auditions-approach-to-soft-volume-increase/"><u>[Updated] Starting Point Audition's Approach to Soft Volume Increase</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-unlock-your-macs-hidden-airdrop-settings-how-to-enable-visibility/"><u>1. Unlock Your Mac's Hidden AirDrop Settings: How to Enable Visibility</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-fix-the-critical-process-died-error-error-code-0xc00000f0-in-windows-11/"><u>How to Fix the 'Critical Process Died' Error (Error Code 0xC00000F0) in Windows 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-move-your-samsung-information-via-activated-usb-device-for-booting/"><u>How to Move Your Samsung Information via Activated USB Device for Booting</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-gt-neo-5-se-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from GT Neo 5 SE</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-xiaomi-redmi-note-12r-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Xiaomi Redmi Note 12R Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/masterclass-in-digital-animation-the-art-of-creating-gifs-for-2024/"><u>Masterclass in Digital Animation The Art of Creating GIFs for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/set-up-windows-defender-firewall-with-specific-rules-that-limit-access-to-your-nas-ports-such-as-smb-default-is-445-rdp-3389-etc-only-from-authorized-device167/"><u>Set up Windows Defender Firewall with Specific Rules that Limit Access to Your NAS Ports, Such as SMB (Default Is 445), RDP (3389), Etc., Only From Authorized Devices or IP Ranges.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/solution-found-failed-usb-backup-on-windows-troubleshooting-steps-for-win11-win10-win8-and-win7/"><u>Solution Found: Failed USB Backup on Windows - Troubleshooting Steps for Win11, Win10, Win8 & Win7</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-most-popular-free-soundtrack-sites-for-gamers/"><u>The Most Popular Free Soundtrack Sites for Gamers</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-11-tipps-fur-die-synchronisation-von-verzeichnissen-uber-ein-netzlaufwerk-methode-eins-und-methode-zwei/"><u>Windows 11-Tipps Für Die Synchronisation Von Verzeichnissen Über Ein Netzlaufwerk (Methode Eins Und Methode Zwei)</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-easy-transfer-pas-plus-de-version-pour-windows-10/"><u>Windows Easy Transfer: Pas Plus De Version Pour Windows 10</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comment Utiliser Des Outils De Synchro Open Source Pour Mettre À Jour Les Fichiers Entre Votre Ordinateur Et Clé USB
-date: 2024-10-12T19:37:01.974Z
-updated: 2024-10-14T23:22:25.162Z
+date: 2024-10-19T16:02:52.543Z
+updated: 2024-10-20T16:03:04.771Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/389ba287b9f30e51bc8552f55032d1c330a9a54c78aa8404f53a5e2618efdf4c.jpg
@@ -61,10 +61,10 @@ In a word, if you want to make an image back for your computer or want to clone 
 Here in this guide, you will get the detailed steps about how to use Symantec Ghost in Windows 11/10/8/7\. You can simply search “**Norton Ghost 15 download**” via your browser to get the tool. As we have mentioned above, it only offers a 30-day free trial. If you prefer a free tool to help you backup, restore or clone your hard drive, you can refer to the [next part](https://tools.techidaily.com/ubackup/products/) to get the best free alternative to Norton Ghost.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Image Your Computer with Norton Ghost
@@ -75,26 +75,12 @@ Here in this guide, you will get the detailed steps about how to use Symantec Gh
 
 [![Create Backup](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/norton-ghost/create-backup.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3\. The **Easy Setup** screen will appear.
 
 * You can click **OK** to accept the default settings or click a setting to modify it.
 * Or you can click **Custom...** to create a backup according to your needs.
 
 [![Click Custom](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/norton-ghost/click-custom.png)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4\. Finally, click **OK** to confirm.
 
@@ -110,6 +96,13 @@ Click **Recover My Files** if you want to recover files or folder, or **Recover 
 
 [![Recover My Files](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/norton-ghost/find-files-to-recover.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. After the scanning, select the file you need and click **Recover Files...**
 
 **Recover My Computer:**
@@ -118,14 +111,14 @@ On **Recover My Computer** screen, find and choose the right system restore poin
 
 [![Recover My Computer](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/norton-ghost/recover-now.png)
 
-👉 **Note:** If your computer cannot run Windows normally, you can use the Symantec Recovery Disk CD to help you boot your computer. Depending on which version of the product you have purchased, Symantec Recovery Disk is either included on your product CD or as a separate CD. If you don't have a floppy drive, you can create a [Norton Ghost Bootable USB](https://tools.techidaily.com/ubackup/products/) instead.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+👉 **Note:** If your computer cannot run Windows normally, you can use the Symantec Recovery Disk CD to help you boot your computer. Depending on which version of the product you have purchased, Symantec Recovery Disk is either included on your product CD or as a separate CD. If you don't have a floppy drive, you can create a [Norton Ghost Bootable USB](https://tools.techidaily.com/ubackup/products/) instead.
 
 ### Clone Disk with Norton Ghost
 
@@ -170,16 +163,16 @@ Select the corresponding backup methods if you want to backup system, partition 
 
 [![Add Disk](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/backup/disk-backup/add-disk.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3\. Choose a destination path to save the disk image. You can save the backup image on a local hard drive, external hard drive, USB flash drive, or network drive, etc. Click **Start Backup** when you are ready.
 
 [![Select Backup Destination](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/backup/disk-backup/select-backup-destination.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 👉 **Notes:**
 
@@ -199,13 +192,6 @@ If you have created a backup with AOMEI Backupper, you can easily perform a rest
 
 [![Disk Image Explore Home](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/adv/tools/explore-image/home-explore-image-disk.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Clone Hard Drive
 
 You can directly clone hard drive to another one with the **[Disk Clone](https://tools.techidaily.com/ubackup/products/)** feature. If you are cloning HDD to SSD, you can make use of the "**SSD Alignment**" feature to improve the read/write speed of the destination SSD.
@@ -224,13 +210,6 @@ That’s all for how to use Norton Ghost 15\. Indeed Norton Ghost is a good tool
 For backup and restore features, you have 4 corresponding options plus two premium features - Universal Restore and Explore Image. It helps to perform dissimilar hardware restore for system or disk and restore files from other backup types, such as, system, disk, or partition. 
 
 For the clone feature, you have two free options plus System Clone. So you can copy boot drive to another one successfully, even to smaller drive. And it is able to accelerate the reading and writing speed of the target disk if it is an SSD. 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs about Norton Ghost
 
@@ -258,6 +237,13 @@ Was the provided information useful? Your vote is important to us!
 
 ![Lena](https://www.ubackup.com/assets/images/author/Lena.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Lena](https://tools.techidaily.com/ubackup/products/) · Editor
 
 Lena is an editor of FoneTool, she covers backup & restore, and phone data management and so on. She enjoys helping people find solutions to their problems. She loves traveling, eating, reading and so on. She takes most of time with her family when she is not working.
@@ -282,6 +268,13 @@ Was the provided information useful? Your vote is important to us!
 
 [Yes](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Free Get AOMEI Backupper Now
 
 Safeguard any data of your computer with backup, sync and clone.
@@ -291,13 +284,20 @@ Safeguard any data of your computer with backup, sync and clone.
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Clean & Secure
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -314,18 +314,22 @@ Safeguard any data of your computer with backup, sync and clone.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-voice-assignment-verification/"><u>[New] 2024 Approved Voice Assignment Verification</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-top-photo-storage-sites/"><u>[New] In 2024, Top Photo Storage Sites</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-social-media-marketing-get-more-viewers-with-youtube/"><u>[Updated] Social Media Marketing Get More Viewers with YouTube</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbruch-einfluss-von-abnutzbaren-tools-auf-die-automation-der-forderungsabwicklung-und-integration-in-sap/"><u>Abbruch: Einfluss Von ABNutzbaren Tools Auf Die Automation Der Forderungsabwicklung Und Integration in SAP</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-enhances-sales-organization-with-new-leadership-joe-rayfield-named-vp/"><u>ABBYY Enhances Sales Organization with New Leadership: Joe Rayfield Named VP</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/effortless-installation-of-microsoft-sculpt-ergo-keyboard-drivers/"><u>Effortless Installation of Microsoft Sculpt Ergo Keyboard Drivers</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fix-your-gameplay-eliminating-slow-response-times-in-back-4-blood/"><u>Fix Your Gameplay: Eliminating Slow Response Times in 'Back 4 Blood'</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-search-of-quality-identifying-the-top-5-virtual-title-designers/"><u>In Search of Quality Identifying the Top 5 Virtual Title Designers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimize-with-cookiebot-a-leap-forward-in-personalized-marketing/"><u>Optimize With Cookiebot: A Leap Forward in Personalized Marketing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionize-your-web-presence-using-cutting-edge-cookiebot-technology/"><u>Revolutionize Your Web Presence Using Cutting-Edge CookieBot Technology</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-definitive-10-screenshot-boosters-with-stickers-on-iphones-and-androids/"><u>The Definitive 10 Screenshot Boosters with Stickers on iPhones & Androids</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-qp-value-enhancing-gradual-movement-vids-for-2024/"><u>Top QP Value Enhancing Gradual Movement Vids for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/tout-sur-lintegration-de-la-gestion-numerisation-et-traitement-automatisee-de-documents-methodologie-en-5-etapes-par-abbyy/"><u>Tout Sur L'Intégration De La Gestion Numérisation Et Traitement Automatisée De Documents - Méthodologie en 5 Étapes Par ABBYY</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-capture-every-day-in-the-life-of-your-sims-with-pro-tips-for-gameplay-recordings/"><u>[New] 2024 Approved Capture Every Day in the Life of Your Sims with Pro Tips for Gameplay Recordings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elite-recording-tools-for-gamers/"><u>[Updated] In 2024, Elite Recording Tools for Gamers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-revolutionizing-work-with-windows-10-innovations/"><u>2024 Approved Revolutionizing Work with Windows 10 Innovations</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/6kej5yaz5peg5rov5l255so55qe5yqo5ocb5a2y5yko6k6plus5ash6zeu6aky77ya6kplusm57ug5oyh5y2x/"><u>解决无法使用的动态存储设备问题：详细指南</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/geautomatiseerde-instelling-van-hoevesteunen-oplossingen-voor-besekt-apps-in-windows-1011/"><u>Geautomatiseerde Instelling Van Hoevesteunen: Oplossingen Voor Besekt Apps in Windows 10/11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/guia-paso-a-paso-para-crear-una-version-movil-eficiente-como-hacerlo/"><u>Guía Paso a Paso Para Crear Una Versión Móvil Eficiente: Cómo Hacerlo</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-oppo-a79-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Oppo A79 5G to iPad | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/maintaining-your-media-secure-downgrade-process-from-ios-14-to-ios-13-without-data-loss/"><u>Maintaining Your Media: Secure Downgrade Process From iOS 14 to iOS 13 Without Data Loss</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/microsoft-365office-3652/"><u>Microsoft 365(Office 365)メールバックアップガイド：簡単な手順2点</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-error-code-e6-for-optimal-performance-in-call-of-duty-warzone-and-modwarfare-pc/"><u>Overcoming Error Code E6 for Optimal Performance in Call of Duty Warzone and ModWarfare (PC)</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-errors-effective-solutions-to-prevent-pacific-drive-from-crashing-on-your-desktop/"><u>Overcoming Errors: Effective Solutions to Prevent Pacific Drive From Crashing on Your Desktop</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/share-your-tweets-as-snaps-easy-tutorials/"><u>Share Your Tweets as Snaps - Easy Tutorials</u></a></li>
+<li><a href="https://driver-install.techidaily.com/swift-driver-refresh-for-windows-oses-10-81-and-7-steps/"><u>Swift Driver Refresh for Windows OSes - 10, 8.1, & 7 Steps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-essential-guide-to-top-analytics-platforms-for-better-instagram-metrics/"><u>The Essential Guide to Top Analytics Platforms for Better Instagram Metrics</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/the-guide-to-retrieving-deleted-or-missing-favorites-in-microsoft-edge-browser/"><u>The Guide to Retrieving Deleted or Missing Favorites in Microsoft Edge Browser</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ursachen-und-behebung-des-fehlers-error-code-0x80070643-installation-fehlgeschlagen-kompakte-anleitungen-fur-windows-benutzer/"><u>Ursachen Und Behebung Des Fehlers 'Error Code 0X80070643 - Installation Fehlgeschlagen': Kompakte Anleitungen Für Windows-Benutzer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-10-datenwiederherstellung-mit-versionierung-vergleich-zwischen-nativem-feature-und-aomei-backupper/"><u>Windows 10 Datenwiederherstellung Mit Versionierung: Vergleich Zwischen Nativem Feature Und AOMEI Backupper</u></a></li>
 </ul></div>
 
