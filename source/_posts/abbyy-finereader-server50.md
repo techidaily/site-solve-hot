@@ -1,7 +1,7 @@
 ---
 title: ABBYY FineReader Serverで過去50年間の文書検索能力向上
-date: 2024-10-09T18:53:29.613Z
-updated: 2024-10-15T00:13:20.694Z
+date: 2024-10-26T19:22:34.898Z
+updated: 2024-10-31T23:20:37.006Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fa466aca4e0117af9ede098ff5beff07b4b780680a77e468de6afed425dad313.jpg
@@ -20,10 +20,10 @@ Construction | Engineering & Manufacturing | Digital Archiving | Document Manage
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 過去50年分のドキュメントの検索性を高めるため ABBYY FineReader Serverを導入
@@ -32,22 +32,15 @@ Construction | Engineering & Manufacturing | Digital Archiving | Document Manage
 
 ![Chiyoda](https://static1.abbyy.com/abbyycommedia/23842/chiyoda-556x303.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### お客様の概要
 
 ![千代田化工建設](https://static4.abbyy.com/abbyycommedia/23841/logo-chiyoda-small.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | 氏名     | 千代田化工建設                                             |
@@ -134,6 +127,13 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 
 [![PDF版](https://static4.abbyy.com/abbyycommedia/23844/chiyoda-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/23839/customer-story-chiyoda-ja.pdf "PDF版") [PDF版](https://static4.abbyy.com/abbyycommedia/23839/customer-story-chiyoda-ja.pdf "PDF版") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://static4.abbyy.com/abbyycommedia/23839/customer-story-chiyoda-ja.pdf "PDF版") 
 
 ###### SNSでフォロー
@@ -145,10 +145,16 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
@@ -172,24 +178,22 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-origami-inspired-miniature-asian-abodes-in-mc/"><u>[Updated] In 2024, Origami-Inspired, Miniature Asian Abodes in MC</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-tips-for-reducing-unsteady-shots/"><u>2024 Approved Tips for Reducing Unsteady Shots</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-watch-without-limits-15plus-free-apps-to-save-your-favorite-content/"><u>2024 Approved Watch Without Limits 15+ Free Apps to Save Your Favorite Content</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/5-outstanding-no-cost-tools-to-save-your-favorite-youtube-content-on-windows-ten/"><u>5 Outstanding No-Cost Tools to Save Your Favorite YouTube Content on Windows # Ten</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ai-powered-google-photo-editor-enhance-images-flawlessly/"><u>AI-Powered Google Photo Editor: Enhance Images Flawlessly</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fast-conversion-guide-transforming-webm-files-into-mkv-format/"><u>Fast Conversion Guide: Transforming WebM Files Into MKV Format</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fastest-winx-dvd-ripper-pro-professional-quality-hd-ripping-to-mp4-in-just-5-minutes-official-version/"><u>Fastest WinX DVD Ripper Pro: Professional Quality HD Ripping to MP4 in Just 5 Minutes | Official Version</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-13c-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Xiaomi Redmi 13C 5G Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-vivo-x100-pro-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Vivo X100 Pro is off? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-vivo-y200e-5g-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Vivo Y200e 5G Phone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/linksys-wrt3200acm-review-the-pinnacle-of-open-source-wifi-technology-for-seamless-online-experiences/"><u>Linksys WRT3200ACM Review: The Pinnacle of Open Source WiFi Technology for Seamless Online Experiences</u></a></li>
-<li><a href="https://os-tips.techidaily.com/maximize-iphone-memory-using-imyfone-umate-pro-insights-comparisons-and-freebies-reviewed/"><u>Maximize iPhone Memory Using IMyFone Umate Pro - Insights, Comparisons & Freebies Reviewed</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mov-file-conversion-step-by-step-guide-to-transforming-into-a-3gp-format-on-your-computer/"><u>MOV File Conversion: Step-by-Step Guide to Transforming Into a 3GP Format on Your Computer</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/region-free-dvd-player-setup-enjoy-us-movies-in-the-uk-without-any-hassle/"><u>Region-Free DVD Player Setup: Enjoy US Movies in the UK Without Any Hassle</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/simple-guide-to-bisecting-movies-for-every-device-desktops-laptops-ios-and-android-systems/"><u>Simple Guide to Bisecting Movies for Every Device: Desktops, Laptops, iOS and Android Systems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-flawlessly-turn-avchd-content-into-prores-files/"><u>Step-by-Step Guide to Flawlessly Turn AVCHD Content Into ProRes Files</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-seamlessly-changing-m4v-videos-to-webm-for-online-use/"><u>Step-by-Step Tutorial on Seamlessly Changing M4V Videos to WebM for Online Use</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-resolving-non-playable-xvid-codec-files-in-your-plex-library/"><u>Troubleshooting Guide: Resolving Non-Playable Xvid Codec Files in Your Plex Library</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726028147002-xperia/"><u>Xperiaデバイスで動画再生に失敗する方法: パワーオフから回復</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-decoding-the-impact-of-instagrams-algorithm-shifts/"><u>[New] Decoding the Impact of Instagram's Algorithm Shifts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-snicker-showcase-top-10-tweets/"><u>[New] Snicker Showcase Top 10 Tweets</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-evolved-video-editing-experience-with-movavi-pro-2024/"><u>[New] The Evolved Video Editing Experience with Movavi Pro 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-ultimate-guide-resolving-issues-with-non-functioning-iphone-videos-across-various-scenarios/"><u>1. Ultimate Guide: Resolving Issues with Non-Functioning iPhone Videos Across Various Scenarios</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/addressing-screenshake-phenomenon-in-lenovo/"><u>Addressing Screenshake Phenomenon in Lenovo</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comment-installer-un-disque-de-secours-sur-votre-lenovo-g5n-avec-loutil-de-recuperation-aomei-onekey/"><u>Comment Installer Un Disque De Secours Sur Votre Lenovo G5n Avec L’Outil De Récupération AOMEI OneKey</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comment-restaurer-des-fichiers-par-accident-en-onedrive/"><u>Comment Restaurer Des Fichiers Par Accident en OneDrive</u></a></li>
+<li><a href="https://games-able.techidaily.com/conquering-connectivity-chaos-start-lol-smoothly/"><u>Conquering Connectivity Chaos, Start LoL Smoothly</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effective-techniques-for-restoring-a-gpt-disk-a-comprehensive-guide/"><u>Effective Techniques for Restoring a GPT Disk: A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/erfahren-sie-die-besten-zwei-ansatze-um-ein-bootbares-windows-11-backup-zu-erstellen/"><u>Erfahren Sie Die Besten Zwei Ansätze, Um Ein Bootbares Windows-11-Backup Zu Erstellen</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/premiered-patterns-for-panzoid-creation-for-2024/"><u>Premiered Patterns for Panzoid Creation for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/superior-choice-top-ranked-crucial-ssd-migration-tool-fur-windows/"><u>Superior Choice: Top-Ranked Crucial SSD Migration Tool Für Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/syma-107g-remote-controlled-helicopter-evaluation-budget-friendly-aviation-entertainment/"><u>Syma 107G Remote Controlled Helicopter Evaluation: Budget-Friendly Aviation Entertainment</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transfert-facile-dimages-entre-iphone-et-ordinateur-a-laide-du-cable-usb-etapes-detaillees-pour-les-debutants/"><u>Transfert Facile D'images Entre iPhone Et Ordinateur À L'aide Du Câble USB : Étapes Détaillées Pour Les Débutants</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-successfully-overcoming-vcenters-file-system-and-network-service-hurdles/"><u>Troubleshooting Guide: Successfully Overcoming vCenter's File System & Network Service Hurdles</u></a></li>
 </ul></div>
 

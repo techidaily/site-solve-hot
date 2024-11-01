@@ -1,7 +1,7 @@
 ---
 title: "James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance"
-date: 2024-10-07T20:31:34.317Z
-updated: 2024-10-14T18:55:29.279Z
+date: 2024-10-28T19:35:02.180Z
+updated: 2024-11-01T04:29:17.831Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91d802feac954d9a2b7218b9de82c000f339447018e6cb53073b6a41a90f92e5.jpg
@@ -28,16 +28,10 @@ Ritter commented, “ABBYY is well positioned to deliver next generation, no cod
 Ritter has held several leadership positions with global organizations including WPP, Ferrovial, and BigCommerce. He originally joined ABBYY as VP of Finance in June 2021, and prior to joining ABBYY, was the VP Controller at Accruent, an international enterprise software organization. Ritter is a Certified Public Accountant with an accounting degree from Rowan University and is actively pursuing an MBA at Boston University Questrom School of Business. He resides in Texas.
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -47,16 +41,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -64,10 +52,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -94,21 +82,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-affordable-pc-display-recorder-apps/"><u>[New] 2024 Approved Affordable PC Display Recorder Apps</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-top-10-best-meme-templates/"><u>[New] 2024 Approved Top 10 Best Meme Templates</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-essential-strategies-for-effective-use-of-luts-in-video-edits/"><u>[Updated] 2024 Approved Essential Strategies for Effective Use of LUTs in Video Edits</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-empowerment-in-film-a-selection-of-inspiring-titles/"><u>[Updated] In 2024, Empowerment in Film A Selection of Inspiring Titles</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-evolution-continues-iphone-xs-photographic-advancements/"><u>[Updated] In 2024, The Evolution Continues IPhone X's Photographic Advancements</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-navigating-legalities-of-instagram-harmonies-for-2024/"><u>[Updated] Navigating Legalities of Instagram Harmonies for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-optimize-your-zoom-soundscape-clear-channel-balance-achieved/"><u>[Updated] Optimize Your Zoom Soundscape Clear Channel Balance Achieved</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-top-essential-fluid-dynamics-gaming-experiences-for-2024/"><u>[Updated] Top Essential Fluid Dynamics Gaming Experiences for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726028139677-7/"><u>最新動画削減ソフトウェアリスト・日本語版上位7つ - おすすめベータサイト</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-xiaomi-redmi-note-13-proplus-5g-s-lock-screen-pattern-pin-or-password-by-drfone-android-unlock-android-unlock/"><u>How to bypass Xiaomi Redmi Note 13 Pro+ 5G’s lock screen pattern, PIN or password</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/vlcts-how-to-merge-ts-files-using-vlc-media-player/"><u>VLCメディアプレーヤーでTSファイル連結の手順 - How to Merge TS Files Using VLC Media Player</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726030257633-vlc/"><u>VLCメディアプレーヤーによる動画編集: 簡単な切り取りとカット手順</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726027274485-windows-10/"><u>Windows 10向けゲーム録画の究極ガイド</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windowsh2-hevc/"><u>WindowsでH.2지베이 HEVCフォーマットの動画再生に問題がある方のハウツー</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726030509149-5/"><u>オンライン動画連結の専門家から振り返る、今最も人気な5つのウェブサイト!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-perfecting-mp4-segments-best-tools-for-mac-filmmakers/"><u>[New] 2024 Approved Perfecting MP4 Segments Best Tools For Mac Filmmakers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-giggle-genesis-conceptualizing-7-funny-youtube-sessions/"><u>[New] Giggle Genesis Conceptualizing 7 Funny YouTube Sessions</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-animators-artistry-archives/"><u>[Updated] Animator's Artistry Archives</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-how-to-restore-irretrievably-erased-documents-in-your-google-drive-a-comprehensive-guide/"><u>1. How to Restore Irretrievably Erased Documents in Your Google Drive: A Comprehensive Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-rhythmic-revelations-adding-audio-to-your-vimeo-videos/"><u>2024 Approved Rhythmic Revelations Adding Audio to Your Vimeo Videos</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/best-ergonomic-chair-picks-for-a-healthy-back-the-top-5-selections-of-2022-reviewed-by-zdnets-industry-leaders/"><u>Best Ergonomic Chair Picks for a Healthy Back: The Top 5 Selections of 2022 Reviewed by ZDNet's Industry Leaders</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fehlerbehebung-fur-windows-problem-beim-starten-der-systemwiederherstellung/"><u>Fehlerbehebung Für Windows: Problem Beim Starten Der Systemwiederherstellung</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-quick-ways-to-transfer-contacts-from-apple-iphone-14-pro-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Quick Ways to Transfer Contacts from Apple iPhone 14 Pro to iPhone With/Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transform-your-footage-with-premiere-pros-advanced-techniques-for-360-editing/"><u>In 2024, Transform Your Footage with Premiere Pro's Advanced Techniques for 360° Editing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/metodos-eficaces-para-eliminar-de-manera-segura-un-pendrive-usb-en-windows-10-una-guia-paso-a-paso/"><u>Métodos Eficaces Para Eliminar De Manera Segura Un Pendrive USB en Windows 10: Una Guía Paso a Paso</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/rescatando-tu-informacion-importante-usando-diskpart-y-la-herramienta-limpiadora/"><u>Rescatando Tu Información Importante Usando Diskpart Y La Herramienta Limpiadora</u></a></li>
 </ul></div>
 
