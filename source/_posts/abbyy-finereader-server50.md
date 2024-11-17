@@ -1,7 +1,7 @@
 ---
 title: ABBYY FineReader Serverで過去50年間の文書検索能力向上
-date: 2024-10-26T19:22:34.898Z
-updated: 2024-10-31T23:20:37.006Z
+date: 2024-11-12T04:53:10.886Z
+updated: 2024-11-16T20:53:54.105Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fa466aca4e0117af9ede098ff5beff07b4b780680a77e468de6afed425dad313.jpg
@@ -19,13 +19,6 @@ Construction | Engineering & Manufacturing | Digital Archiving | Document Manage
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 過去50年分のドキュメントの検索性を高めるため ABBYY FineReader Serverを導入
 
 製造 | デジタルアーカイブ 
@@ -37,10 +30,16 @@ Construction | Engineering & Manufacturing | Digital Archiving | Document Manage
 ![千代田化工建設](https://static4.abbyy.com/abbyycommedia/23841/logo-chiyoda-small.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | 氏名     | 千代田化工建設                                             |
@@ -119,19 +118,33 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 
 [![ABBYY FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Server](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ドキュメントアーカイブ <small>ENG</small>](https://static1.abbyy.com/abbyycommedia/14355/5-document-archiving.jpg)](https://tools.techidaily.com/abbyy/products/) [ドキュメントアーカイブ ENG](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static4.abbyy.com/abbyycommedia/23844/chiyoda-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/23839/customer-story-chiyoda-ja.pdf "PDF版") [PDF版](https://static4.abbyy.com/abbyycommedia/23839/customer-story-chiyoda-ja.pdf "PDF版") 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://static4.abbyy.com/abbyycommedia/23839/customer-story-chiyoda-ja.pdf "PDF版") 
@@ -143,19 +156,6 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 [ABBYYについて](https://tools.techidaily.com/abbyy/products/) 
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
 
@@ -178,22 +178,19 @@ FineReader Serverを使い、ドキュメントの検索効率が大幅に向上
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-decoding-the-impact-of-instagrams-algorithm-shifts/"><u>[New] Decoding the Impact of Instagram's Algorithm Shifts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-snicker-showcase-top-10-tweets/"><u>[New] Snicker Showcase Top 10 Tweets</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-evolved-video-editing-experience-with-movavi-pro-2024/"><u>[New] The Evolved Video Editing Experience with Movavi Pro 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-ultimate-guide-resolving-issues-with-non-functioning-iphone-videos-across-various-scenarios/"><u>1. Ultimate Guide: Resolving Issues with Non-Functioning iPhone Videos Across Various Scenarios</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/addressing-screenshake-phenomenon-in-lenovo/"><u>Addressing Screenshake Phenomenon in Lenovo</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-installer-un-disque-de-secours-sur-votre-lenovo-g5n-avec-loutil-de-recuperation-aomei-onekey/"><u>Comment Installer Un Disque De Secours Sur Votre Lenovo G5n Avec L’Outil De Récupération AOMEI OneKey</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-restaurer-des-fichiers-par-accident-en-onedrive/"><u>Comment Restaurer Des Fichiers Par Accident en OneDrive</u></a></li>
-<li><a href="https://games-able.techidaily.com/conquering-connectivity-chaos-start-lol-smoothly/"><u>Conquering Connectivity Chaos, Start LoL Smoothly</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effective-techniques-for-restoring-a-gpt-disk-a-comprehensive-guide/"><u>Effective Techniques for Restoring a GPT Disk: A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/erfahren-sie-die-besten-zwei-ansatze-um-ein-bootbares-windows-11-backup-zu-erstellen/"><u>Erfahren Sie Die Besten Zwei Ansätze, Um Ein Bootbares Windows-11-Backup Zu Erstellen</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Vivo V27 Pro | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/premiered-patterns-for-panzoid-creation-for-2024/"><u>Premiered Patterns for Panzoid Creation for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/superior-choice-top-ranked-crucial-ssd-migration-tool-fur-windows/"><u>Superior Choice: Top-Ranked Crucial SSD Migration Tool Für Windows</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/syma-107g-remote-controlled-helicopter-evaluation-budget-friendly-aviation-entertainment/"><u>Syma 107G Remote Controlled Helicopter Evaluation: Budget-Friendly Aviation Entertainment</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transfert-facile-dimages-entre-iphone-et-ordinateur-a-laide-du-cable-usb-etapes-detaillees-pour-les-debutants/"><u>Transfert Facile D'images Entre iPhone Et Ordinateur À L'aide Du Câble USB : Étapes Détaillées Pour Les Débutants</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-successfully-overcoming-vcenters-file-system-and-network-service-hurdles/"><u>Troubleshooting Guide: Successfully Overcoming vCenter's File System & Network Service Hurdles</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-strategies-for-igtv-on-facebook-integration/"><u>[New] 2024 Approved Strategies for IGTV on Facebook Integration</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-success-in-youtubes-creator-hub-for-2024/"><u>[New] Crafting Success in YouTube's Creator Hub for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-vrecorder-how-to-download-and-install/"><u>[New] In 2024, VRecorder - How to Download and Install</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/direct-interchange-cosmic-video-rehabilitation/"><u>Direct Interchange: Cosmic Video Rehabilitation</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-seamlessly-transform-mp3-videos-into-ipad-ready-formats-the-best-methods/"><u>How to Seamlessly Transform MP3 Videos Into iPad-Ready Formats - The Best Methods</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-motorola-edge-2023-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Motorola Edge 2023 Phones with/without a PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-6-destinations-to-shop-for-high-quality-laptops-online/"><u>Leading 6 Destinations to Shop for High-Quality Laptops Online</u></a></li>
+<li><a href="https://techtrends.techidaily.com/missing-essential-files-learn-how-to-fix-physxloaderdll-not-found-problems/"><u>Missing Essential Files? Learn How to Fix 'PhysXLoader.dll' Not Found Problems</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/outlook-ost/"><u>Outlook OST開啟失敗？！推薦的五種修正方式</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/system-restore-auf-windows-10-uber-die-eingabeaufforderung-effiziente-losungsmethoden-fur-computerprobleme/"><u>System Restore Auf Windows 10 Über Die Eingabeaufforderung: Effiziente Lösungsmethoden Für Computerprobleme</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transfert-dos-et-fichiers-facile-avec-le-meilleur-logiciel-pour-windows-11-solution-de-transfert-ultime/"><u>Transfert D'OS Et Fichiers Facile Avec Le Meilleur Logiciel Pour Windows 11: Solution De Transfert Ultime</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-constant-pc-crashing-in-praey-for-the-gods/"><u>Troubleshooting Constant PC Crashing in Praey for the Gods</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/upgrading-to-faster-performance-swapping-hdd-for-ssd-in-acer-aspire-notebooks-with-various-windows-versions/"><u>Upgrading to Faster Performance: Swapping HDD for SSD in Acer Aspire Notebooks with Various Windows Versions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wiederherstellung-von-beschadigten-oder-geloschten-dateien-einfach-and-schnell/"><u>Wiederherstellung Von Beschädigten Oder Gelöschten Dateien: Einfach & Schnell</u></a></li>
 </ul></div>
 

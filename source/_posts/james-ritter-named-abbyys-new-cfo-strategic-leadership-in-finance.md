@@ -1,7 +1,7 @@
 ---
 title: "James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance"
-date: 2024-10-28T19:35:02.180Z
-updated: 2024-11-01T04:29:17.831Z
+date: 2024-11-12T00:47:02.859Z
+updated: 2024-11-17T02:32:45.138Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91d802feac954d9a2b7218b9de82c000f339447018e6cb53073b6a41a90f92e5.jpg
@@ -28,10 +28,10 @@ Ritter commented, “ABBYY is well positioned to deliver next generation, no cod
 Ritter has held several leadership positions with global organizations including WPP, Ferrovial, and BigCommerce. He originally joined ABBYY as VP of Finance in June 2021, and prior to joining ABBYY, was the VP Controller at Accruent, an international enterprise software organization. Ritter is a Certified Public Accountant with an accounting degree from Rowan University and is actively pursuing an MBA at Boston University Questrom School of Business. He resides in Texas.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -41,10 +41,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -52,10 +52,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -82,16 +82,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-perfecting-mp4-segments-best-tools-for-mac-filmmakers/"><u>[New] 2024 Approved Perfecting MP4 Segments Best Tools For Mac Filmmakers</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-giggle-genesis-conceptualizing-7-funny-youtube-sessions/"><u>[New] Giggle Genesis Conceptualizing 7 Funny YouTube Sessions</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-animators-artistry-archives/"><u>[Updated] Animator's Artistry Archives</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-how-to-restore-irretrievably-erased-documents-in-your-google-drive-a-comprehensive-guide/"><u>1. How to Restore Irretrievably Erased Documents in Your Google Drive: A Comprehensive Guide</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-rhythmic-revelations-adding-audio-to-your-vimeo-videos/"><u>2024 Approved Rhythmic Revelations Adding Audio to Your Vimeo Videos</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/best-ergonomic-chair-picks-for-a-healthy-back-the-top-5-selections-of-2022-reviewed-by-zdnets-industry-leaders/"><u>Best Ergonomic Chair Picks for a Healthy Back: The Top 5 Selections of 2022 Reviewed by ZDNet's Industry Leaders</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fehlerbehebung-fur-windows-problem-beim-starten-der-systemwiederherstellung/"><u>Fehlerbehebung Für Windows: Problem Beim Starten Der Systemwiederherstellung</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-quick-ways-to-transfer-contacts-from-apple-iphone-14-pro-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Quick Ways to Transfer Contacts from Apple iPhone 14 Pro to iPhone With/Without iTunes | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-transform-your-footage-with-premiere-pros-advanced-techniques-for-360-editing/"><u>In 2024, Transform Your Footage with Premiere Pro's Advanced Techniques for 360° Editing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/metodos-eficaces-para-eliminar-de-manera-segura-un-pendrive-usb-en-windows-10-una-guia-paso-a-paso/"><u>Métodos Eficaces Para Eliminar De Manera Segura Un Pendrive USB en Windows 10: Una Guía Paso a Paso</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/rescatando-tu-informacion-importante-usando-diskpart-y-la-herramienta-limpiadora/"><u>Rescatando Tu Información Importante Usando Diskpart Y La Herramienta Limpiadora</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-straightforward-storyline-outline/"><u>[Updated] In 2024, Straightforward Storyline Outline</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-maximize-iphone-visual-capture-selective-photo-and-video-tools/"><u>2024 Approved Maximize iPhone Visual Capture Selective Photo & Video Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/el-dominance-plan-studio-protocol-vs-beta-update/"><u>Channel Dominance Plan Studio Protocol Vs. Beta Update</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/clearing-up-misconceptions-about-sd-card-capacity-errors-expert-tips-for-quick-fixes/"><u>Clearing Up Misconceptions About SD Card Capacity Errors - Expert Tips for Quick Fixes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/come-installare-o-riparare-il-master-boot-record-su-uefi-con-windows-gpt-per-windows-1187/"><u>Come Installare O Riparare Il Master Boot Record Su UEFI Con Windows (GPT) per Windows 11/8/7</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/efficient-data-transfer-with-seagates-cloning-tool-moving-from-hdd-to-solid-state/"><u>Efficient Data Transfer with Seagate's Cloning Tool: Moving From HDD to Solid State</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/estrategia-para-la-creacion-de-copias-de-seguridad-incrementales-y-diferenciales-en-windows-server/"><u>Estrategia Para La Creación De Copias De Seguridad Incrementales Y Diferenciales en Windows Server</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/guide-complet-demarrer-linstallation-en-mode-sans-echec-de-windows-server-2019/"><u>Guide Complet: Démarrer L'Installation en Mode Sans Échec De Windows Server 2019</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-recover-lost-and-erased-folders-in-windows-1011-efficiently-and-effectively/"><u>How to Recover Lost and Erased Folders in Windows 10/11 Efficiently & Effectively</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-guide-to-no-cost-high-quality-srt-editors/"><u>The Ultimate Guide to No-Cost, High-Quality Srt Editors</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1424550-9781780283579-the-watkins-dictionary-of-symbols/"><u>The Watkins Dictionary of Symbols | Free Book</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tired-of-waiting-for-chatgpts-official-release-here-are-fantastic-free-alternatives/"><u>Tired of Waiting for ChatGPT's Official Release? Here Are Fantastic Free Alternatives</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/transform-avi-files-into-gifs-with-filmora-on-windowsmacos-for-2024/"><u>Transform AVI Files Into GIFs with Filmora on Windows/MacOS for 2024</u></a></li>
 </ul></div>
 

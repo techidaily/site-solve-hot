@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhancing Your Site with Smart Tracking Technology"
-date: 2024-10-28T03:45:02.395Z
-updated: 2024-10-31T22:29:27.279Z
+date: 2024-11-13T22:39:03.734Z
+updated: 2024-11-16T17:34:03.946Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/650f46c8db195bf984ecb592d4a15814bfd7afa085c1775706e382ffb2952424.jpg
@@ -28,10 +28,10 @@ Organizations are seeing the promise of consumer-AI capabilities within the ente
 The biggest challenge to achieving quick results, according to Big Four firm PwC, is the availability of large volumes of labeled data to train the system. Invoices are a prime example of large volumes of labeled data, and represent an opportune area to initiate AI-enabling technology. Here are tangible ways AI can enhance accounts payable and show immediate benefits.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Beyond Invoice Automation
@@ -41,10 +41,10 @@ Eliminating paper is the first step towards the digital transformation of AP. Ma
 The next generation of machine learning in AP includes the intelligent extraction of line and field data that incorporates the understanding of the overall structure of an invoice. Machine learning technology allows the system to recognize patterns, such as when a certain general ledger code is applied to a certain invoice; and learn overall structure of an invoice in order to extract all the meaningful data automatically. The system will learn these patterns and will suggest codes to the users coding them or find all the totals, amounts, and details contained within the invoice. AI recognizes the result and knows how to process, validate and recommend this data. This will reduce the amount of time AP spends on keying and correcting data.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Lean IT support
@@ -66,10 +66,10 @@ Integrating AI within accounts payable (or in any part of the enterprise) is pos
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Bruce Orcutt
@@ -81,10 +81,10 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -150,19 +150,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-deciphering-facebooks-iconic-blue-emoji-usage-in-messages-for-2024/"><u>[New] Deciphering Facebook's Iconic Blue Emoji Usage in Messages for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-the-possibility-of-monthly-youtube-income/"><u>[Updated] Exploring the Possibility of Monthly YouTube Income</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-visualize-your-vision-embrace-win11s-movie-maker-capabilities-for-2024/"><u>[Updated] Visualize Your Vision Embrace Win11's Movie Maker Capabilities for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-effortless-youtube-playback-downloading-content-to-idevices/"><u>2024 Approved Effortless Youtube Playback Downloading Content to iDevices</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-structuring-stimulating-podcast-trailers/"><u>2024 Approved Structuring Stimulating Podcast Trailers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/backup-or-clone-exploring-key-differences-in-data-preservation-strategies/"><u>Backup or Clone? Exploring Key Differences in Data Preservation Strategies</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-recupere-ton-informations-dun-ordinateur-casse/"><u>Comment Récupère-Ton Informations D’un Ordinateur Casse</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/complete-guide-to-retrieving-lost-files-efficient-strategies-for-acer-aspire-hard-drive-recovery/"><u>Complete Guide to Retrieving Lost Files: Efficient Strategies for Acer Aspire Hard Drive Recovery</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/does-starting-fresh-with-steam-mean-losing-your-game-library/"><u>Does Starting Fresh with Steam Mean Losing Your Game Library?</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/introducing-scrolling-upgrade-add-a-source-scrollbar-feature-in-your-emeditor-experience/"><u>Introducing Scrolling Upgrade: Add a Source Scrollbar Feature in Your EmEditor Experience</u></a></li>
-<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-oneplus-nord-ce-3-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass OnePlus Nord CE 3 5G FRP</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/the-ultimate-guide-to-choosing-superior-sk-hynix-ssd-copying-programs-for-effortless-system-cloning/"><u>The Ultimate Guide to Choosing Superior SK Hynix SSD Copying Programs for Effortless System Cloning</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-tips-for-setting-up-vsphere-replication-ensuring-virtual-machine-safety/"><u>Top Tips for Setting Up vSphere Replication: Ensuring Virtual Machine Safety</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windows-11-top8/"><u>Windows 11 インストール後、ディスク容量が完全に消費される問題とその改善方法を解説する - TOP8ソリューション</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-link-up-titles-video-upload-to-twittertumblr/"><u>[New] 2024 Approved Link-Up Titles Video Upload to Twitter/Tumblr</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-tailoring-your-archive-strategy-on-instagram/"><u>[Updated] Tailoring Your Archive Strategy on Instagram</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-thriving-in-the-streaming-scene-overcoming-subscriber-limitations/"><u>[Updated] Thriving in the Streaming Scene Overcoming Subscriber Limitations</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-zooming-into-success-the-essential-blueprint-for-producing-high-quality-audio-on-video-platforms-for-2024/"><u>[Updated] Zooming Into Success The Essential Blueprint for Producing High-Quality Audio on Video Platforms for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-unlock-your-macs-hidden-airdrop-settings-how-to-enable-visibility/"><u>1. Unlock Your Mac's Hidden AirDrop Settings: How to Enable Visibility</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/das-umfassende-handbuch-zur-wiederherstellung-fehlender-dateien-unter-windows/"><u>Das Umfassende Handbuch Zur Wiederherstellung Fehlender Dateien Unter Windows</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723009943367-exclusive-sniper-rounds-and-weaponry-now-available-in-cod-mw-fps-drop/"><u>Exclusive Sniper Rounds and Weaponry Now Available in Cod: MW FPS Drop</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-move-your-samsung-information-via-activated-usb-device-for-booting/"><u>How to Move Your Samsung Information via Activated USB Device for Booting</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-apple-iphone-14-pro-max-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for Apple iPhone 14 Pro Max With 7 Methods | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-precision-editing-unveiled-harnessing-the-potential-of-ps-background-erasure-feature/"><u>In 2024, Precision Editing Unveiled Harnessing the Potential of PS Background Erasure Feature</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-quick-guide-to-free-online-facebook-video-to-mp4-converter-hd-tutorial/"><u>In 2024, Quick Guide to Free Online Facebook Video to MP4 Converter (HD) Tutorial</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/set-up-windows-defender-firewall-with-specific-rules-that-limit-access-to-your-nas-ports-such-as-smb-default-is-445-rdp-3389-etc-only-from-authorized-device167/"><u>Set up Windows Defender Firewall with Specific Rules that Limit Access to Your NAS Ports, Such as SMB (Default Is 445), RDP (3389), Etc., Only From Authorized Devices or IP Ranges.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/solution-found-failed-usb-backup-on-windows-troubleshooting-steps-for-win11-win10-win8-and-win7/"><u>Solution Found: Failed USB Backup on Windows - Troubleshooting Steps for Win11, Win10, Win8 & Win7</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-videopad-review-a-detailed-look-at-its-video-editing-capabilities/"><u>Updated In 2024, Videopad Review A Detailed Look at Its Video Editing Capabilities</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/western-digital-hdd/"><u>Western Digital HDDコピーツール:信頼性の高いディスク複製ソフトウェアリスト</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-11-tipps-fur-die-synchronisation-von-verzeichnissen-uber-ein-netzlaufwerk-methode-eins-und-methode-zwei/"><u>Windows 11-Tipps Für Die Synchronisation Von Verzeichnissen Über Ein Netzlaufwerk (Methode Eins Und Methode Zwei)</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-easy-transfer-pas-plus-de-version-pour-windows-10/"><u>Windows Easy Transfer: Pas Plus De Version Pour Windows 10</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "D'Abbyy Welcomes Scott Opitz in Top Executive Positions: Now CTO & CPO"
-date: 2024-10-13T19:33:14.035Z
-updated: 2024-10-14T16:32:33.979Z
+date: 2024-11-13T23:22:29.535Z
+updated: 2024-11-17T02:36:11.392Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/71650fe6339aad7562a7ef4730d038972f077e65bec2cbda43e5ae4d18379e11.jpg
@@ -32,10 +32,10 @@ Scott Opitz a rejoint ABBYY en 2019, lors de l’[acquisition de TimelinePI](htt
 Scott a également occupé plusieurs fonctions de direction au sein d’entreprises publiques et privées. Il est inventeur et détient 13 brevets et demandes de brevets relatifs aux technologies de Process Intelligence.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -45,10 +45,10 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -56,10 +56,10 @@ ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont r�
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -85,14 +85,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-maximize-your-home-studio-webcam-recorder-essentials/"><u>[New] In 2024, Maximize Your Home Studio - WebCam Recorder Essentials</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-transforming-your-igtv-presence-with-new-covers-for-2024/"><u>[Updated] Transforming Your IGTV Presence with New Covers for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-crafting-effective-affordable-youtube-intros-with-templates/"><u>2024 Approved Crafting Effective, Affordable YouTube Intros with Templates</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/downloading-the-latest-brother-hl2280dw-driver-software-for-all-windows-operating-systems/"><u>Downloading the Latest Brother HL2280DW Driver Software for All Windows Operating Systems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimierung-der-datenaufnahme-wie-spezielle-ki-die-prozesse-revolutioniert-insights-aus-dem-abbey-blog/"><u>Optimierung Der Datenaufnahme: Wie Spezielle KI Die Prozesse Revolutioniert – Insights Aus Dem ABBEY-Blog</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-for-superior-data-collection-and-analysis/"><u>Optimized with Cookiebot Technology for Superior Data Collection and Analysis</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimizing-your-website-mastering-the-art-of-effective-pages/"><u>Optimizing Your Website: Mastering the Art of Effective Pages</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/rebooting-baseline-configurations-and-improving-time-management-techniques-insights-by-abbyy-professionals/"><u>Rebooting Baseline Configurations & Improving Time Management Techniques - Insights by ABBYY Professionals</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/spotlight-on-whats-not-there-a-critical-review-of-samsung-galaxy-tab-a-2020s-key-omissions/"><u>Spotlight on What's Not There - A Critical Review of Samsung Galaxy Tab A (2020)'S Key Omissions</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-2-easy-ways-to-record-google-meet/"><u>[Updated] 2024 Approved 2 Easy Ways to Record Google Meet</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/best-budget-laptop-picks-under-1k-in-depth-expert-analysis-by-zdnet/"><u>Best Budget Laptop Picks (Under $1K) - In-Depth Expert Analysis by ZDNET</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-earning-potential-on-youtube-shorts/"><u>Boosting Earning Potential on YouTube Shorts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-honor-100-pro-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Honor 100 Pro</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigate-to-the-driver-tab-and-select-either-update-driver-or-roll-back-driver-if-you-see-the-roll-back-option-this-indicates-that-a-recent-update-may-have-211/"><u>Navigate to the Driver Tab and Select Either Update Driver or Roll Back Driver. If You See the Roll Back Option, This Indicates that a Recent Update May Have Caused the Problem, so Try Rolling Back First.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-budsplus-unveiled-a-comprehensive-handheld-trial-report/"><u>Samsung Galaxy Buds+ Unveiled: A Comprehensive Handheld Trial Report</u></a></li>
+<li><a href="https://extra-information.techidaily.com/strategic-planning-for-effective-virtual-meetings-on-win11/"><u>Strategic Planning for Effective Virtual Meetings on Win11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/trasformare-i-video-mpeg-in-formato-mp4-online-gratuito-con-movavi/"><u>Trasformare I Video MPEG in Formato MP4 Online Gratuito Con Movavi</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unsicher-ob-bilder-von-deinem-pc-heruntergeladen-werden-konnen-hier-ist-die-losung/"><u>Unsicher, Ob Bilder Von Deinem PC Heruntergeladen Werden Können? Hier Ist Die Lösung!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wie-man-daten-sichert-uberblick-uber-den-datentragerwechselschutz-in-windows-betriebssystemen-111087/"><u>Wie Man Daten Sichert: Überblick Über Den Datenträgerwechselschutz in Windows Betriebssystemen (11/10/8/7)</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-server-2008-r2-eol-essential-actions-required-next-steps/"><u>Windows Server 2008 R2 EOL: Essential Actions Required | Next Steps</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728465073848-windows-10hdd/"><u>ファイルバックアップ:Windows 10環境下で外付けHDDへの転送方法</u></a></li>
 </ul></div>
 

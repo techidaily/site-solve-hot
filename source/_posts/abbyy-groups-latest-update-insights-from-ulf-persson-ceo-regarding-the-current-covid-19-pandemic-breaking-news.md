@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News"
-date: 2024-10-26T22:38:09.879Z
-updated: 2024-10-31T20:01:00.017Z
+date: 2024-11-11T23:42:31.373Z
+updated: 2024-11-16T18:28:16.768Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5404a87cd8723307a9d0e6c73b4b785c1ac7bfa81bbe5b64a2be76707a27a2f.jpg
@@ -45,25 +45,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-classroom-mastery-the-prime-10-audio-visual-aids-for-instructors/"><u>[Updated] 2024 Approved Classroom Mastery The Prime 10 Audio-Visual Aids for Instructors</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-transform-your-content-expert-tips-for-bokeh-on-social-media/"><u>[Updated] 2024 Approved Transform Your Content Expert Tips for Bokeh on Social Media</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-top-10-tips-to-upgrade-your-obs-mobile-broadcasting/"><u>2024 Approved Top 10 Tips to Upgrade Your OBS Mobile Broadcasting</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/geautomatiseerde-instelling-van-hoevesteunen-oplossingen-voor-besekt-apps-in-windows-1011/"><u>Geautomatiseerde Instelling Van Hoevesteunen: Oplossingen Voor Besekt Apps in Windows 10/11</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-videos-on-nokia-xr21-by-fonelab-android-recover-video/"><u>How to restore wiped videos on Nokia XR21</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-oppo-find-x7-ultra-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Oppo Find X7 Ultra</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/movavi-mp4m4a/"><u>Movavi MP4/M4A フリーオンライン変換サービス - 簡単ガイド</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/no-cost-strategies-for-stellar-data-resilience-and-instant-recovery-solutions/"><u>No-Cost Strategies for Stellar Data Resilience and Instant Recovery Solutions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/push-past-filmora-discover-the-best-tablets-for-visual-excellence-for-2024/"><u>Push Past Filmora - Discover the Best Tablets for Visual Excellence for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-vmwares-triad-how-vsphere-vcenter-and-esxi-differently-serve-your-virtualization-needs/"><u>Understanding VMware's Triad: How vSphere, vCenter, and ESXi Differently Serve Your Virtualization Needs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ursachen-und-behebung-des-fehlers-error-code-0x80070643-installation-fehlgeschlagen-kompakte-anleitungen-fur-windows-benutzer/"><u>Ursachen Und Behebung Des Fehlers 'Error Code 0X80070643 - Installation Fehlgeschlagen': Kompakte Anleitungen Für Windows-Benutzer</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windows-10-datenwiederherstellung-mit-versionierung-vergleich-zwischen-nativem-feature-und-aomei-backupper/"><u>Windows 10 Datenwiederherstellung Mit Versionierung: Vergleich Zwischen Nativem Feature Und AOMEI Backupper</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728485389202-windows-105/"><u>Windows 10上最佳5款免费光盘截图工具</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-tips-on-amassing-stock-art-resources/"><u>[Updated] Expert Tips on Amassing Stock Art Resources</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-smartphone-security-showdown-iphone-x-vs-galaxy-recognition-prowess-for-2024/"><u>[Updated] Smartphone Security Showdown IPhone X Vs. Galaxy Recognition Prowess for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-cutting-edge-audio-capture-gear-top-7-list-2023-edition/"><u>2024 Approved Cutting-Edge Audio Capture Gear Top 7 List, 2023 Edition</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-video-editing-efficiency-with-professional-prores-file-conversion-from-mts-source/"><u>Enhance Video Editing Efficiency with Professional ProRes File Conversion From MTS Source</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/five-proven-fixes-for-when-your-onedrive-videos-wont-start-step-by-step-instructions/"><u>Five Proven Fixes for When Your OneDrive Videos Won't Start: Step-by-Step Instructions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/hd-video-converter-factory-pro-50/"><u>HD Video Converter Factory Pro - 割引！50%オフの特別価格で獲得</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-securely-keep-your-wistia-videos-for-future-use/"><u>How To Securely Keep Your Wistia Videos For Future Use</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-xiaomi-redmi-note-13-pro-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Xiaomi Redmi Note 13 Pro 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-tecno-spark-10-4g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Tecno Spark 10 4G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-vivo-v29-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Vivo V29 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/nba-2k21-fixes-and-solutions-how-to-stop-pc-crashing/"><u>NBA 2K21 Fixes and Solutions: How to Stop PC Crashing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/no-luck-with-roku-app-on-your-smart-tv-unlock-immediate-solutions-now/"><u>No Luck with Roku App on Your Smart TV? Unlock Immediate Solutions Now!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/page-located-no-longer-missing-discover-the-new-route-with-wonderfox/"><u>Page Located - No Longer Missing! | Discover the New Route with WonderFox</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/quick-and-easy-mp3-audio-adjuster-instantly-boost-or-reduce-your-music-volume/"><u>Quick & Easy MP3 Audio Adjuster - Instantly Boost or Reduce Your Music Volume</u></a></li>
+<li><a href="https://win-answers.techidaily.com/samurai-warriors-5-stability-issues-fixes-and-solutions-for-pc-users/"><u>Samurai Warriors 5 Stability Issues: Fixes and Solutions for PC Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-playback-of-media-files-across-various-platforms-avoid-compatibility-woes/"><u>Seamless Playback of Media Files Across Various Platforms - Avoid Compatibility Woes</u></a></li>
+<li><a href="https://common-error.techidaily.com/the-ultimate-guide-to-dealing-with-freezing-file-explorer-issues-on-windows-10/"><u>The Ultimate Guide to Dealing with Freezing File Explorer Issues on Windows 10</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

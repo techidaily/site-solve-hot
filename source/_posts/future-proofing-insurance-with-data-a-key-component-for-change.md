@@ -1,7 +1,7 @@
 ---
 title: "Future-Proofing Insurance with Data: A Key Component for Change"
-date: 2024-10-25T23:06:45.209Z
-updated: 2024-10-31T17:19:38.736Z
+date: 2024-11-10T19:50:00.368Z
+updated: 2024-11-17T07:05:22.492Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c9c3286561c0cb162a6f36b6b19f491a65ddd3daf244f3f3d4ecee0cf92b0349.jpg
@@ -19,26 +19,26 @@ French
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25106/04-lindaameur-198x198.png)
 
 <!-- affiliate ads begin -->
-<span id="1531882">
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1424528">
 					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Linda Ameur
@@ -47,18 +47,18 @@ Directrice Commerciale, **ABBYY France**
 
 ![67 Stephanebarde 198X198](https://static3.abbyy.com/abbyycommedia/31970/67-stephanebarde-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Stéphane Barde
 
 Directeur data et digital, **Groupe MALAKOFF HUMANIS**
 
 ![69 Franсoisely 198X198](https://static4.abbyy.com/abbyycommedia/32016/69-franсoisely-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Françoise Ly
 
@@ -66,22 +66,48 @@ Head of Digital Transformation, **GROUPAMA**
 
 ![68 Franсoislimoge 198X198](https://static5.abbyy.com/abbyycommedia/32018/68-franсoislimoge-198x198.png)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### François Limoge
 
 Rédacteur en chef, **L’Argus de l'Assurance**
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Description
 
 D’une data simple à « smart », le chemin semble long en assurance pour acquérir un processus de transformation efficient. Le plein potentiel serait abouti lorsque cette smart data est utilisée pour repenser les processus existants ou mieux encore, en définir de nouveaux. L’entreprise intelligente serait alors celle qui saura utiliser son capital métier, la mémoire et l’exploitation de « l’acquis » : données et process.
 
 La maitrise de la donnée est un enjeu stratégique aujourd’hui en assurance.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Les sujets :
 
@@ -91,27 +117,7 @@ Nous vous proposons, par ce rendez-vous proposé par L’Argus de l’assurance 
 * Comment digitaliser les process pour une UX optimisée ?
 * L’analyse de donnée, nouvel outil d’aide à la décision pour mieux piloter le changement ?
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Regardez maintenant
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Get in touch with us
 
@@ -189,24 +195,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unlocking-rokus-potential-with-facebook-live-streaming/"><u>[New] In 2024, Unlocking Roku's Potential with Facebook Live Streaming</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-step-by-step-guide-to-downloading-igtv-videos-on-pcmac-os-for-2024/"><u>[New] Step-by-Step Guide to Downloading IGTV Videos on PC/Mac OS for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-does-instant-subscription-strategy-improve-user-engagement-for-2024/"><u>[Updated] Does Instant Subscription Strategy Improve User Engagement for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-pioneers-of-virtual-reality-top-vr-headsets-on-pc-for-2024/"><u>[Updated] Pioneers of Virtual Reality Top VR Headsets on PC for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728471772586-windows-114/"><u>如何快速修正Windows 11無限再次開機錯誤？4位方法加一項重要提示</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/como-clonar-un-disco-duro-de-500-gb-en-un-disco-ssd-de-nuevos-250-gb-usando-la-mejor-herramienta-gratuita/"><u>Cómo Clonar Un Disco Duro De 500 GB en Un Disco SSD De Nuevos 250 GB Usando La Mejor Herramienta Gratuita</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/discover-the-elite-a-guide-to-the-most-impressive-17-inch-laptops/"><u>Discover the Elite: A Guide to the Most Impressive 17-Inch Laptops</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effective-techniques-for-unformatted-data-retrieval-from-a-usb-flash-drive/"><u>Effective Techniques for Unformatted Data Retrieval From a USB Flash Drive</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effiziente-strategien-zur-uberwindung-von-datenubertragungsproblemen-bei-der-samsung-datenkopie/"><u>Effiziente Strategien Zur Überwindung Von Datenübertragungsproblemen Bei Der Samsung-Datenkopie</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/einfach-lernen-wie-sie-eine-usb-drive-reparatur-erzeugen-konnen-um-windows-11-zu-beheben/"><u>Einfach Lernen, Wie Sie Eine USB-Drive-Reparatur Erzeugen Können, Um Windows 11 Zu Beheben</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-imo-messaging-service-insights-and-analysis-for-users/"><u>Evaluating IMo Messaging Service: Insights and Analysis for Users</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-infinix-gt-10-pro-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Infinix GT 10 Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/les-5-meilleurs-substituts-pour-la-recuperation-de-donnees-par-stellar-un-comparison-exhaustive/"><u>Les 5 Meilleurs Substituts Pour La Récupération De Données Par Stellar: Un Comparison Exhaustive</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/system-restore-auf-windows-10-uber-die-eingabeaufforderung-effiziente-losungsmethoden-fur-computerprobleme/"><u>System Restore Auf Windows 10 Über Die Eingabeaufforderung: Effiziente Lösungsmethoden Für Computerprobleme</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transfert-dos-et-fichiers-facile-avec-le-meilleur-logiciel-pour-windows-11-solution-de-transfert-ultime/"><u>Transfert D'OS Et Fichiers Facile Avec Le Meilleur Logiciel Pour Windows 11: Solution De Transfert Ultime</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-persistent-freezing-issues-in-call-of-duty-warzone-20/"><u>Troubleshooting Persistent Freezing Issues in Call of Duty: Warzone 2.0</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/wiederherstellung-von-beschadigten-oder-geloschten-dateien-einfach-and-schnell/"><u>Wiederherstellung Von Beschädigten Oder Gelöschten Dateien: Einfach & Schnell</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/1728464554689-windows-11-5/"><u>Windows 11文件恢復入门指南 - 5種無需費用錢的方法從删除中把握到你的文件</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/your-companion-guide-navigating-the-world-of-mobizen-recorders-for-2024/"><u>Your Companion Guide Navigating the World of Mobizen Recorders for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-how-do-green-screens-work-a-complete-beginners-guide-for-2024/"><u>[New] How Do Green Screens Work? [A Complete Beginner's Guide] for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-best-buddy-list-in-the-virtual-realm-games/"><u>[Updated] Best Buddy List in the Virtual Realm Games</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-revolutionize-your-workflow-best-free-3d-text-files/"><u>[Updated] Revolutionize Your Workflow Best FREE 3D Text Files</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-getting-started-with-periscope-is-it-free-sign-up-process/"><u>2024 Approved Getting Started with Periscope Is It Free? Sign-Up Process</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/4-ways-to-unlock-apple-iphone-8-plus-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>4 Ways to Unlock Apple iPhone 8 Plus to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/5-outstanding-no-cost-tools-to-save-your-favorite-youtube-content-on-windows-ten/"><u>5 Outstanding No-Cost Tools to Save Your Favorite YouTube Content on Windows # Ten</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-install-guide-download-compatible-logitech-g35-driver-for-windows-7-8-and-10/"><u>Easy Install Guide: Download Compatible Logitech G35 Driver for Windows 7, 8 & 10</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fast-conversion-guide-transforming-webm-files-into-mkv-format/"><u>Fast Conversion Guide: Transforming WebM Files Into MKV Format</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-tecno-spark-10-5g-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Tecno Spark 10 5G Phone Network-Ready</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mov-file-conversion-step-by-step-guide-to-transforming-into-a-3gp-format-on-your-computer/"><u>MOV File Conversion: Step-by-Step Guide to Transforming Into a 3GP Format on Your Computer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/region-free-dvd-player-setup-enjoy-us-movies-in-the-uk-without-any-hassle/"><u>Region-Free DVD Player Setup: Enjoy US Movies in the UK Without Any Hassle</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/simple-guide-to-bisecting-movies-for-every-device-desktops-laptops-ios-and-android-systems/"><u>Simple Guide to Bisecting Movies for Every Device: Desktops, Laptops, iOS and Android Systems</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/six-effective-methods-for-retrieving-items-from-the-recycle-bin/"><u>Six Effective Methods for Retrieving Items From the Recycle Bin</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-flawlessly-turn-avchd-content-into-prores-files/"><u>Step-by-Step Guide to Flawlessly Turn AVCHD Content Into ProRes Files</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-tutorial-on-seamlessly-changing-m4v-videos-to-webm-for-online-use/"><u>Step-by-Step Tutorial on Seamlessly Changing M4V Videos to WebM for Online Use</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unveiling-the-mystery-a-comprehensive-guide-to-apples-freeform-app-usage/"><u>Unveiling the Mystery: A Comprehensive Guide to Apple’s Freeform App Usage</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1726028147002-xperia/"><u>Xperiaデバイスで動画再生に失敗する方法: パワーオフから回復</u></a></li>
 </ul></div>
 

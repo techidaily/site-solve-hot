@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Solutions: Enhance Your Website's Performance"
-date: 2024-10-25T20:03:20.035Z
-updated: 2024-11-01T03:24:15.202Z
+date: 2024-11-14T07:02:12.879Z
+updated: 2024-11-17T04:17:00.167Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d09e418474d756f5a8ffe485c9482504fd4de6868009955288d3f3888a8492e7.jpg
@@ -46,13 +46,6 @@ Not all processes can be monitored around the clock, even if that’s what organ
 
 This is where latency comes into play. In the wake of the 2008 recession, ABBYY worked with a bank that had to prove to regulators that they were handling investment portfolios with appropriate risk management. This process was very laborious, and even then, it couldn’t be 100% checked. Process monitoring, however, yielded immediate notifications. Monitoring is just another form of automation—it enforces a set of rules.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. To predict and anticipate outcomes
 
 There is one caveat to process monitoring – by the time you’re notified of a variation, it’s already history. In order to have a real opportunity to improve execution, you must know that something is likely to happen before it actually does.
@@ -60,6 +53,13 @@ There is one caveat to process monitoring – by the time you’re notified of a
 Process prediction gives IT professionals this insight, enabling them to know early in the life cycle that a deadline will be missed, or the outcome will be of some concern. If they know early enough, it can possibly be prevented. In cases of inevitability, the consequence can be mitigated.
 
 Customers might not immediately perceive the potential for value through process prediction, but once more analytics and predictions can be layered, it tends to grow at scale within organizations.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. To use simulation to inform optimization strategies
 
@@ -80,6 +80,13 @@ _Marty Pavlik, Doculabs_
 Think about the many interactions on any customer journey, especially with multiple steps, contact points, and of course, documents. These cases are overwhelmingly common and can be considered case management by nature. Some organizations seek a mythical “happy path,” or an approach to a process that is universally efficient and consistently optimal. Unfortunately, this simplicity is impractical; enterprises have to handle a great degree of variability while still delivering the necessary insights.
 
 As customers’ expectations for speed of service continue to rise, timeliness becomes more imperative. Even thirty minutes of latency can feel like an eternity, prompting enterprises to push toward real time. Time to value is critical.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ABBYY Named a Leader in the 2023 Gartner® Magic Quadrant™ for Process Mining Tools
 
@@ -103,13 +110,6 @@ Access the recording of this session from ABBYY’s Intelligent Automation Month
 
 ![02a-ScottOpitz-99x99.png](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -121,10 +121,16 @@ A 30-year veteran of the computer industry, Scott has founded and built companie
 In previous positions, Scott served as Senior Vice President, Worldwide Marketing & Business Development for webMethods (now Software AG), where he was responsible for webMethods’ marketing, business development, and strategic product planning. He joined webMethods as a result of its acquisition of IntelliFrame Corporation, a provider of data integration products and the InVista integrated workflow and BPM platform that he co-founded. Scott has also held numerous executive-level positions in technology, marketing and business development roles for public and private companies.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Additional Insights:
@@ -134,10 +140,10 @@ In previous positions, Scott served as Senior Vice President, Worldwide Marketin
 [![Customer Point of View: Highs and Lows of the Intelligent Automation Journey](https://static3.abbyy.com/abbyycommedia/38066/ds-191_customer-point-of-view_tn_848x444-1.jpg) **Customer Point of View: Highs and Lows of the Intelligent Automation Journey** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Intelligence Separates the Signal from the Noise in Unstructured Processes](https://static2.abbyy.com/abbyycommedia/38055/ds-191_how-process-intelligence_848x444.jpg) **How Process Intelligence Separates the Signal from the Noise in Unstructured Processes** Read more](https://www.abbyy.com/intelligent-enterprise/how-process-intelligence-separates-the-signal-from-the-noise-in-unstructured-processes/) [![New ABBYY Report: 80% Have Increased Intelligent Automation Budgets in Past Year](https://static3.abbyy.com/abbyycommedia/38053/ds-191_ai-team-player-survey_848x4442.jpg) **New ABBYY Report: 80% Have Increased Intelligent Automation Budgets in Past Year** Read more](https://tools.techidaily.com/abbyy/products/) [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Subscribe for updates
@@ -197,16 +203,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-anonymous-glimpse-into-fb-flashbacks-for-2024/"><u>[New] Anonymous Glimpse Into FB Flashbacks for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-advanced-setup-setting-up-an-elapsed-time-display-in-obs/"><u>[New] In 2024, Advanced Setup Setting up an Elapsed Time Display in OBS</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/best-top-6-classic-mario-adventures-on-your-pc/"><u>Best Top 6 Classic Mario Adventures on Your PC</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/fixing-handbrakes-dvd-scanning-issue-step-by-step-guide-to-resolving-cannot-scan-dvd-title-error/"><u>Fixing Handbrake's DVD Scanning Issue: Step-by-Step Guide to Resolving 'Cannot Scan DVD Title' Error</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-oppo-reno-8t-5g-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Oppo Reno 8T 5G in Minutes | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-macs-finest-the-leading-free-art-programs/"><u>In 2024, Mac's Finest - The Leading Free Art Programs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/protect-your-data-with-ease-a-beginners-tutorial-for-windows-file-backups/"><u>Protect Your Data with Ease: A Beginner's Tutorial for Windows File Backups</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ripristina-immagini-eliminate-sulla-tua-carta-sd-senza-utilizzare-applicazioni/"><u>Ripristina Immagini Eliminate Sulla Tua Carta SD Senza Utilizzare Applicazioni</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/schritt-fur-schritt-anleitung-zum-einschalten-von-computerschutz-fur-das-speichergerat/"><u>Schritt-Für-Schritt-Anleitung Zum Einschalten Von Computerschutz Für Das Speichergerät</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seamless-windows-10-auto-save-features-for-your-data-on-wd-my-cloud-storage-device/"><u>Seamless Windows 10 Auto-Save Features for Your Data on WD My Cloud Storage Device</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728464928227-windows-10/"><u>Windows 10中创建磁盘快照的基本方法</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-optimize-your-appletv-use-with-simple-steps-to-watch-facebook-content-for-2024/"><u>[Updated] Optimize Your AppleTV Use with Simple Steps to Watch Facebook Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-cutting-edge-notebooks-and-tools-to-elevate-your-editing-game/"><u>2024 Approved Cutting Edge Notebooks and Tools to Elevate Your Editing Game</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728494100772-windows-10windows-11/"><u>簡單操作！學習如何在只用二種步驟下，改裝Windows 10到電腦上的Windows 11.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/aomei-partition-assistant-professional-netzwerkbootfunktion/"><u>AOMEI Partition Assistant Professional - Netzwerkbootfunktion</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/como-actualizar-tu-computadora-de-hdd-a-ssd-en-windows-tutoriales-para-versiones-111087/"><u>Cómo Actualizar Tu Computadora De HDD a SSD En Windows: Tutoriales Para Versiones 11/10/8/7</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/easy-steps-to-retrieve-lost-shortcut-icons-from-the-hard-disk-in-various-versions-of-windows/"><u>Easy Steps to Retrieve Lost Shortcut Icons From the Hard Disk in Various Versions of Windows</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-xiaomi-redmi-note-13-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Xiaomi Redmi Note 13 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/free-download-compatible-drivers-and-setup-software-for-logitech-wireless-mice-on-windows-1087/"><u>Free Download: Compatible Drivers and Setup Software for Logitech Wireless Mice on Windows 10/8/7</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/free-online-avi-to-mpeg-converter-by-movavi-no-downloads-required/"><u>Free Online AVI to MPEG Converter by Movavi - No Downloads Required</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/guida-passo-passo-per-il-ripristino-dei-tuoi-dati-con-i-backup/"><u>Guida Passo-Passo per Il Ripristino Dei Tuoi Dati Con I Backup</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-synchronize-directories-across-dual-computers-using-windows-version-10-or-11/"><u>How to Synchronize Directories Across Dual Computers Using Windows (Version 10 or 11)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-samsung-galaxy-a15-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Samsung Galaxy A15 5G</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/quick-guide-to-twitter-videos-meet-aspect-ratio-criteria-for-2024/"><u>Quick Guide to Twitter Videos Meet Aspect Ratio Criteria for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/resolve-your-outlook-email-sending-problems-easily-using-these-five-effective-techniques/"><u>Resolve Your Outlook Email Sending Problems Easily Using These Five Effective Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-infinix-smart-8-hd-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Infinix Smart 8 HD to Gmail | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-shrink-your-videos-5-top-rated-free-compression-apps-for-ios/"><u>Updated 2024 Approved Shrink Your Videos 5 Top-Rated Free Compression Apps for iOS</u></a></li>
 </ul></div>
 

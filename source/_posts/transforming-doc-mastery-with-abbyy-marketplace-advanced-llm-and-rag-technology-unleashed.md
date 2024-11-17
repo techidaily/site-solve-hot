@@ -1,7 +1,7 @@
 ---
 title: "Transforming Doc Mastery with ABBYY Marketplace: Advanced LLM and Rag Technology Unleashed"
-date: 2024-10-25T21:00:59.034Z
-updated: 2024-11-01T03:27:57.666Z
+date: 2024-11-15T18:12:56.641Z
+updated: 2024-11-17T00:08:32.797Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0ebef61d0b2c8908bbc43dc1da12abaf166bb4f6229b3a45bf569455ab91d1f.jpg
@@ -42,16 +42,10 @@ Bruce Orcutt, Chief Marketing Officer d'ABBYY
 ABBYY Vantage assure une extraction, un traitement et une classification précis et efficaces des données opérationnelles clés dans les documents, permettant un traitement direct de 95 % des documents avec une précision de 99 %. En tant que première plateforme low-code pour l'IDP, Vantage offre une interface intuitive aux développeurs et réduit ainsi leur dépendance vis-à-vis des départements informatiques. Ils peuvent notamment intégrer facilement des compétences d'IA pré-entraînées, capables de traiter des documents de tout format, structure et langue, à tout moment.
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À PROPOS D’ABBYY
@@ -75,22 +69,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-unmatched-audio-and-video-elite-webcams-for-podcasting/"><u>[New] Unmatched Audio & Video Elite Webcams for Podcasting</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On HTC U23 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/error-404-unable-to-locate-your-requested-webpage/"><u>Error 404: Unable to Locate Your Requested Webpage</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-advice-fix-broken-letter-symbols-on-windows-11-computer-keyboards-efficiently/"><u>Expert Advice: Fix Broken Letter Symbols on Windows 11 Computer Keyboards Efficiently</u></a></li>
-<li><a href="https://windows11.techidaily.com/halt-high-contrast-customization-in-windows/"><u>Halt High Contrast Customization in Windows</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Oppo Reno 8T 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-creating-synergy-how-youtube-aligns-with-brands/"><u>In 2024, Creating Synergy How YouTube Aligns with Brands</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-tricks-to-faster-periscope-live-feeds/"><u>In 2024, Tricks to Faster Periscope Live Feeds</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-zoom-meeting-fundamentals-for-the-uninitiated/"><u>In 2024, Zoom Meeting Fundamentals for the Uninitiated</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/quick-tips-for-successfully-syncing-iphone-pictures-with-usb-storage-devices/"><u>Quick Tips for Successfully Syncing iPhone Pictures with USB Storage Devices</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/reinitialisation-des-versions-precedentes-manquantes-guide-complet/"><u>Réinitialisation Des Versions Précédentes Manquantes - Guide Complet</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-complete-tutorial-restoring-your-hp-laptop-with-windows-11-via-factory-reset-simple-yet-expert-methods/"><u>Step-by-Step Complete Tutorial: Restoring Your HP Laptop with Windows 11 via Factory Reset – Simple Yet Expert Methods</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-repairing-a-duplicated-ssd-that-fails-to-start-video-lesson/"><u>Step-by-Step Guide: Repairing a Duplicated SSD That Fails to Start - Video Lesson</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/tipps-und-tricks-zur-stabilitatsvermeidung-beim-bearbeiten-grosser-xlsx-dateien-auf-ihrem-computer/"><u>Tipps Und Tricks Zur Stabilitätsvermeidung Beim Bearbeiten Großer XLSX Dateien Auf Ihrem Computer</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-rated-no-cost-disk-imaging-applications-for-windows-11-complete-review/"><u>Top Rated No-Cost Disk Imaging Applications for Windows 11 (Complete Review)</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-samsung-galaxy-ring-costs-launch-details-and-latest-updates/"><u>Unveiling the Samsung Galaxy Ring: Costs, Launch Details & Latest Updates</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/win111087/"><u>バックアップと復元:インストールされているアプリを保護する手順（Win11/10/8/7向けガイド）</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-tips-to-restore-functionality-in-frozen-obs-screen/"><u>[New] In 2024, Tips to Restore Functionality in Frozen OBS Screen</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/irtual-diary-dos-and-donts-for-consistent-content-for-2024/"><u>[New] Virtual Diary Dos & Don'ts for Consistent Content for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-a-strong-online-presence-with-attractive-video-thumbnails/"><u>2024 Approved Building a Strong Online Presence with Attractive Video Thumbnails</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boost-your-writing-pipeline-8-innovative-ai-technologies-for-authors-and-seo-specialists/"><u>Boost Your Writing Pipeline: 8 Innovative AI Technologies for Authors and SEO Specialists</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728468621813-chkdsk/"><u>CHKDSK程序中，還有關於可能清除檔案的答案</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elevating-your-live-stream-with-periscope-for-2024/"><u>Elevating Your Live Stream with Periscope for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/elite-tripods-the-best-8-for-4k-video-capture-for-2024/"><u>Elite Tripods The Best 8 for 4K Video Capture for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/essential-troubleshooting-tips-resolving-preparing-for-takeoff-issues-in-windows-10-computers-a-comprehensive-guide/"><u>Essential Troubleshooting Tips: Resolving 'Preparing for Takeoff' Issues in Windows 10 Computers - A Comprehensive Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-oppo-find-x7-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Oppo Find X7 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/free-guide-setting-up-a-backup-partition-on-your-windows-10-pc/"><u>Free Guide: Setting Up a Backup Partition on Your Windows 10 PC</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/listeners-lexicon-selecting-solid-offline-recording-tools/"><u>Listeners' Lexicon Selecting Solid Offline Recording Tools</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigating-the-void-understanding-page-cannot-be-located-errors/"><u>Navigating the Void: Understanding 'Page Cannot Be Located' Errors</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/onedrivesynology-nas/"><u>OneDriveから完璧に移行！Synology NASへのファイルバックアップ方法と最適ソリューション</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ssdwindows-10-os2/"><u>SSDへのWindows 10 OS設定:上位2つの導入方法を解禄する</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ubersetzungen-zum-migrationsprozess-von-windows-10-umstellung-von-bios-hardware-auf-uefi-mit-secure-boot-fur-den-effizienten-betrieb/"><u>Übersetzungen Zum Migrationsprozess Von Windows 10 – Umstellung Von BIOS-Hardware Auf UEFI Mit Secure Boot Für Den Effizienten Betrieb</u></a></li>
+<li><a href="https://techidaily.com/unlock-a-disable-iphone-11-without-itunes-or-icloud-by-drfone-ios-unlock-ios-unlock/"><u>Unlock a disable iPhone 11 without itunes or icloud</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/unveiling-apples-progress-in-artificeal-intelligence-discover-new-features-and-potential-applications-analyzed/"><u>Unveiling Apple's Progress in Artificeal Intelligence: Discover New Features and Potential Applications | Analyzed</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vertrauenswurdig-und-zuverlassig-top-ersatz-fur-den-acronis-server/"><u>Vertrauenswürdig Und Zuverlässig: Top-Ersatz Für Den Acronis Server</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wie-man-eine-windows-11-datensicherung-nahtlos-auf-einen-neuen-computer-ubertragen-kann/"><u>Wie Man Eine Windows 11-Datensicherung Nahtlos Auf Einen Neuen Computer Übertragen Kann</u></a></li>
 </ul></div>
 

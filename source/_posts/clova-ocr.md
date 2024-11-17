@@ -1,7 +1,7 @@
 ---
 title: 「CLOVA OCRとフレックスキャプチャーを組み合わせた日本語手書き読み取り」
-date: 2024-10-25T06:00:53.177Z
-updated: 2024-10-31T23:15:46.475Z
+date: 2024-11-10T00:53:00.870Z
+updated: 2024-11-16T20:19:46.993Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b760390b18a7b33382115f2d0b.jpg
@@ -20,13 +20,6 @@ thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b76
 [ABBYY FlexiCapture 12](https://tools.techidaily.com/abbyy/products/)（以下FlexiCapture）で[CLOVA OCR](https://clova.line.me/clova-ocr/?utm%5Fsource=abbyy&utm%5Fmedium=blog)認識エンジンを手軽に利用できるようになりました。
 
 FlexiCaptureは自身のOCRエンジンだけでなく、他社のICR/OCRエンジンを組み合わせて最適なAI OCRを実現することも可能です。
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 複数のAI OCR技術を組み合わせるメリット
 
@@ -47,10 +40,17 @@ FlexiCaptureは、複雑な文書にも広く対応しており、他では取�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35332/clovaocr-content-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FlexiCaptureは検証機能も充実
@@ -62,10 +62,17 @@ AI OCRを導入するためには新たな業務が必要となります。す�
 ![日本語手書き読み取りAI OCR](https://static1.abbyy.com/abbyycommedia/35331/clovaocr-content-3-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FlexiCaptureは業務使用に最適
@@ -93,13 +100,6 @@ FlexiCaptureは単体でも認識、検証、ワークフローにおいて優�
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/)
 
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -164,19 +164,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-advanced-image-manipulation-with-pixlr-tips/"><u>[New] 2024 Approved Advanced Image Manipulation with Pixlr Tips</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-video-production-evolution-prime-lenses-for-youtube-enthusiasts-for-2024/"><u>[Updated] Video Production Evolution Prime Lenses for YouTube Enthusiasts for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728495783325-hddhdd/"><u>内部HDDから増設HDDへの分割データ保存方法</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728476693304-windows-10/"><u>長時間旋轉不止 Windows 10 開機進度欄原因及妥善管理方式 - 深入分析</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/accelerate-your-knowledge-discovering-automotive-wonders-s-car-code-readers/"><u>Accelerate Your Knowledge: Discovering Automotive Wonders ’S Car Code Readers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728462310427-aomei/"><u>AOMEIデジタルプライバシーガイドライン：アオメイトラストセンターの導き</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/conseils-utiles-pour-realiser-des-sauvegardes-multiples-sous-windows-11/"><u>Conseils Utiles Pour Réaliser Des Sauvegardes Multiples Sous Windows 11</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ejecutando-clonacion-de-discos-perfecta-con-clonezilla-en-una-version-de-windows-7/"><u>Ejecutando Clonación De Discos Perfecta Con Clonezilla en Una Versión De Windows 7</u></a></li>
-<li><a href="https://extra-information.techidaily.com/expedition-tools-for-storytelling-through-lenses/"><u>Expedition Tools for Storytelling Through Lenses</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://media-tips.techidaily.com/market-dynamics-and-pricing-strategies-may-be-influenced-by-international-regulatory-environments/"><u>Market Dynamics and Pricing Strategies May Be Influenced by International Regulatory Environments.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-cloning-only-the-system-boot-partition-on-ssds-with-windows-1110/"><u>Step-by-Step Guide to Cloning Only the System Boot Partition on SSDs with Windows 11/10</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/surging-channel-growth-with-optimal-video-hashes/"><u>Surging Channel Growth with Optimal Video Hashes</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/windows-11-updates-include-printer-and-scanner-driver-fixes/"><u>Windows 11 Updates Include Printer & Scanner Driver Fixes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-personalizing-interactions-deepening-connections-with-viewers-for-2024/"><u>[New] Personalizing Interactions Deepening Connections with Viewers for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-best-screen-capture-tools-for-creative-professionals-for-2024/"><u>[Updated] The Best Screen Capture Tools for Creative Professionals for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/balancing-visual-elements-with-ideal-video-ratios/"><u>Balancing Visual Elements with Ideal Video Ratios</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comprehensive-fixes-for-persistent-pc-stalls-during-usb-connection/"><u>Comprehensive Fixes for Persistent PC Stalls During USB Connection</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/correcting-user-portrait-errors-in-digital-dialogue/"><u>Correcting User Portrait Errors in Digital Dialogue</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-oneplus-nord-3-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting OnePlus Nord 3 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/easy-methods-for-saving-outlook-express-mailboxes-on-external-drives/"><u>Easy Methods for Saving Outlook Express Mailboxes on External Drives</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-update-get-your-realtek-asio-driver-for-windows-11-today/"><u>Effortless Update: Get Your Realtek Asio Driver for Windows 11 Today</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mastering-the-art-of-access-a-comprehensive-guide-to-leveraging-past-versions-on-windows-server-2012/"><u>Mastering the Art of Access: A Comprehensive Guide to Leveraging Past Versions on Windows Server 2012</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/metodos-eficaces-para-eliminar-de-manera-segura-un-pendrive-usb-en-windows-10-una-guia-paso-a-paso/"><u>Métodos Eficaces Para Eliminar De Manera Segura Un Pendrive USB en Windows 10: Una Guía Paso a Paso</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/navigating-instagrams-live-broadcasting/"><u>Navigating Instagram's Live Broadcasting</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/rescatando-tu-informacion-importante-usando-diskpart-y-la-herramienta-limpiadora/"><u>Rescatando Tu Información Importante Usando Diskpart Y La Herramienta Limpiadora</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728491210146-windows-10/"><u>Windows 10自动删除文件的修复方法</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-10-pc3/"><u>Windows 10でロック解除: PCの初期設定手順3通り</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728477386609-windowspc/"><u>ディスクへダウンロード後、WindowsPC上のファイル位置探しマニュアル</u></a></li>
 </ul></div>
 

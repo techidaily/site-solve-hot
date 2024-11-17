@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Smart Data Entry Solution on UiPath GO Platform
-date: 2024-10-29T01:26:17.849Z
-updated: 2024-10-31T19:09:06.671Z
+date: 2024-11-12T22:17:48.885Z
+updated: 2024-11-16T17:21:55.149Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2ad6cf886d90c9a4679357e1.jpg
@@ -79,27 +79,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-gopro-hero-10-secrets-for-perfect-slow-motion-shots/"><u>[New] GoPro Hero 10 Secrets for Perfect Slow Motion Shots</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-identifying-the-best-no-cost-video-calling-apps-iosandroid-for-2024/"><u>[New] Identifying the Best No-Cost Video Calling Apps (iOS/Android) for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-viral-vortex-keywords-that-propel-you-into-social-media-spotlight/"><u>[New] In 2024, Viral Vortex Keywords that Propel You Into Social Media Spotlight</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-unlock-your-macs-hidden-airdrop-settings-how-to-enable-visibility/"><u>1. Unlock Your Mac's Hidden AirDrop Settings: How to Enable Visibility</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-whats-sweeping-the-web-dive-into-these-8-trending-videos/"><u>2024 Approved What's Sweeping the Web? Dive Into These 8 Trending Videos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-realme-11-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Realme 11 5G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/easy-steps-to-resolve-crackling-sounds-from-your-windows-pc-speakers/"><u>Easy Steps to Resolve Crackling Sounds From Your Windows PC Speakers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/einfache-anleitung-zum-erstellen-eines-iso-abbildes-auf-einem-usb-stick-mit-zwei-methoden/"><u>Einfache Anleitung Zum Erstellen Eines ISO-Abbildes Auf Einem USB-Stick Mit Zwei Methoden</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-fix-the-critical-process-died-error-error-code-0xc00000f0-in-windows-11/"><u>How to Fix the 'Critical Process Died' Error (Error Code 0xC00000F0) in Windows 11</u></a></li>
-<li><a href="https://extra-information.techidaily.com/how-to-maximize-your-photos-with-samsungs-image-enhancers/"><u>How to Maximize Your Photos with Samsung's Image Enhancers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-monetize-youtube-video-the-ultimate-guide-to-ad-revenue/"><u>In 2024, Monetize YouTube Video | The Ultimate Guide to Ad Revenue</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/optimiser-votre-systeme-utilisez-une-ssd-pour-le-systeme-dexploitation-et-un-hdd-pour-le-stockage/"><u>Optimiser Votre Système: Utilisez Une SSD Pour Le Système D'Exploitation Et Un HDD Pour Le Stockage</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/set-up-windows-defender-firewall-with-specific-rules-that-limit-access-to-your-nas-ports-such-as-smb-default-is-445-rdp-3389-etc-only-from-authorized-device167/"><u>Set up Windows Defender Firewall with Specific Rules that Limit Access to Your NAS Ports, Such as SMB (Default Is 445), RDP (3389), Etc., Only From Authorized Devices or IP Ranges.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-reviving-your-device-with-an-asus-recovery-key-on-system-failure/"><u>Step-by-Step Guide: Reviving Your Device with an Asus Recovery Key on System Failure</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windows-easy-transfer-pas-plus-de-version-pour-windows-10/"><u>Windows Easy Transfer: Pas Plus De Version Pour Windows 10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-elite-introductory-editors-for-app-platforms/"><u>[New] 2024 Approved Elite Introductory Editors for App Platforms</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-comprehensive-guide-to-macs-preferred-snippers/"><u>[New] In 2024, Comprehensive Guide to Mac's Preferred Snippers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-disabling-igtv-on-instagram-for-2024/"><u>[Updated] Disabling IGTV on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-concept-to-completion-crafting-your-youtube-masterpiece/"><u>[Updated] From Concept to Completion Crafting Your YouTube Masterpiece</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-through-linkedin-account-termination-procedures/"><u>[Updated] Navigating Through LinkedIn Account Termination Procedures</u></a></li>
+<li><a href="https://win11.techidaily.com/correcting-mcuicntexe-not-found-message-in-win-1011/"><u>Correcting McUICnt.exe Not Found Message in Win 10/11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/erfolgreich-windows-10-bootstick-erstellen-zwei-unkomplizierte-ansatze-fur-die-verwendung-unter-windows-10/"><u>Erfolgreich Windows 10 Bootstick Erstellen – Zwei Unkomplizierte Ansätze Für Die Verwendung Unter Windows 10</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/erfolgreiches-datensicherungsprogramm-fur-die-ruckgewinnung-von-vom-computer-entfernten-bildern/"><u>Erfolgreiches Datensicherungsprogramm Für Die Rückgewinnung Von Vom Computer Entfernten Bildern</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-pet-gaze-enhancement-tips-for-stunning-shots/"><u>Mastering Pet Gaze Enhancement: Tips for Stunning Shots</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/secrets-unveiled-complete-guide-to-live-tv-recording-via-windows-pcs-for-2024/"><u>Secrets Unveiled Complete Guide to Live TV Recording via Windows PCs for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-free-data-recovery-tools-compatible-with-windows-11-8-and-7-the-best-picks/"><u>Top Free Data Recovery Tools Compatible with Windows 11, 8 & 7 - The Best Picks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/unlocking-the-power-of-words-in-google-meet-discussions-for-2024/"><u>Unlocking the Power of Words in Google Meet Discussions for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728505835786-usbsd/"><u>USBケーブル使用:マイクロSDカードからラップトップに容易にデータ転送の手順</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

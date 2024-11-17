@@ -1,7 +1,7 @@
 ---
 title: How Deutsche Post DHL Enhances Efficiency Through ABBYY Automated Solutions
-date: 2024-10-25T18:00:16.344Z
-updated: 2024-11-01T04:34:29.216Z
+date: 2024-11-10T06:53:08.806Z
+updated: 2024-11-17T06:03:37.576Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c075541dbef1c38bbe62a795e13b.jpg
@@ -15,36 +15,29 @@ thumbnail: https://thmb.techidaily.com/59c3843adcf6e65abddadc6ccd38abd83d01c0755
 
 English
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Featuring
 
 ![Timo Neff](https://static5.abbyy.com/abbyycommedia/31935/dhl-logo-forcards.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Timo Neff](https://static1.abbyy.com/abbyycommedia/31906/timoneff-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Timo Neff
 
 Team Lead, Automation Designers & Architects Digitalization@GBS Program, Global Business Services, Deutsche Post, **DHL**
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Overview
 
@@ -61,10 +54,10 @@ In this video, Deutsche Post, DHL, shares how ABBYY modernised their shipping lo
 ### Watch now
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Get in touch with us
@@ -77,6 +70,13 @@ All personal information collected via this method is under full scope of all pr
 ### Check out some of the best moments and watch the full recording below.
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -143,24 +143,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-enhancing-gaming-the-ultimate-xbox-screen-recorders-guide-for-2024/"><u>[New] Enhancing Gaming The Ultimate Xbox Screen Recorder's Guide for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-social-media-savvy-turning-friends-into-customers-and-coins/"><u>[New] Social Media Savvy Turning Friends Into Customers and Coins</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-from-raw-footage-to-polished-perfection-an-essential-youtube-video-editing-guide/"><u>[Updated] From Raw Footage to Polished Perfection An Essential Youtube Video Editing Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728496784880-hddssdwindows-1011/"><u>無料で直接移行：HDDからSSDへのシームレスなWindows 10/11クローニング手順</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/aomei-backupper-serveraomei-cyber-backupwindows-server/"><u>AOMEI Backupper Server與AOMEI Cyber Backup專為Windows Server設計 - 搶先上市</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-poco-m6-pro-4g-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Poco M6 Pro 4G.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/come-eseguire-il-backup-di-un-file-iso-in-dvd-utilizzando-aomei-backupper/"><u>Come Eseguire Il Backup Di Un File .ISO in DVD Utilizzando AOMEI Backupper</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/complete-circular-imaging-and-its-distinct-characteristics-for-2024/"><u>Complete Circular Imaging and Its Distinct Characteristics for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/easy-guide-retrieving-deleted-ntfs-drives-on-modern-windows-systems-windows-1110/"><u>Easy Guide: Retrieving Deleted NTFS Drives on Modern Windows Systems (Windows 11/10)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-all-time-highest-chart-youtubes-premier-video-list/"><u>In 2024, All-Time Highest Chart YouTube's Premier Video List</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728463904704-iphone/"><u>IPhone升級錯誤後無法啟動的修正方法</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/losungsschatz-ersetzen-der-kopier-einfuge-funktion-unter-windows-11-mit-den-besten-alternativen/"><u>Lösungsschatz: Ersetzen Der Kopier-Einfüge-Funktion Unter Windows 11 Mit Den Besten Alternativen</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-high-tech-purchases-insights-from-toms-hardware-expertise/"><u>Navigating High-Tech Purchases: Insights From Tom's Hardware Expertise</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/solution-guide-making-hidden-new-microsoft-word-documents-visible-again/"><u>Solution Guide: Making Hidden New Microsoft Word Documents Visible Again</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-restoring-access-using-a-windows-preinstallation-environment/"><u>Step-by-Step Guide: Restoring Access Using a Windows Preinstallation Environment</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-next-generation-of-airpods-whens-their-launch-and-how-can-you-reserve-them-insights-from-zdnet/"><u>The Next Generation of AirPods - When's Their Launch, and How Can You Reserve Them? Insights From ZDNet</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Motorola Edge 40 Neo? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728466066776-sd/"><u>データ回復不可能な状態にSDカードを変更する正しい方法</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728486917831-usb/"><u>全面指南：如何使用USB从病毒污染中恢复损坏文件</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/iuezupluse7nplusmhjew7uuakgow3pzrliknnlkjlronlhajmqkhlvilpi3ljpkui3lkiznoazku7borr7nva4i/"><u>系统重建技巧:利用安全模式复原不同硬件设置</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-inspiron-3671-desktop-analysis-unveiling-the-performance-of-a-mid-range-computer/"><u>Dell Inspiron 3671 Desktop Analysis: Unveiling the Performance of a Mid-Range Computer</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effective-solutions-for-preventing-stellaris-game-crashes/"><u>Effective Solutions for Preventing Stellaris Game Crashes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/error-the-content-youre-looking-for-cannot-be-located/"><u>Error: The Content You're Looking For Cannot Be Located</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-polishing-tiktok-content-on-mac-a-comprehensive-editors-manual/"><u>In 2024, Polishing TikTok Content on Mac A Comprehensive Editor's Manual</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unleashing-potential-your-guide-to-making-blockbuster-youtube-videos/"><u>In 2024, Unleashing Potential Your Guide to Making Blockbuster Youtube Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/iphone-to-android-a-step-by-step-guide-to-using-your-phones-hidden-fm-capability/"><u>IPhone to Android: A Step-by-Step Guide to Using Your Phone's Hidden FM Capability</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-the-differences-between-ipad-pro-and-ipad-air-a-comprehve-guide-to-picking-the-best-option-for-you-zdnet/"><u>Navigating the Differences Between iPad Pro and iPad Air: A Comprehve Guide to Picking the Best Option for You | ZDNET</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/problem-mit-der-iphone-backup-funktion-in-wd-my-cloud-professionelle-supporttipps-und-reparaturmoglichkeiten/"><u>Problem Mit Der iPhone-Backup-Funktion in WD My Cloud? Professionelle Supporttipps Und Reparaturmöglichkeiten.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/risolvere-i-problemi-di-wd-smartware-su-windows-nova-la-guida-definitiva-a-windows-11/"><u>Risolvere I Problemi Di WD SmartWare Su Windows Nova, La Guida Definitiva a Windows 11</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-ultimate-screen-snatchers-handbook-by-zd-software-experts/"><u>The Ultimate Screen Snatcher’s Handbook by ZD Software Experts</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-guide-resolving-non-playable-xvid-codec-files-in-your-plex-library/"><u>Troubleshooting Guide: Resolving Non-Playable Xvid Codec Files in Your Plex Library</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unraveling-the-mystery-of-winodws-update-glitches-finding-fixes/"><u>Unraveling the Mystery of Winodws Update Glitches: Finding Fixes</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vlcmp4mp3/"><u>VLCを使用してMP4ファイルをMP3に転記する方法</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
 </ul></div>
 
