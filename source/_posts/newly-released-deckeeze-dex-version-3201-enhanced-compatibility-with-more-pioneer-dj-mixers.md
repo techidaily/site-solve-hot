@@ -1,7 +1,7 @@
 ---
 title: Newly Released Deckeeze (DEX) Version 3.20.1 - Enhanced Compatibility with More Pioneer DJ Mixers
-date: 2024-11-25T16:13:55.899Z
-updated: 2024-11-26T18:37:49.371Z
+date: 2024-12-01T07:26:25.953Z
+updated: 2024-12-06T10:58:49.920Z
 tags:
   - product
 categories:
@@ -29,7 +29,7 @@ If you already use a Pioneer DJ controller or plan on purchasing one in the near
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20.1
@@ -50,7 +50,7 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 _Have questions about the latest 3.20.1 version of our **Best DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,18 +72,18 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2023/03/Pioneer-DJ-Controllers-DEX
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-earning-by-critiquing-goodies-a-youtube-guide/"><u>[New] 2024 Approved Earning by Critiquing Goodies A YouTube Guide</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-optimizing-age-information-in-tiktok-profiles/"><u>[New] 2024 Approved Optimizing Age Information in TikTok Profiles</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-foundations-of-video-editing-in-the-gaming-world/"><u>[New] In 2024, Foundations of Video Editing in the Gaming World</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2-unleash-your-creativity-with-these-9-leading-watermark-free-video-editing-tools/"><u>2. Unleash Your Creativity with These 9 Leading Watermark-Free Video Editing Tools!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/2024-android/"><u>2024 必見! Android専用ビデオプレイヤー・おすすめアプリランキング</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/all-you-need-to-know-about-accessing-and-viewing-classical-cinema-in-the-public-domain/"><u>All You Need to Know About Accessing & Viewing Classical Cinema in the Public Domain</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/discover-how-to-handle-water-detected-at-lightning-connector-on-iphones-a-guide-with-two-effective-approaches/"><u>Discover How to Handle 'Water Detected at Lightning Connector' On iPhones: A Guide with Two Effective Approaches</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-advice-for-cutting-down-discords-cpu-drain/"><u>Expert Advice for Cutting Down Discord's CPU Drain</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-malfunctioned-system-components-in-modern-windows-os-a-how-to-guide/"><u>Fixing Malfunctioned System Components in Modern Windows OS – A How-To Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/prime-musical-virtuoso-sessions-for-2024/"><u>Prime Musical Virtuoso Sessions for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/ultimate-guide-to-installing-latest-zebra-zp450-driver-software-complete-steps-included/"><u>Ultimate Guide to Installing Latest Zebra ZP450 Driver Software (Complete Steps Included)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-spectacular-sites-featuring-rich-3d-and-golden-text/"><u>[Updated] 2024 Approved Spectacular Sites Featuring Rich 3D and Golden Text</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-poco-c55-frp-bypass-by-drfone-android/"><u>About Poco C55 FRP Bypass</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/creative-freedom-redefined-a-review-of-screenflow-on-macbook-pro-for-2024/"><u>Creative Freedom Redefined A Review of ScreenFlow on MacBook Pro for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhance-hp-deskjets-performance-on-win11-os/"><u>Enhance HP Deskjet's Performance on Win11 OS</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-graphics-card-functionality-through-software-upgrades-a-look-by-yl-software/"><u>Enhancing Graphics Card Functionality Through Software Upgrades - A Look by YL Software</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exclusive-access-revamped-chatbot-experience-chatgpt-plus-20-mo-us/"><u>Exclusive Access: Revamped ChatBot Experience – ChatGPT Plus ($20 Mo, US)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/external-gpu-connectivity-on-demand-introducing-the-beelink-gti14-with-meteor-lake-processor-and-latchable-pcie-slot/"><u>External GPU Connectivity on Demand: Introducing the Beelink GTi14 with Meteor Lake Processor and Latchable PCIe Slot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/locating-and-managing-windows-defender-firewall-options-for-optimal-security-tips-from-yl-computing/"><u>Locating & Managing Windows Defender Firewall Options for Optimal Security - Tips From YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/maximizing-your-pcs-efficiency-on-windows-11-expert-tips-and-strategies-insights-from-yl-computing/"><u>Maximizing Your PC's Efficiency on Windows 11: Expert Tips & Strategies - Insights From YL Computing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-room-and-pc-checklist-for-vr/"><u>The Ultimate Room and PC Checklist for VR</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-free-media-players-for-windows-exploring-your-options-insights-by-yl-computing/"><u>Top Rated Free Media Players for Windows: Exploring Your Options - Insights by YL Computing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-motorola-edgeplus-2023-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Motorola Edge+ (2023) Phone Network-Ready</u></a></li>
+<li><a href="https://techtrends.techidaily.com/why-did-yahoo-messenger-end-a-look-back-at-its-journey/"><u>Why Did Yahoo! Messenger End? A Look Back at Its Journey</u></a></li>
 </ul></div>
 

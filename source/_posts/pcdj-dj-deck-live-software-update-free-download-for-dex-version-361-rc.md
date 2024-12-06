@@ -1,7 +1,7 @@
 ---
 title: "PCDJ DJ Deck Live Software Update: Free Download for DEX Version 3.6.1 RC!"
-date: 2024-11-24T18:22:40.065Z
-updated: 2024-11-26T18:54:19.233Z
+date: 2024-12-02T16:02:26.859Z
+updated: 2024-12-05T17:19:31.959Z
 tags:
   - product
 categories:
@@ -33,7 +33,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Changes Included With The DEX 3.6.1 Release Candidate
@@ -49,7 +49,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 _Have questions about DEX 3.6.1 DJ, **music video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -71,18 +71,24 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361rc-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-gps-drones-the-ultimate-follower-guide-compilation/"><u>[New] 2024 Approved GPS Drones The Ultimate Follower Guide Compilation</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-getting-started-free-videography-templates-for-2024/"><u>[New] Getting Started Free Videography Templates for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastering-the-art-of-soundtrack-posts-a-copyright-primer-for-insta/"><u>[Updated] 2024 Approved Mastering the Art of Soundtrack Posts A Copyright Primer for Insta</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-and-m-files-bolster-synergistic-alliance/"><u>Abbyy & M-Files Bolster Synergistic Alliance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-innovates-at-tech-summit-unveiling-the-top-7-smart-scanning-breakthroughs/"><u>ABBYY Innovates at Tech Summit: Unveiling the Top 7 Smart Scanning Breakthroughs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-upgrades-sdk-to-offer-immediate-capture-capabilities-for-faster-data-processing/"><u>ABBYY Upgrades SDK to Offer Immediate Capture Capabilities for Faster Data Processing</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/essential-windows-fixes-to-restore-dotnet-health-max-156/"><u>Essential Windows Fixes to Restore DotNet Health (Max 156)</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-inside-the-revolutionary-world-of-jaunt-vr/"><u>In 2024, Inside the Revolutionary World of Jaunt VR</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-y28-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo Y28 5GFRP Lock</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-tecno-spark-20-pro-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Tecno Spark 20 Pro and Browser | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/software-bots-boost-productivity-by-50-expected-within-two-years-says-techtarget/"><u>Software Bots Boost Productivity by 50% Expected Within Two Years, Says TechTarget</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transform-paperwork-into-digital-format-on-ios-mastering-the-art-of-ocr-with-iscanbook-go/"><u>Transform Paperwork Into Digital Format on iOS: Mastering the Art of OCR with iScanBook Go!</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-capturing-every-detail-tactics-for-streamlined-meet-recordings/"><u>[New] Capturing Every Detail Tactics for Streamlined Meet Recordings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-best-hashtags-for-youtube-gaming-videos-for-2024/"><u>[New] The Best Hashtags for YouTube Gaming Videos for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-rise-of-autofocus-aided-hdr-photography/"><u>[Updated] In 2024, The Rise of Autofocus Aided HDR Photography</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-computer-efficiency-with-a-clean-windows-registry-essential-techniques-by-yl-software-experts/"><u>Elevate Computer Efficiency with a Clean Windows Registry – Essential Techniques by YL Software Experts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/gratis-conversor-de-arquivos-wma-para-ogg-online-movavi/"><u>Gratis Conversor De Arquivos WMA Para OGG Online - Movavi</u></a></li>
+<li><a href="https://win-web.techidaily.com/how-to-recover-missing-videos-on-pc-and-mobile-a-step-by-step-guide-for-windows-and-iphone-users/"><u>How to Recover Missing Videos on PC and Mobile: A Step-by-Step Guide for Windows and iPhone Users</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-13-pro-max-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 13 Pro Max to other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/master-your-display-settings-adjust-brightness-and-contrast-via-the-windows-control-panel-with-yl-computing-tips/"><u>Master Your Display Settings: Adjust Brightness & Contrast via the Windows Control Panel with YL Computing Tips</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/personalizing-your-pc-a-guide-to-changing-windows-visuals-expert-advice-from-yl-computing/"><u>Personalizing Your PC: A Guide to Changing Windows Visuals - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/protecting-your-system-expert-advice-on-securing-your-computer-by-yl-software-team/"><u>Protecting Your System: Expert Advice on Securing Your Computer by YL Software Team</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/simple-solutions-for-rectifying-magic-mouse-trackpad-glitches/"><u>Simple Solutions for Rectifying Magic Mouse Trackpad Glitches</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/stunning-floral-design-hd-wallpaper-collection-high-resolution-imagery-and-inspiring-flower-patterns-by-yl-computing/"><u>Stunning Floral Design HD Wallpaper Collection - High-Resolution Imagery & Inspiring Flower Patterns by YL Computing</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-transformative-impact-of-gemini-15s-unique-approach-with-one-million-token-context/"><u>The Transformative Impact of Gemini 1.5'S Unique Approach with One Million Token Context</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-playbook-for-attracting-hundred-thousand-on-youtube-for-2024/"><u>The Ultimate Playbook for Attracting Hundred Thousand on YouTube for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-tips-for-scanners-that-cease-functioning/"><u>Troubleshooting Tips for Scanners That Cease Functioning</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-music-from-gionee-f3-pro-by-fonelab-android-recover-music/"><u>Undelete lost music from Gionee F3 Pro</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-frequent-reasons-behind-windows-registry-issues-insights-by-yl-computing/"><u>Understanding Frequent Reasons Behind Windows Registry Issues - Insights by YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unveiling-causes-of-slow-performance-a-deep-dive-by-yl-software-professionals/"><u>Unveiling Causes of Slow Performance: A Deep Dive by YL Software Professionals</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unveiling-the-author-behind-dream-of-the-red-chamber-insights-from-yl-computing-and-software-solutions/"><u>Unveiling the Author Behind 'Dream of the Red Chamber': Insights From YL Computing and Software Solutions</u></a></li>
 </ul></div>
 

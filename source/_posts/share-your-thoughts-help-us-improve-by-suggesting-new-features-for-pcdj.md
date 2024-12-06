@@ -1,7 +1,7 @@
 ---
 title: "Share Your Thoughts: Help Us Improve by Suggesting New Features for PCDJ!"
-date: 2024-11-24T20:00:11.723Z
-updated: 2024-11-26T18:00:45.218Z
+date: 2024-12-04T09:53:37.101Z
+updated: 2024-12-06T04:58:25.278Z
 tags:
   - product
 categories:
@@ -40,7 +40,7 @@ We’ve setup **“wishlist” threads** on the user forums; click the option be
 [Suggestions For Karaoki](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -62,16 +62,17 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2016/03/wewantfeedback-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-macos-sierra-enhancement-guide-step-by-step-upgrades/"><u>[New] MacOS Sierra Enhancement Guide Step-by-Step Upgrades</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-seamless-video-playback-a-facebook-feature-explanation-for-2024/"><u>[Updated] Seamless Video Playback A Facebook Feature Explanation for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1-unlock-your-macs-hidden-airdrop-settings-how-to-enable-visibility/"><u>1. Unlock Your Mac's Hidden AirDrop Settings: How to Enable Visibility</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/defrosting-techniques-for-a-seamlessly-running-computer-machine/"><u>Defrosting Techniques for a Seamlessly Running Computer Machine</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-samsung-galaxy-m54-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Samsung Galaxy M54 5G? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-fix-obs-studio-when-it-wont-record-your-screen-anymore/"><u>How to Fix OBS Studio When It Won't Record Your Screen Anymore</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-fix-the-critical-process-died-error-error-code-0xc00000f0-in-windows-11/"><u>How to Fix the 'Critical Process Died' Error (Error Code 0xC00000F0) in Windows 11</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-a-found-iphone-13-drfone-by-drfone-ios/"><u>How To Unlock A Found iPhone 13? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/set-up-windows-defender-firewall-with-specific-rules-that-limit-access-to-your-nas-ports-such-as-smb-default-is-445-rdp-3389-etc-only-from-authorized-device167/"><u>Set up Windows Defender Firewall with Specific Rules that Limit Access to Your NAS Ports, Such as SMB (Default Is 445), RDP (3389), Etc., Only From Authorized Devices or IP Ranges.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windows-11-tipps-fur-die-synchronisation-von-verzeichnissen-uber-ein-netzlaufwerk-methode-eins-und-methode-zwei/"><u>Windows 11-Tipps Für Die Synchronisation Von Verzeichnissen Über Ein Netzlaufwerk (Methode Eins Und Methode Zwei)</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windows-easy-transfer-pas-plus-de-version-pour-windows-10/"><u>Windows Easy Transfer: Pas Plus De Version Pour Windows 10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-leading-sites-for-extracting-text-aesthetics-packs-for-2024/"><u>[New] Leading Sites for Extracting Text Aesthetics Packs for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-sage-streams-compiled-list-of-top-trivia-networks-2024-edition/"><u>[New] Sage Streams Compiled List of Top Trivia Networks, 2024 Edition</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-channel-growth-blueprint-selecting-between-studio-and-latest-beta/"><u>[Updated] 2024 Approved Channel Growth Blueprint Selecting Between Studio and Latest Beta</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-comedic-content-concepts-7-hilarious-vlog-ideas-for-laughter-lovers-for-2024/"><u>[Updated] Comedic Content Concepts 7 Hilarious Vlog Ideas for Laughter Lovers for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/adjusting-your-monitors-display-a-comprehensive-guide-by-yl-computing/"><u>Adjusting Your Monitor's Display: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploring-blockchains-potential-to-transform-international-trade-and-economics-with-yl-software-solutions/"><u>Exploring Blockchain's Potential to Transform International Trade and Economics with YL Software Solutions</u></a></li>
+<li><a href="https://games-able.techidaily.com/gain-not-in-performance-my-oc-experience/"><u>Gain Not in Performance: My OC Experience</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-changing-your-windows-pcs-region-and-language-preferences-via-control-panel-tips-by-yl-computing/"><u>Step-by-Step Guide: Changing Your Windows PC's Region & Language Preferences via Control Panel - Tips by YL Computing</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-corporate-merge-unpacked-microsoft-brings-blizzard-in-house-ai-breakthroughs-in-art-creation-and-language-services-discussed-podcast-analysis/"><u>The Corporate Merge Unpacked: Microsoft Brings Blizzard In-House; AI Breakthroughs in Art Creation & Language Services Discussed [Podcast Analysis]</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/top-picks-ultimate-gifs-and-images-as-zoomgoogle-meet-backdrops-for-2024/"><u>Top Picks Ultimate GIFs & Images as Zoom/Google Meet Backdrops for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-black-screen-issues-solutions-when-your-monitor-wont-show-images-insights-from-yl-computing/"><u>Understanding Black Screen Issues: Solutions When Your Monitor Won't Show Images - Insights From YL Computing</u></a></li>
 </ul></div>
 
