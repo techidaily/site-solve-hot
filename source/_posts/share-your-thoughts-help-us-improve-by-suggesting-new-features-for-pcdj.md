@@ -1,7 +1,7 @@
 ---
 title: "Share Your Thoughts: Help Us Improve by Suggesting New Features for PCDJ!"
-date: 2024-12-04T09:53:37.101Z
-updated: 2024-12-06T04:58:25.278Z
+date: 2024-12-07T08:22:33.773Z
+updated: 2024-12-12T09:15:31.121Z
 tags:
   - product
 categories:
@@ -40,7 +40,7 @@ We’ve setup **“wishlist” threads** on the user forums; click the option be
 [Suggestions For Karaoki](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -62,17 +62,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2016/03/wewantfeedback-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-leading-sites-for-extracting-text-aesthetics-packs-for-2024/"><u>[New] Leading Sites for Extracting Text Aesthetics Packs for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-sage-streams-compiled-list-of-top-trivia-networks-2024-edition/"><u>[New] Sage Streams Compiled List of Top Trivia Networks, 2024 Edition</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-channel-growth-blueprint-selecting-between-studio-and-latest-beta/"><u>[Updated] 2024 Approved Channel Growth Blueprint Selecting Between Studio and Latest Beta</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-comedic-content-concepts-7-hilarious-vlog-ideas-for-laughter-lovers-for-2024/"><u>[Updated] Comedic Content Concepts 7 Hilarious Vlog Ideas for Laughter Lovers for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/adjusting-your-monitors-display-a-comprehensive-guide-by-yl-computing/"><u>Adjusting Your Monitor's Display: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/exploring-blockchains-potential-to-transform-international-trade-and-economics-with-yl-software-solutions/"><u>Exploring Blockchain's Potential to Transform International Trade and Economics with YL Software Solutions</u></a></li>
-<li><a href="https://games-able.techidaily.com/gain-not-in-performance-my-oc-experience/"><u>Gain Not in Performance: My OC Experience</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-changing-your-windows-pcs-region-and-language-preferences-via-control-panel-tips-by-yl-computing/"><u>Step-by-Step Guide: Changing Your Windows PC's Region & Language Preferences via Control Panel - Tips by YL Computing</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-corporate-merge-unpacked-microsoft-brings-blizzard-in-house-ai-breakthroughs-in-art-creation-and-language-services-discussed-podcast-analysis/"><u>The Corporate Merge Unpacked: Microsoft Brings Blizzard In-House; AI Breakthroughs in Art Creation & Language Services Discussed [Podcast Analysis]</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/top-picks-ultimate-gifs-and-images-as-zoomgoogle-meet-backdrops-for-2024/"><u>Top Picks Ultimate GIFs & Images as Zoom/Google Meet Backdrops for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-black-screen-issues-solutions-when-your-monitor-wont-show-images-insights-from-yl-computing/"><u>Understanding Black Screen Issues: Solutions When Your Monitor Won't Show Images - Insights From YL Computing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-streamlining-your-watch-time-on-instagram-mobiledesktop/"><u>[New] 2024 Approved Streamlining Your Watch Time on Instagram (Mobile/Desktop)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-becoming-a-visionary-in-the-field-of-lut-artistry/"><u>[Updated] Becoming a Visionary in the Field of LUT Artistry</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-investment-in-top-tier-hdr-cameras-a-buyers-guide/"><u>2024 Approved Investment in Top-Tier HDR Cameras A Buyer's Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/can-you-rely-on-windows-defender-for-immediate-threat-detection-and-blocking-insights-by-yl-computing/"><u>Can You Rely on Windows Defender for Immediate Threat Detection and Blocking? Insights by YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/default-printer-configuration-in-windows-control-panel-comprehensive-tutorial-by-yl-computing/"><u>Default Printer Configuration in Windows Control Panel - Comprehensive Tutorial by YL Computing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/die-top-3-gratis-dvd-konverter-fur-windows-11-im-jahr-2023-eine-vergleichende-analyse/"><u>Die TOP 3 Gratis DVD-Konverter Für Windows 11 Im Jahr 2023: Eine Vergleichende Analyse</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-install-canoscan-lide-120-printer-drivers-latest-version/"><u>Download and Install CanoScan LiDE 120 Printer Drivers: Latest Version</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-solution-finding-and-upgrading-to-the-current-elan-smbus-driver-on-windows-machines/"><u>Easy Solution: Finding & Upgrading to the Current ELAN SMBus Driver on Windows Machines</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-computer-efficiency-with-a-clean-windows-registry-essential-techniques-by-yl-software-experts/"><u>Elevate Computer Efficiency with a Clean Windows Registry – Essential Techniques by YL Software Experts</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/essential-computer-hardware-components-a-guide-by-yl-software/"><u>Essential Computer Hardware Components: A Guide by YL Software</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-itel-p55t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/master-the-decks-with-dex-3-dj-software-at-a-special-price-limited-offer-until-january-15th-save-49-now/"><u>Master the Decks with DEX 3 DJ Software at a Special Price: Limited Offer Until January 15Th – Save $49 Now!</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/mastery-of-tasks-with-the-help-of-ez-grabber/"><u>Mastery of Tasks with the Help of EZ Grabber</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/monetize-mastery-series-behind-the-scenes-with-carminati-ajay/"><u>Monetize Mastery Series Behind the Scenes with Carminati (AJay)</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/personalizing-your-pc-a-guide-to-changing-windows-visuals-expert-advice-from-yl-computing/"><u>Personalizing Your PC: A Guide to Changing Windows Visuals - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-tips-for-scanners-that-cease-functioning/"><u>Troubleshooting Tips for Scanners That Cease Functioning</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-frequent-reasons-behind-windows-registry-issues-insights-by-yl-computing/"><u>Understanding Frequent Reasons Behind Windows Registry Issues - Insights by YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/yl-software-explained-adjusting-time-and-date-settings-in-windows-control-panel/"><u>YL Software Explained: Adjusting Time & Date Settings in Windows Control Panel</u></a></li>
 </ul></div>
 

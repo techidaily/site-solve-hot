@@ -1,7 +1,7 @@
 ---
 title: Newly Released Deckeeze (DEX) Version 3.20.1 - Enhanced Compatibility with More Pioneer DJ Mixers
-date: 2024-12-01T07:26:25.953Z
-updated: 2024-12-06T10:58:49.920Z
+date: 2024-12-06T08:16:05.705Z
+updated: 2024-12-12T12:06:19.001Z
 tags:
   - product
 categories:
@@ -29,7 +29,7 @@ If you already use a Pioneer DJ controller or plan on purchasing one in the near
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20.1
@@ -50,7 +50,7 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 _Have questions about the latest 3.20.1 version of our **Best DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,18 +72,21 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2023/03/Pioneer-DJ-Controllers-DEX
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-spectacular-sites-featuring-rich-3d-and-golden-text/"><u>[Updated] 2024 Approved Spectacular Sites Featuring Rich 3D and Golden Text</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-poco-c55-frp-bypass-by-drfone-android/"><u>About Poco C55 FRP Bypass</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/creative-freedom-redefined-a-review-of-screenflow-on-macbook-pro-for-2024/"><u>Creative Freedom Redefined A Review of ScreenFlow on MacBook Pro for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/enhance-hp-deskjets-performance-on-win11-os/"><u>Enhance HP Deskjet's Performance on Win11 OS</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-graphics-card-functionality-through-software-upgrades-a-look-by-yl-software/"><u>Enhancing Graphics Card Functionality Through Software Upgrades - A Look by YL Software</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/exclusive-access-revamped-chatbot-experience-chatgpt-plus-20-mo-us/"><u>Exclusive Access: Revamped ChatBot Experience – ChatGPT Plus ($20 Mo, US)</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/external-gpu-connectivity-on-demand-introducing-the-beelink-gti14-with-meteor-lake-processor-and-latchable-pcie-slot/"><u>External GPU Connectivity on Demand: Introducing the Beelink GTi14 with Meteor Lake Processor and Latchable PCIe Slot</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/locating-and-managing-windows-defender-firewall-options-for-optimal-security-tips-from-yl-computing/"><u>Locating & Managing Windows Defender Firewall Options for Optimal Security - Tips From YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/maximizing-your-pcs-efficiency-on-windows-11-expert-tips-and-strategies-insights-from-yl-computing/"><u>Maximizing Your PC's Efficiency on Windows 11: Expert Tips & Strategies - Insights From YL Computing</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-ultimate-room-and-pc-checklist-for-vr/"><u>The Ultimate Room and PC Checklist for VR</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-rated-free-media-players-for-windows-exploring-your-options-insights-by-yl-computing/"><u>Top Rated Free Media Players for Windows: Exploring Your Options - Insights by YL Computing</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-motorola-edgeplus-2023-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Motorola Edge+ (2023) Phone Network-Ready</u></a></li>
-<li><a href="https://techtrends.techidaily.com/why-did-yahoo-messenger-end-a-look-back-at-its-journey/"><u>Why Did Yahoo! Messenger End? A Look Back at Its Journey</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-industry-standards-the-top-5-online-video-devices/"><u>[New] In 2024, Industry Standards The Top 5 Online Video Devices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-rising-stars-guide-essential-hashtags-to-increase-your-insta-presence/"><u>[New] Rising Stars Guide Essential Hashtags to Increase Your Insta Presence</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-navigating-through-self-playing-options-in-fb-videos/"><u>[Updated] In 2024, Navigating Through Self-Playing Options in Fb Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/changing-image-extensions-a-comprehensive-guide-yl-software/"><u>Changing Image Extensions: A Comprehensive Guide - YL Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/diagnosing-graphics-card-issues-a-comprehensive-guide-by-yl-software-professionals/"><u>Diagnosing Graphics Card Issues: A Comprehensive Guide by YL Software Professionals</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ensuring-graphics-card-durability-tips-and-techniques-from-yl-software-experts/"><u>Ensuring Graphics Card Durability: Tips & Techniques From YL Software Experts</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/expert-advice-on-diagnosing-pc-components-with-yl-software-solutions/"><u>Expert Advice on Diagnosing PC Components with YL Software Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/flash-sale-alert-save-big-on-3600plus-karaoke-songs-limited-offer-until-july-31-secure-your-favorites-for-only-half-a-dollar-per-track/"><u>Flash Sale Alert: Save Big on 3600+ Karaoke Songs, Limited Offer Until July 31 - Secure Your Favorites for Only Half a Dollar Per Track!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-vivo-y17s-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Vivo Y17s Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/overcoming-iphones-external-drive-connector-issue-via-mtp-driver-troubleshooting-techniques/"><u>Overcoming iPhone's External Drive Connector Issue via MTP Driver Troubleshooting Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pioneer-bdr-xd05b-blu-ray-drive-evaluation-examining-key-design-flaws/"><u>Pioneer BDR-XD05B Blu-Ray Drive Evaluation: Examining Key Design Flaws</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-why-is-my-cod-vanguards-voice-chat-unresponsive/"><u>Troubleshooting: Why Is My COD: Vanguard's Voice Chat Unresponsive?</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-from-basic-to-brilliant-adding-effects-in-fcp-x-in-3-easy-steps/"><u>Updated From Basic to Brilliant Adding Effects in FCP X in 3 Easy Steps</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/upgrade-windows-11-protection-levels-with-simple-steps-from-professionals-at-yl-computing-the-ultimate-guide-to-secure-settings/"><u>Upgrade Windows 11 Protection Levels with Simple Steps From Professionals at YL Computing | The Ultimate Guide to Secure Settings</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-11-and-security-does-it-ship-with-built-in-windows-defender-explored-by-yl-software-experts/"><u>Windows 11 and Security: Does It Ship With Built-In Windows Defender? - Explored by YL Software Experts</u></a></li>
 </ul></div>
 

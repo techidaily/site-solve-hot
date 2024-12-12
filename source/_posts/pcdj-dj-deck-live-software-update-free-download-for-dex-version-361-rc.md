@@ -1,7 +1,7 @@
 ---
 title: "PCDJ DJ Deck Live Software Update: Free Download for DEX Version 3.6.1 RC!"
-date: 2024-12-02T16:02:26.859Z
-updated: 2024-12-05T17:19:31.959Z
+date: 2024-12-11T08:07:42.050Z
+updated: 2024-12-11T17:22:08.540Z
 tags:
   - product
 categories:
@@ -33,7 +33,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Changes Included With The DEX 3.6.1 Release Candidate
@@ -49,7 +49,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 _Have questions about DEX 3.6.1 DJ, **music video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -71,24 +71,16 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361rc-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-capturing-every-detail-tactics-for-streamlined-meet-recordings/"><u>[New] Capturing Every Detail Tactics for Streamlined Meet Recordings</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-best-hashtags-for-youtube-gaming-videos-for-2024/"><u>[New] The Best Hashtags for YouTube Gaming Videos for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-rise-of-autofocus-aided-hdr-photography/"><u>[Updated] In 2024, The Rise of Autofocus Aided HDR Photography</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-computer-efficiency-with-a-clean-windows-registry-essential-techniques-by-yl-software-experts/"><u>Elevate Computer Efficiency with a Clean Windows Registry – Essential Techniques by YL Software Experts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratis-conversor-de-arquivos-wma-para-ogg-online-movavi/"><u>Gratis Conversor De Arquivos WMA Para OGG Online - Movavi</u></a></li>
-<li><a href="https://win-web.techidaily.com/how-to-recover-missing-videos-on-pc-and-mobile-a-step-by-step-guide-for-windows-and-iphone-users/"><u>How to Recover Missing Videos on PC and Mobile: A Step-by-Step Guide for Windows and iPhone Users</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-13-pro-max-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 13 Pro Max to other iPhone 14 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/master-your-display-settings-adjust-brightness-and-contrast-via-the-windows-control-panel-with-yl-computing-tips/"><u>Master Your Display Settings: Adjust Brightness & Contrast via the Windows Control Panel with YL Computing Tips</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/personalizing-your-pc-a-guide-to-changing-windows-visuals-expert-advice-from-yl-computing/"><u>Personalizing Your PC: A Guide to Changing Windows Visuals - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/protecting-your-system-expert-advice-on-securing-your-computer-by-yl-software-team/"><u>Protecting Your System: Expert Advice on Securing Your Computer by YL Software Team</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/simple-solutions-for-rectifying-magic-mouse-trackpad-glitches/"><u>Simple Solutions for Rectifying Magic Mouse Trackpad Glitches</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/stunning-floral-design-hd-wallpaper-collection-high-resolution-imagery-and-inspiring-flower-patterns-by-yl-computing/"><u>Stunning Floral Design HD Wallpaper Collection - High-Resolution Imagery & Inspiring Flower Patterns by YL Computing</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-transformative-impact-of-gemini-15s-unique-approach-with-one-million-token-context/"><u>The Transformative Impact of Gemini 1.5'S Unique Approach with One Million Token Context</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-playbook-for-attracting-hundred-thousand-on-youtube-for-2024/"><u>The Ultimate Playbook for Attracting Hundred Thousand on YouTube for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-tips-for-scanners-that-cease-functioning/"><u>Troubleshooting Tips for Scanners That Cease Functioning</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-gionee-f3-pro-by-fonelab-android-recover-music/"><u>Undelete lost music from Gionee F3 Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-frequent-reasons-behind-windows-registry-issues-insights-by-yl-computing/"><u>Understanding Frequent Reasons Behind Windows Registry Issues - Insights by YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unveiling-causes-of-slow-performance-a-deep-dive-by-yl-software-professionals/"><u>Unveiling Causes of Slow Performance: A Deep Dive by YL Software Professionals</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unveiling-the-author-behind-dream-of-the-red-chamber-insights-from-yl-computing-and-software-solutions/"><u>Unveiling the Author Behind 'Dream of the Red Chamber': Insights From YL Computing and Software Solutions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-tips-for-youtube-video-shooting/"><u>[Updated] 2024 Approved Tips for YouTube Video Shooting</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comparing-laptops-and-desktop-pcs-pros-cons-and-insights-expert-analysis-by-yl-computing/"><u>Comparing Laptops and Desktop PCs: Pros, Cons & Insights - Expert Analysis by YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/get-your-space-vibes-with-yl-software-ultimate-background-graphics-of-post-malone-plus-doja-cat-for-desktops-and-phones/"><u>Get Your Space Vibes with YL Software: Ultimate Background Graphics of Post Malone + Doja Cat for Desktops and Phones</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-adjust-languages-on-your-computer-a-guide-with-yl-computings-control-panel-tools/"><u>How to Adjust Languages on Your Computer: A Guide with YL Computing's Control Panel Tools</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/id-lost-naming-intel-icd-with-opengl-support/"><u>ID Lost: Naming Intel ICD with OpenGL Support</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-top-5-free-video-effects-sites/"><u>In 2024, Top 5 Free Video Effects Sites</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigating-the-maze-of-cryptocurrency-laws-with-yl-softwares-expert-strategies-for-compliance/"><u>Navigating the Maze of Cryptocurrency Laws with YL Software's Expert Strategies for Compliance</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-elevating-your-music-collection-advanced-mp3-file-editing-tips-and-tricks/"><u>New Elevating Your Music Collection Advanced MP3 File Editing Tips and Tricks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reversing-c-drive-filling-mystery-on-pcs/"><u>Reversing C: Drive Filling Mystery on PCs</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-troubleshooting-for-graphic-issues-on-your-windows-11-machine-tips-from-yl-computing/"><u>Step-by-Step Troubleshooting for Graphic Issues on Your Windows 11 Machine - Tips From YL Computing</u></a></li>
+<li><a href="https://windows11.techidaily.com/strategies-for-rescuing-non-transferring-usbs-in-windows/"><u>Strategies for Rescuing Non-Transferring USBs in Windows</u></a></li>
 </ul></div>
 
