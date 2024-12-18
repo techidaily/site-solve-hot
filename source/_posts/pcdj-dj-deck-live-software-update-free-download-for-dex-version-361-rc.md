@@ -1,7 +1,7 @@
 ---
 title: "PCDJ DJ Deck Live Software Update: Free Download for DEX Version 3.6.1 RC!"
-date: 2024-12-11T08:07:42.050Z
-updated: 2024-12-11T17:22:08.540Z
+date: 2024-12-17T16:31:46.406Z
+updated: 2024-12-18T20:38:28.617Z
 tags:
   - product
 categories:
@@ -33,7 +33,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Changes Included With The DEX 3.6.1 Release Candidate
@@ -49,7 +49,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 _Have questions about DEX 3.6.1 DJ, **music video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -71,16 +71,22 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361rc-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-tips-for-youtube-video-shooting/"><u>[Updated] 2024 Approved Tips for YouTube Video Shooting</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comparing-laptops-and-desktop-pcs-pros-cons-and-insights-expert-analysis-by-yl-computing/"><u>Comparing Laptops and Desktop PCs: Pros, Cons & Insights - Expert Analysis by YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/get-your-space-vibes-with-yl-software-ultimate-background-graphics-of-post-malone-plus-doja-cat-for-desktops-and-phones/"><u>Get Your Space Vibes with YL Software: Ultimate Background Graphics of Post Malone + Doja Cat for Desktops and Phones</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-adjust-languages-on-your-computer-a-guide-with-yl-computings-control-panel-tools/"><u>How to Adjust Languages on Your Computer: A Guide with YL Computing's Control Panel Tools</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/id-lost-naming-intel-icd-with-opengl-support/"><u>ID Lost: Naming Intel ICD with OpenGL Support</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-top-5-free-video-effects-sites/"><u>In 2024, Top 5 Free Video Effects Sites</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/navigating-the-maze-of-cryptocurrency-laws-with-yl-softwares-expert-strategies-for-compliance/"><u>Navigating the Maze of Cryptocurrency Laws with YL Software's Expert Strategies for Compliance</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-elevating-your-music-collection-advanced-mp3-file-editing-tips-and-tricks/"><u>New Elevating Your Music Collection Advanced MP3 File Editing Tips and Tricks</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reversing-c-drive-filling-mystery-on-pcs/"><u>Reversing C: Drive Filling Mystery on PCs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-troubleshooting-for-graphic-issues-on-your-windows-11-machine-tips-from-yl-computing/"><u>Step-by-Step Troubleshooting for Graphic Issues on Your Windows 11 Machine - Tips From YL Computing</u></a></li>
-<li><a href="https://windows11.techidaily.com/strategies-for-rescuing-non-transferring-usbs-in-windows/"><u>Strategies for Rescuing Non-Transferring USBs in Windows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-fixed-youtube-shorts-not-showing-up/"><u>[New] 2024 Approved Fixed YouTube Shorts Not Showing Up</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-critical-steps-to-record-and-relive-athletic-sports-competitions-for-2024/"><u>[New] Critical Steps to Record & Relive Athletic Sports Competitions for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-standing-out-on-airwaves-podcast-brand-logo-tips/"><u>[Updated] 2024 Approved Standing Out on Airwaves Podcast Brand Logo Tips</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cutting-down-on-graphics-card-power-demand-expert-advice-from-yl-software-solutions/"><u>Cutting Down on Graphics Card Power Demand: Expert Advice From YL Software Solutions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-gaming-removing-steam-obstructions-in-windows-11/"><u>Enhancing Gaming: Removing Steam Obstructions in Windows 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-effortlessly-install-network-adapters-with-yl-software-a-comprehensive-tutorial-by-yl-computing/"><u>How To Effortlessly Install Network Adapters with YL Software - A Comprehensive Tutorial by YL Computing</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-download-filmora-13-video-editing-made-easy/"><u>In 2024, Free Download Filmora 13 Video Editing Made Easy</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/protecting-yourself-in-the-world-of-digital-coins-expert-tips-from-yl-computing-and-yl-software/"><u>Protecting Yourself in the World of Digital Coins: Expert Tips From YL Computing and YL Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/stunning-catahoula-leopard-dog-visuals-premium-backgrounds-and-wallpapers-from-yl-computings-exclusive-collection/"><u>Stunning Catahoula Leopard Dog Visuals: Premium Backgrounds & Wallpapers From YL Computing's Exclusive Collection</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-13-must-hear-true-crime-podcast-series/"><u>Top 13 Must-Hear True Crime Podcast Series</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-5-essential-free-tools-all-aspiring-digital-djs-need-on-pcdj/"><u>Top 5 Essential Free Tools All Aspiring Digital DJs Need on PCdj</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-strategies-for-effective-pc-maintenance-insights-from-yl-computings-expert-guide/"><u>Top Strategies for Effective PC Maintenance: Insights From YL Computing's Expert Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-ranked-gaming-laptops-showdown-in-depth-comparison-of-razer-acer-msi-and-others-zdnet-review/"><u>Top-Ranked Gaming Laptops Showdown: In-Depth Comparison of Razer, Acer, MSI & Others - ZDNet Review</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-audio-drivers-made-easy-with-yl-computings-techniques/"><u>Troubleshooting Audio Drivers Made Easy with YL Computing's Techniques</u></a></li>
+<li><a href="https://program-issues.techidaily.com/understanding-and-correcting-the-error-0xc19001e1-issue-in-windows-11-systems/"><u>Understanding and Correcting the 'Error 0xC19001E1' Issue in Windows 11 Systems</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unearthing-the-worlds-largest-word-existence/"><u>Unearthing the World's Largest Word Existence</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/yl-software-unveiled-seamless-integration-of-crypto-payment-systems-explained/"><u>YL Software Unveiled: Seamless Integration of Crypto Payment Systems Explained</u></a></li>
 </ul></div>
 

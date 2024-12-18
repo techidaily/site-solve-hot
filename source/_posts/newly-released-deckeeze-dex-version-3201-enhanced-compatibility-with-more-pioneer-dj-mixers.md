@@ -1,7 +1,7 @@
 ---
 title: Newly Released Deckeeze (DEX) Version 3.20.1 - Enhanced Compatibility with More Pioneer DJ Mixers
-date: 2024-12-06T08:16:05.705Z
-updated: 2024-12-12T12:06:19.001Z
+date: 2024-12-16T20:34:59.513Z
+updated: 2024-12-18T20:24:54.710Z
 tags:
   - product
 categories:
@@ -29,7 +29,7 @@ If you already use a Pioneer DJ controller or plan on purchasing one in the near
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20.1
@@ -50,7 +50,7 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 _Have questions about the latest 3.20.1 version of our **Best DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,21 +72,14 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2023/03/Pioneer-DJ-Controllers-DEX
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-industry-standards-the-top-5-online-video-devices/"><u>[New] In 2024, Industry Standards The Top 5 Online Video Devices</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-rising-stars-guide-essential-hashtags-to-increase-your-insta-presence/"><u>[New] Rising Stars Guide Essential Hashtags to Increase Your Insta Presence</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-navigating-through-self-playing-options-in-fb-videos/"><u>[Updated] In 2024, Navigating Through Self-Playing Options in Fb Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/changing-image-extensions-a-comprehensive-guide-yl-software/"><u>Changing Image Extensions: A Comprehensive Guide - YL Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/diagnosing-graphics-card-issues-a-comprehensive-guide-by-yl-software-professionals/"><u>Diagnosing Graphics Card Issues: A Comprehensive Guide by YL Software Professionals</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ensuring-graphics-card-durability-tips-and-techniques-from-yl-software-experts/"><u>Ensuring Graphics Card Durability: Tips & Techniques From YL Software Experts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/expert-advice-on-diagnosing-pc-components-with-yl-software-solutions/"><u>Expert Advice on Diagnosing PC Components with YL Software Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/flash-sale-alert-save-big-on-3600plus-karaoke-songs-limited-offer-until-july-31-secure-your-favorites-for-only-half-a-dollar-per-track/"><u>Flash Sale Alert: Save Big on 3600+ Karaoke Songs, Limited Offer Until July 31 - Secure Your Favorites for Only Half a Dollar Per Track!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-vivo-y17s-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Vivo Y17s Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/overcoming-iphones-external-drive-connector-issue-via-mtp-driver-troubleshooting-techniques/"><u>Overcoming iPhone's External Drive Connector Issue via MTP Driver Troubleshooting Techniques</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pioneer-bdr-xd05b-blu-ray-drive-evaluation-examining-key-design-flaws/"><u>Pioneer BDR-XD05B Blu-Ray Drive Evaluation: Examining Key Design Flaws</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-why-is-my-cod-vanguards-voice-chat-unresponsive/"><u>Troubleshooting: Why Is My COD: Vanguard's Voice Chat Unresponsive?</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-from-basic-to-brilliant-adding-effects-in-fcp-x-in-3-easy-steps/"><u>Updated From Basic to Brilliant Adding Effects in FCP X in 3 Easy Steps</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/upgrade-windows-11-protection-levels-with-simple-steps-from-professionals-at-yl-computing-the-ultimate-guide-to-secure-settings/"><u>Upgrade Windows 11 Protection Levels with Simple Steps From Professionals at YL Computing | The Ultimate Guide to Secure Settings</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/windows-11-and-security-does-it-ship-with-built-in-windows-defender-explored-by-yl-software-experts/"><u>Windows 11 and Security: Does It Ship With Built-In Windows Defender? - Explored by YL Software Experts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-how-to-effortlessly-record-voices-using-windows-11-techniques/"><u>[New] 2024 Approved How to Effortlessly Record Voices Using Windows 11 Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/chucklechamber-laughter-in-a-click-for-2024/"><u>ChuckleChamber - Laughter in a Click for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-ultimate-list-of-12-fantastic-free-online-cinema-platforms/"><u>Discover the Ultimate List of 12 Fantastic Free Online Cinema Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-how-smooth-is-amazon-lunas-live-game-streaming/"><u>Expert Review: How Smooth Is Amazon Luna's Live Game Streaming?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-itel-p55-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Itel P55</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/resolving-image-display-issues-on-your-screen-expert-tips-from-yl-computings-software-solutions/"><u>Resolving Image Display Issues on Your Screen: Expert Tips From YL Computing's Software Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-changing-your-windows-pcs-region-and-language-preferences-via-control-panel-tips-by-yl-computing/"><u>Step-by-Step Guide: Changing Your Windows PC's Region & Language Preferences via Control Panel - Tips by YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/the-ultimate-walkthrough-for-upgrading-hardware-driver-software-expertise-from-yl-computing/"><u>The Ultimate Walkthrough for Upgrading Hardware Driver Software - Expertise From YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-tips-why-wont-your-laptop-turn-on-a-guide-by-yl-computing/"><u>Troubleshooting Tips: Why Won't Your Laptop Turn On? A Guide by YL Computing</u></a></li>
 </ul></div>
 
