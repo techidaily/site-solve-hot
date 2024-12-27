@@ -1,7 +1,7 @@
 ---
 title: Wiederherstellung Von Durch Viren Beschädigten Dateien
-date: 2024-12-02T02:42:00.866Z
-updated: 2024-12-06T10:41:52.267Z
+date: 2024-12-26T02:41:30.870Z
+updated: 2024-12-26T21:50:03.077Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6ad706af2327feef0ddd5dc8b.jpg
@@ -28,6 +28,10 @@ Da[Aira](https://tools.techidaily.com/ubackup/products/)L'ultimo Aggiornamento 3
 
 Condividi questo: ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Sommario** 
 
 1. [Introduzione](https://tools.techidaily.com/ubackup/products/)
@@ -50,11 +54,11 @@ Incontrare il problema di non poter digitare nella barra di ricerca di Windows 1
 [![non riesco a digitare nella barra di ricerca di windows 10](https://www.ubackup.com/it/articoli/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/it/others/log/can-t-type-in-search-bar-windows-10.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Capire il Problema di Non Poter Digitare nella Barra di Ricerca su Windows 10
@@ -73,13 +77,13 @@ La corruzione dei file di sistema può influenzare la funzionalità della barra 
 
 Alcune applicazioni di terze parti o conflitti software potrebbero interferire con il corretto funzionamento della barra di ricerca.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Soluzioni: Ripristinare la Funzionalità della Barra di Ricerca di Windows 10
 
 Ora, esploriamo cinque soluzioni per affrontare il problema di non poter digitare nulla nella casella di ricerca su Windows 10, garantendo un'esperienza utente fluida.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Soluzione 1: Riavvio dei Servizi Cortana e Ricerca di Windows
 
@@ -99,10 +103,6 @@ Passo 4\. Prova a Digitare nella Barra di Ricerca:
 
 Prova a digitare nella barra di ricerca dopo aver riavviato i servizi.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Soluzione 2: Esegui il Risolutore dei Problemi di Ricerca e Indicizzazione
 
 Passo 1\. Apri Impostazioni:
@@ -120,6 +120,10 @@ Fai clic su Risoluzioni aggiuntive, fai clic su "Ricerca e Indicizzazione", e pr
 Passo 4\. Segui le Istruzioni Visualizzate:
 
 Segui le istruzioni visualizzate per completare il processo di risoluzione dei problemi e verifica se il problema di non poter digitare nella barra di ricerca di Windows è risolto.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Soluzione 3: Ricostruisci le Opzioni di Indicizzazione
 
@@ -139,10 +143,6 @@ Passo 4\. Attendi il Completamento:
 
 Permetti al processo di indicizzazione di completarsi. Successivamente, controlla se il problema di non poter digitare nella barra di ricerca di Windows 10 persiste.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Soluzione 4: Controlla gli Aggiornamenti di Windows
 
 Passo 1\. Apri Impostazioni:
@@ -156,10 +156,6 @@ Clicca su "Aggiornamento di Windows" e seleziona "Verifica aggiornamenti."
 Passo 3\. Installa gli Aggiornamenti:
 
 Se sono disponibili degli aggiornamenti, installali e riavvia il computer per verificare se l'errore di non poter digitare nella barra di ricerca di Windows 10 è stato risolto.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Soluzione 5: Crea un Nuovo Account Utente
 
@@ -206,6 +202,10 @@ Scegli una destinazione per il backup e personalizza le impostazioni se necessar
 Passo 4\. Avvia il Backup:
 
 Clicca su "Avvia Backup" per creare un backup completo del tuo sistema Windows 10.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Domande Frequenti su Impossibilità di Digitare nella Barra di Ricerca su Windows 10
 
@@ -260,7 +260,7 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Pulito e Sicuro
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
@@ -280,19 +280,22 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-the-top-camcorders-to-consider-in-depth-analysis-for-2024/"><u>[New] The Top Camcorders to Consider – In-Depth Analysis for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-unbeatable-candidates-the-very-best-phones-at-video-recording-for-2024/"><u>[New] Unbeatable Candidates The Very Best Phones at Video Recording for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effective-solutions-for-speeding-up-sluggish-windows-applications-expert-tips-from-yl-computings-guide/"><u>Effective Solutions for Speeding Up Sluggish Windows Applications - Expert Tips From YL Computing's Guide</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/flash-sale-alert-up-to-30-off-on-your-next-4-decks-dex3-bundle-for-just-149/"><u>Flash Sale Alert! Up To $30 Off on Your Next 4 Decks - DEX3 Bundle for Just $149!</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/get-back-into-the-football-action-immediate-fixes-for-a-jammed-madden-22-game/"><u>Get Back Into the Football Action: Immediate Fixes for a Jammed Madden 22 Game</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/identifying-hardware-malfunctions-in-your-windows-system-a-comprehensive-guide-yl-tech-solutions/"><u>Identifying Hardware Malfunctions in Your Windows System: A Comprehensive Guide - YL Tech Solutions</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-apparition-editing-in-slow-motion/"><u>In 2024, Apparition Editing in Slow-Motion</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-oppo-reno-8t-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Oppo Reno 8T 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/market-insights-for-btc-eth-and-more-expert-review-of-crypto-prices-on-oct-27-yl-software-solutions/"><u>Market Insights for BTC, ETH & More – Expert Review of Crypto Prices on Oct 27 | YL Software Solutions</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-delays-and-stuttering-an-ultimate-fix-for-outriders-console-issues/"><u>Overcoming Delays and Stuttering - An Ultimate Fix for Outriders Console Issues</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/stay-ahead-of-the-curve-top-strategies-for-tracking-latest-crypto-trends-guided-by-yl-computing-and-yl-software-experts/"><u>Stay Ahead of the Curve: Top Strategies for Tracking Latest Crypto Trends - Guided by YL Computing & YL Software Experts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-continuous-halts-in-your-print-workflow-guidance-by-yl-computings-yl-software-experts/"><u>Troubleshooting Continuous Halts in Your Print Workflow - Guidance by YL Computing's YL Software Experts</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/understanding-generative-artificial-intelligence-an-insightful-guide/"><u>Understanding Generative Artificial Intelligence: An Insightful Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-expand-your-library-prime-10-ps5-extra-drives-for-2024/"><u>[New] Expand Your Library Prime 10 PS5 Extra-Drives for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-audio-experience-selecting-the-top-mics-for-2024/"><u>[New] Ultimate Audio Experience Selecting the Top Mics for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-drone-cinematography-team-the-best-10/"><u>[New] Ultimate Drone Cinematography Team The Best 10</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/our-journey-to-youtubes-command-center-of-creativity-for-2024/"><u>[New] Your Journey to YouTube's Command Center of Creativity for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unplugging-pauses-from-social-streams-a-2023-approach-to-fixing-livestream-issues/"><u>[Updated] 2024 Approved Unplugging Pauses From Social Streams A 2023 Approach to Fixing Livestream Issues</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-syncopated-social-media-adding-melodies-to-reels/"><u>[Updated] In 2024, Syncopated Social Media Adding Melodies to Reels</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-should-you-consider-itop-for-professional-use/"><u>[Updated] Should You Consider ITop for Professional Use?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/can-you-rely-on-windows-defender-for-immediate-threat-detection-and-blocking-insights-by-yl-computing/"><u>Can You Rely on Windows Defender for Immediate Threat Detection and Blocking? Insights by YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/default-printer-configuration-in-windows-control-panel-comprehensive-tutorial-by-yl-computing/"><u>Default Printer Configuration in Windows Control Panel - Comprehensive Tutorial by YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-your-pcs-performance-key-configuration-tweaks-expertise-from-yl-computing/"><u>Enhancing Your PC's Performance: Key Configuration Tweaks - Expertise From YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/essential-computer-hardware-components-a-guide-by-yl-software/"><u>Essential Computer Hardware Components: A Guide by YL Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/explore-disney-pixars-lightyear-stunning-wallpaper-and-desktop-background-options-from-yl-software/"><u>Explore Disney Pixar's 'Lightyear' - Stunning Wallpaper & Desktop Background Options From YL Software</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-motorola-g54-5g-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Motorola G54 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-apple-iphone-7-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From Apple iPhone 7?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/master-the-decks-with-dex-3-dj-software-at-a-special-price-limited-offer-until-january-15th-save-49-now/"><u>Master the Decks with DEX 3 DJ Software at a Special Price: Limited Offer Until January 15Th – Save $49 Now!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/navigating-the-minefield-understanding-risks-in-your-cryptocurrency-portfolio-with-yl-software-guidance/"><u>Navigating the Minefield: Understanding Risks in Your Cryptocurrency Portfolio with YL Software Guidance</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/yl-software-explained-adjusting-time-and-date-settings-in-windows-control-panel/"><u>YL Software Explained: Adjusting Time & Date Settings in Windows Control Panel</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "PCDJ DJ Deck Live Software Update: Free Download for DEX Version 3.6.1 RC!"
-date: 2024-12-17T16:31:46.406Z
-updated: 2024-12-18T20:38:28.617Z
+date: 2024-12-23T22:26:43.563Z
+updated: 2024-12-27T04:23:06.386Z
 tags:
   - product
 categories:
@@ -33,7 +33,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Changes Included With The DEX 3.6.1 Release Candidate
@@ -49,7 +49,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 _Have questions about DEX 3.6.1 DJ, **music video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -71,22 +71,18 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361rc-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-fixed-youtube-shorts-not-showing-up/"><u>[New] 2024 Approved Fixed YouTube Shorts Not Showing Up</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-critical-steps-to-record-and-relive-athletic-sports-competitions-for-2024/"><u>[New] Critical Steps to Record & Relive Athletic Sports Competitions for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-standing-out-on-airwaves-podcast-brand-logo-tips/"><u>[Updated] 2024 Approved Standing Out on Airwaves Podcast Brand Logo Tips</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cutting-down-on-graphics-card-power-demand-expert-advice-from-yl-software-solutions/"><u>Cutting Down on Graphics Card Power Demand: Expert Advice From YL Software Solutions</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhancing-gaming-removing-steam-obstructions-in-windows-11/"><u>Enhancing Gaming: Removing Steam Obstructions in Windows 11</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-effortlessly-install-network-adapters-with-yl-software-a-comprehensive-tutorial-by-yl-computing/"><u>How To Effortlessly Install Network Adapters with YL Software - A Comprehensive Tutorial by YL Computing</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-download-filmora-13-video-editing-made-easy/"><u>In 2024, Free Download Filmora 13 Video Editing Made Easy</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/protecting-yourself-in-the-world-of-digital-coins-expert-tips-from-yl-computing-and-yl-software/"><u>Protecting Yourself in the World of Digital Coins: Expert Tips From YL Computing and YL Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/stunning-catahoula-leopard-dog-visuals-premium-backgrounds-and-wallpapers-from-yl-computings-exclusive-collection/"><u>Stunning Catahoula Leopard Dog Visuals: Premium Backgrounds & Wallpapers From YL Computing's Exclusive Collection</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-13-must-hear-true-crime-podcast-series/"><u>Top 13 Must-Hear True Crime Podcast Series</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-5-essential-free-tools-all-aspiring-digital-djs-need-on-pcdj/"><u>Top 5 Essential Free Tools All Aspiring Digital DJs Need on PCdj</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-strategies-for-effective-pc-maintenance-insights-from-yl-computings-expert-guide/"><u>Top Strategies for Effective PC Maintenance: Insights From YL Computing's Expert Guide</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-ranked-gaming-laptops-showdown-in-depth-comparison-of-razer-acer-msi-and-others-zdnet-review/"><u>Top-Ranked Gaming Laptops Showdown: In-Depth Comparison of Razer, Acer, MSI & Others - ZDNet Review</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-audio-drivers-made-easy-with-yl-computings-techniques/"><u>Troubleshooting Audio Drivers Made Easy with YL Computing's Techniques</u></a></li>
-<li><a href="https://program-issues.techidaily.com/understanding-and-correcting-the-error-0xc19001e1-issue-in-windows-11-systems/"><u>Understanding and Correcting the 'Error 0xC19001E1' Issue in Windows 11 Systems</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unearthing-the-worlds-largest-word-existence/"><u>Unearthing the World's Largest Word Existence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/yl-software-unveiled-seamless-integration-of-crypto-payment-systems-explained/"><u>YL Software Unveiled: Seamless Integration of Crypto Payment Systems Explained</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-unlocking-creative-expression-with-simple-lenses/"><u>[New] In 2024, Unlocking Creative Expression with Simple Lenses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-a-pro-in-video-game-broadcasts-for-2024/"><u>Becoming a Pro in Video Game Broadcasts for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/breaking-the-sunday-barrier-chick-fil-as-new-strategy-to-boost-weekend-sales-unveiled/"><u>Breaking the Sunday Barrier: Chick-Fil-A's New Strategy to Boost Weekend Sales Unveiled</u></a></li>
+<li><a href="https://games-able.techidaily.com/creative-game-writing-with-chatgpt/"><u>Creative Game Writing with ChatGPT</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/detecting-and-removing-malware-a-step-by-step-guide-protect-your-pc-with-expert-advice-from-yl-software/"><u>Detecting and Removing Malware: A Step-by-Step Guide - Protect Your PC with Expert Advice From YL Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-pc-efficiency-with-essential-tools-by-yl-software-explore-options-today/"><u>Enhance PC Efficiency with Essential Tools by YL Software - Explore Options Today!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/expert-evaluation-of-vsdc-features-and-best-competitor-software/"><u>Expert Evaluation of VSDC Features and Best Competitor Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-can-i-fix-a-malfunctioning-usb-port-on-my-laptop-expert-advice-from-yl-computing/"><u>How Can I Fix a Malfunctioning USB Port on My Laptop? - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1732518990926-maximizing-system-speed-and-stability-with-yl-software-strategies/"><u>Maximizing System Speed & Stability with YL Software Strategies</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/snapchats-visual-language-mastering-the-art-of-gifting-with-gifs/"><u>Snapchat's Visual Language Mastering the Art of Gifting with Gifs</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/strategies-to-avoid-sluggish-response-times-with-yl-software-solutions/"><u>Strategies to Avoid Sluggish Response Times with YL Software Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ultimate-guide-to-boosting-performance-in-windows-10-and-11-with-dex-3dex-3-relyrx-and-pcdj/"><u>Ultimate Guide to Boosting Performance in Windows 10 & 11 with DEX 3/DEX 3 RE/LYRX and PCDJ</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/ultimate-tutorial-mastering-the-usage-of-apowermirror-with-your-television/"><u>Ultimate Tutorial: Mastering the Usage of ApowerMirror with Your Television</u></a></li>
 </ul></div>
 

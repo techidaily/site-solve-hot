@@ -1,7 +1,7 @@
 ---
 title: "Share Your Thoughts: Help Us Improve by Suggesting New Features for PCDJ!"
-date: 2024-12-07T08:22:33.773Z
-updated: 2024-12-12T09:15:31.121Z
+date: 2024-12-20T16:34:13.415Z
+updated: 2024-12-27T08:44:23.896Z
 tags:
   - product
 categories:
@@ -40,7 +40,7 @@ We’ve setup **“wishlist” threads** on the user forums; click the option be
 [Suggestions For Karaoki](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -62,24 +62,14 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2016/03/wewantfeedback-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-streamlining-your-watch-time-on-instagram-mobiledesktop/"><u>[New] 2024 Approved Streamlining Your Watch Time on Instagram (Mobile/Desktop)</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-becoming-a-visionary-in-the-field-of-lut-artistry/"><u>[Updated] Becoming a Visionary in the Field of LUT Artistry</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-investment-in-top-tier-hdr-cameras-a-buyers-guide/"><u>2024 Approved Investment in Top-Tier HDR Cameras A Buyer's Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y27s | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/can-you-rely-on-windows-defender-for-immediate-threat-detection-and-blocking-insights-by-yl-computing/"><u>Can You Rely on Windows Defender for Immediate Threat Detection and Blocking? Insights by YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/default-printer-configuration-in-windows-control-panel-comprehensive-tutorial-by-yl-computing/"><u>Default Printer Configuration in Windows Control Panel - Comprehensive Tutorial by YL Computing</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/die-top-3-gratis-dvd-konverter-fur-windows-11-im-jahr-2023-eine-vergleichende-analyse/"><u>Die TOP 3 Gratis DVD-Konverter Für Windows 11 Im Jahr 2023: Eine Vergleichende Analyse</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-install-canoscan-lide-120-printer-drivers-latest-version/"><u>Download and Install CanoScan LiDE 120 Printer Drivers: Latest Version</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-solution-finding-and-upgrading-to-the-current-elan-smbus-driver-on-windows-machines/"><u>Easy Solution: Finding & Upgrading to the Current ELAN SMBus Driver on Windows Machines</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-computer-efficiency-with-a-clean-windows-registry-essential-techniques-by-yl-software-experts/"><u>Elevate Computer Efficiency with a Clean Windows Registry – Essential Techniques by YL Software Experts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/essential-computer-hardware-components-a-guide-by-yl-software/"><u>Essential Computer Hardware Components: A Guide by YL Software</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-itel-p55t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Itel P55T | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/master-the-decks-with-dex-3-dj-software-at-a-special-price-limited-offer-until-january-15th-save-49-now/"><u>Master the Decks with DEX 3 DJ Software at a Special Price: Limited Offer Until January 15Th – Save $49 Now!</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/mastery-of-tasks-with-the-help-of-ez-grabber/"><u>Mastery of Tasks with the Help of EZ Grabber</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/monetize-mastery-series-behind-the-scenes-with-carminati-ajay/"><u>Monetize Mastery Series Behind the Scenes with Carminati (AJay)</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/personalizing-your-pc-a-guide-to-changing-windows-visuals-expert-advice-from-yl-computing/"><u>Personalizing Your PC: A Guide to Changing Windows Visuals - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-tips-for-scanners-that-cease-functioning/"><u>Troubleshooting Tips for Scanners That Cease Functioning</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/understanding-frequent-reasons-behind-windows-registry-issues-insights-by-yl-computing/"><u>Understanding Frequent Reasons Behind Windows Registry Issues - Insights by YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/yl-software-explained-adjusting-time-and-date-settings-in-windows-control-panel/"><u>YL Software Explained: Adjusting Time & Date Settings in Windows Control Panel</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-which-recording-tool-wins-a-bandicam-vs-camtasia-comparison/"><u>[New] 2024 Approved Which Recording Tool Wins? - A Bandicam Vs. Camtasia Comparison</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-selfies-in-focus-iphones-8-innovative-tools/"><u>[Updated] In 2024, Selfies in Focus IPhone's #8 Innovative Tools</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-ultimate-list-selecting-excellent-webcams-for-podcasts/"><u>[Updated] Ultimate List Selecting Excellent Webcams for Podcasts</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/diy-fixes-for-challenging-hardware-failures-insights-by-yl-computing-and-yl-software-solutions/"><u>DIY Fixes for Challenging Hardware Failures - Insights by YL Computing and YL Software Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-optimize-load-times-for-faster-program-performance-with-insights-from-yl-tech-experts/"><u>How to Optimize Load Times for Faster Program Performance with Insights From YL Tech Experts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/reviving-forgotten-dialogues-with-chatgpt-tips-and-tricks-for-history-recovery/"><u>Reviving Forgotten Dialogues with ChatGPT: Tips and Tricks for History Recovery</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unveiling-key-elements-that-shape-the-valuation-of-virtual-money-a-yl-computing-and-yl-software-perspective/"><u>Unveiling Key Elements That Shape The Valuation Of Virtual Money - A YL Computing and YL Software Perspective</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/yl-computings-expert-advice-how-to-easily-delete-unwanted-applications-and-improve-system-performance/"><u>YL Computing's Expert Advice: How to Easily Delete Unwanted Applications and Improve System Performance</u></a></li>
+<li><a href="https://video-capture.techidaily.com/44k344oz44ox44or44gq44kz44oe77yb44ot44oh44kq44gu55s76loq44ks5ps55zae44gz44kl5pa55rov/"><u>シンプルなコツ！ビデオの画質を改善する方法</u></a></li>
 </ul></div>
 
