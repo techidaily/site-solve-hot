@@ -1,7 +1,7 @@
 ---
 title: "Share Your Thoughts: Help Us Improve by Suggesting New Features for PCDJ!"
-date: 2024-12-20T16:34:13.415Z
-updated: 2024-12-27T08:44:23.896Z
+date: 2025-01-02T17:33:10.676Z
+updated: 2025-01-05T16:33:48.735Z
 tags:
   - product
 categories:
@@ -40,7 +40,7 @@ We’ve setup **“wishlist” threads** on the user forums; click the option be
 [Suggestions For Karaoki](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -62,14 +62,16 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2016/03/wewantfeedback-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-which-recording-tool-wins-a-bandicam-vs-camtasia-comparison/"><u>[New] 2024 Approved Which Recording Tool Wins? - A Bandicam Vs. Camtasia Comparison</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-selfies-in-focus-iphones-8-innovative-tools/"><u>[Updated] In 2024, Selfies in Focus IPhone's #8 Innovative Tools</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-ultimate-list-selecting-excellent-webcams-for-podcasts/"><u>[Updated] Ultimate List Selecting Excellent Webcams for Podcasts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/diy-fixes-for-challenging-hardware-failures-insights-by-yl-computing-and-yl-software-solutions/"><u>DIY Fixes for Challenging Hardware Failures - Insights by YL Computing and YL Software Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-optimize-load-times-for-faster-program-performance-with-insights-from-yl-tech-experts/"><u>How to Optimize Load Times for Faster Program Performance with Insights From YL Tech Experts</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/reviving-forgotten-dialogues-with-chatgpt-tips-and-tricks-for-history-recovery/"><u>Reviving Forgotten Dialogues with ChatGPT: Tips and Tricks for History Recovery</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/unveiling-key-elements-that-shape-the-valuation-of-virtual-money-a-yl-computing-and-yl-software-perspective/"><u>Unveiling Key Elements That Shape The Valuation Of Virtual Money - A YL Computing and YL Software Perspective</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/yl-computings-expert-advice-how-to-easily-delete-unwanted-applications-and-improve-system-performance/"><u>YL Computing's Expert Advice: How to Easily Delete Unwanted Applications and Improve System Performance</u></a></li>
-<li><a href="https://video-capture.techidaily.com/44k344oz44ox44or44gq44kz44oe77yb44ot44oh44kq44gu55s76loq44ks5ps55zae44gz44kl5pa55rov/"><u>シンプルなコツ！ビデオの画質を改善する方法</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-power-players-unleashed-youtubes-female-elite-for-2024/"><u>[Updated] Power Players Unleashed YouTube’s Female Elite for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/from-solo-existence-to-group-adventures-fixing-minecraft-lan-disconnects/"><u>From Solo Existence to Group Adventures - Fixing Minecraft LAN Disconnects</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-illuminate-your-images-adding-life-with-illustrator-motion/"><u>In 2024, Illuminate Your Images Adding Life with Illustrator Motion</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/is-mkv-format-supported-by-youtube-tips-for-hd-youtube-video-conversion/"><u>Is MKV Format Supported by YouTube? Tips for HD YouTube Video Conversion</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mastering-media-format-transformation-how-to-seamlessly-create-gifs-from-webm-files-anywhere/"><u>Mastering Media Format Transformation: How to Seamlessly Create GIFs From WebM Files Anywhere</u></a></li>
+<li><a href="https://win-updates.techidaily.com/myrecover-guide-erkennen-und-lokalisieren-von-temporar-speicherung-auf-ihrem-pc/"><u>MyRecover-Guide: Erkennen Und Lokalisieren Von Temporär Speicherung Auf Ihrem PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ogg-mp4/"><u>Oggオーディオに変換してください - 最上級MP4動画を保持</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/preserve-excellent-resolution-the-finest-dailymotion-video-converters-to-effortlessly-switch-to-mp4-format/"><u>Preserve Excellent Resolution: The Finest Dailymotion Video Converters to Effortlessly Switch to MP4 Format</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/seamless-e-book-reading-how-to-access-kindle-titles-on-your-apple-tablet/"><u>Seamless E-Book Reading: How to Access Kindle Titles on Your Apple Tablet</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-videos-into-a-series-of-images/"><u>Step-by-Step Guide: Transforming Videos Into a Series of Images</u></a></li>
+<li><a href="https://os-tips.techidaily.com/the-complete-step-by-step-manual-for-removing-photographs-on-an-iphone-device/"><u>The Complete Step-by-Step Manual for Removing Photographs on an iPhone Device</u></a></li>
 </ul></div>
 

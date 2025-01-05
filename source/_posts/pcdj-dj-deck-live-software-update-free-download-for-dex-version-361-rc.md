@@ -1,7 +1,7 @@
 ---
 title: "PCDJ DJ Deck Live Software Update: Free Download for DEX Version 3.6.1 RC!"
-date: 2024-12-23T22:26:43.563Z
-updated: 2024-12-27T04:23:06.386Z
+date: 2024-12-31T20:08:58.475Z
+updated: 2025-01-05T16:28:37.704Z
 tags:
   - product
 categories:
@@ -33,7 +33,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Changes Included With The DEX 3.6.1 Release Candidate
@@ -49,7 +49,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 _Have questions about DEX 3.6.1 DJ, **music video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -71,18 +71,18 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361rc-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-unlocking-creative-expression-with-simple-lenses/"><u>[New] In 2024, Unlocking Creative Expression with Simple Lenses</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-a-pro-in-video-game-broadcasts-for-2024/"><u>Becoming a Pro in Video Game Broadcasts for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/breaking-the-sunday-barrier-chick-fil-as-new-strategy-to-boost-weekend-sales-unveiled/"><u>Breaking the Sunday Barrier: Chick-Fil-A's New Strategy to Boost Weekend Sales Unveiled</u></a></li>
-<li><a href="https://games-able.techidaily.com/creative-game-writing-with-chatgpt/"><u>Creative Game Writing with ChatGPT</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/detecting-and-removing-malware-a-step-by-step-guide-protect-your-pc-with-expert-advice-from-yl-software/"><u>Detecting and Removing Malware: A Step-by-Step Guide - Protect Your PC with Expert Advice From YL Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhance-pc-efficiency-with-essential-tools-by-yl-software-explore-options-today/"><u>Enhance PC Efficiency with Essential Tools by YL Software - Explore Options Today!</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/expert-evaluation-of-vsdc-features-and-best-competitor-software/"><u>Expert Evaluation of VSDC Features and Best Competitor Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-can-i-fix-a-malfunctioning-usb-port-on-my-laptop-expert-advice-from-yl-computing/"><u>How Can I Fix a Malfunctioning USB Port on My Laptop? - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1732518990926-maximizing-system-speed-and-stability-with-yl-software-strategies/"><u>Maximizing System Speed & Stability with YL Software Strategies</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/snapchats-visual-language-mastering-the-art-of-gifting-with-gifs/"><u>Snapchat's Visual Language Mastering the Art of Gifting with Gifs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/strategies-to-avoid-sluggish-response-times-with-yl-software-solutions/"><u>Strategies to Avoid Sluggish Response Times with YL Software Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ultimate-guide-to-boosting-performance-in-windows-10-and-11-with-dex-3dex-3-relyrx-and-pcdj/"><u>Ultimate Guide to Boosting Performance in Windows 10 & 11 with DEX 3/DEX 3 RE/LYRX and PCDJ</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/ultimate-tutorial-mastering-the-usage-of-apowermirror-with-your-television/"><u>Ultimate Tutorial: Mastering the Usage of ApowerMirror with Your Television</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-superior-3d-viewing-playback-on-android/"><u>[New] In 2024, Superior 3D Viewing, Playback on Android</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-enlightened-techniques-to-preserve-your-iptv-streams-for-2024/"><u>[Updated] Enlightened Techniques to Preserve Your IPTV Streams for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-rapid-growth-techniques-for-youtube-views-via-collaborative-videos/"><u>[Updated] Rapid Growth Techniques for YouTube Views via Collaborative Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/captivating-storm-visuals-in-ultra-hd-for-your-desktop-professional-photography-from-yl-software/"><u>Captivating Storm Visuals in Ultra HD for Your Desktop - Professional Photography From YL Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/discover-how-yl-computings-tools-can-enhance-your-business-explore-key-advantages/"><u>Discover How YL Computing's Tools Can Enhance Your Business - Explore Key Advantages</u></a></li>
+<li><a href="https://fox-access.techidaily.com/dive-into-dynamic-footage-the-review-of-polaroid-cubeplus/"><u>Dive Into Dynamic Footage The Review of Polaroid Cube+</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effective-solutions-for-fixing-wrongly-configured-ram-a-guide-by-yl-computing/"><u>Effective Solutions for Fixing Wrongly Configured RAM: A Guide by YL Computing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/expanding-audio-horizons-soundcloud-goplus-arrives-in-five-additional-markets-perfect-choice-for-djs/"><u>Expanding Audio Horizons: SoundCloud Go+ Arrives in Five Additional Markets - Perfect Choice for DJs</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-problems-when-your-icloud-isnt-synching-correctly/"><u>How to Resolve Problems When Your iCloud Isn’t Synching Correctly</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-note-30-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Note 30 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-poco-c55-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Poco C55 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/troubleshooting-lack-of-sound-in-your-device-tips-from-yl-software-experts/"><u>Troubleshooting Lack of Sound in Your Device: Tips From YL Software Experts</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/yl-softwares-ultimate-tutorial-for-streaming-videos-and-audio-on-windows-simple-steps-inside/"><u>YL Software's Ultimate Tutorial for Streaming Videos & Audio on Windows - Simple Steps Inside!</u></a></li>
 </ul></div>
 
