@@ -1,7 +1,7 @@
 ---
 title: "Share Your Thoughts: Help Us Improve by Suggesting New Features for PCDJ!"
-date: 2025-01-02T17:33:10.676Z
-updated: 2025-01-05T16:33:48.735Z
+date: 2025-01-06T05:05:30.007Z
+updated: 2025-01-12T05:11:17.315Z
 tags:
   - product
 categories:
@@ -40,7 +40,7 @@ We’ve setup **“wishlist” threads** on the user forums; click the option be
 [Suggestions For Karaoki](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -62,16 +62,19 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2016/03/wewantfeedback-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-power-players-unleashed-youtubes-female-elite-for-2024/"><u>[Updated] Power Players Unleashed YouTube’s Female Elite for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/from-solo-existence-to-group-adventures-fixing-minecraft-lan-disconnects/"><u>From Solo Existence to Group Adventures - Fixing Minecraft LAN Disconnects</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-illuminate-your-images-adding-life-with-illustrator-motion/"><u>In 2024, Illuminate Your Images Adding Life with Illustrator Motion</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/is-mkv-format-supported-by-youtube-tips-for-hd-youtube-video-conversion/"><u>Is MKV Format Supported by YouTube? Tips for HD YouTube Video Conversion</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-media-format-transformation-how-to-seamlessly-create-gifs-from-webm-files-anywhere/"><u>Mastering Media Format Transformation: How to Seamlessly Create GIFs From WebM Files Anywhere</u></a></li>
-<li><a href="https://win-updates.techidaily.com/myrecover-guide-erkennen-und-lokalisieren-von-temporar-speicherung-auf-ihrem-pc/"><u>MyRecover-Guide: Erkennen Und Lokalisieren Von Temporär Speicherung Auf Ihrem PC</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ogg-mp4/"><u>Oggオーディオに変換してください - 最上級MP4動画を保持</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/preserve-excellent-resolution-the-finest-dailymotion-video-converters-to-effortlessly-switch-to-mp4-format/"><u>Preserve Excellent Resolution: The Finest Dailymotion Video Converters to Effortlessly Switch to MP4 Format</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/seamless-e-book-reading-how-to-access-kindle-titles-on-your-apple-tablet/"><u>Seamless E-Book Reading: How to Access Kindle Titles on Your Apple Tablet</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-transforming-videos-into-a-series-of-images/"><u>Step-by-Step Guide: Transforming Videos Into a Series of Images</u></a></li>
-<li><a href="https://os-tips.techidaily.com/the-complete-step-by-step-manual-for-removing-photographs-on-an-iphone-device/"><u>The Complete Step-by-Step Manual for Removing Photographs on an iPhone Device</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-discover-the-leading-video-calling-apps-of-today/"><u>[New] 2024 Approved Discover the Leading Video Calling Apps of Today</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-dynamic-capture-premium-choices-in-4k-technology/"><u>[New] 2024 Approved Dynamic Capture Premium Choices in 4K Technology</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamline-your-vlog-with-video-length-optimization/"><u>[New] Streamline Your Vlog with Video Length Optimization</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-depth-of-photography-with-polarrs-advanced-editing/"><u>[Updated] Exploring the Depth of Photography with Polarr’s Advanced Editing</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/geheimgegeven-van-de-hard-disk-windows-vijf-herinnerwijzingen-om-terug-te-vinden/"><u>Geheimgegeven Van De Hard Disk Windows - Vijf Herinnerwijzingen Om Terug Te Vinden</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-seizing-youtubes-algorithm-advantage-with-smart-seo-tactics/"><u>In 2024, Seizing YouTube's Algorithm Advantage with Smart SEO Tactics</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-se-drfone-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/korek-api-mendapatkan-folder-yang-tak-terlihat-lagi-di-windows-1011/"><u>Korek Api Mendapatkan Folder Yang Tak Terlihat Lagi Di Windows 10/11</u></a></li>
+<li><a href="https://win-blog.techidaily.com/pc-gamers-rejoice-detroit-become-human-now-plays-smoothly-no-more-pc-crashes/"><u>PC Gamers Rejoice: Detroit: Become Human Now Plays Smoothly, No More PC Crashes!</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/sdwindows/"><u>SDカードのデータ復元:無料プログラムとWindows内蔵ツールで簡単に始めよう</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/solving-the-issue-trouble-transferring-files-from-mac-to-external-drive-and-effective-solutions/"><u>Solving the Issue: Trouble Transferring Files From Mac to External Drive & Effective Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-no-cost-disk-imaging-applications-for-windows-11-complete-review/"><u>Top Rated No-Cost Disk Imaging Applications for Windows 11 (Complete Review)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-seamless-connectivity-with-linksys-velop-a-review-of-its-superior-performance/"><u>Unlocking Seamless Connectivity with Linksys Velop - A Review of Its Superior Performance</u></a></li>
 </ul></div>
 

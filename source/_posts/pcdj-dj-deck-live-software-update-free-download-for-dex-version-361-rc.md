@@ -1,7 +1,7 @@
 ---
 title: "PCDJ DJ Deck Live Software Update: Free Download for DEX Version 3.6.1 RC!"
-date: 2024-12-31T20:08:58.475Z
-updated: 2025-01-05T16:28:37.704Z
+date: 2025-01-06T17:10:10.747Z
+updated: 2025-01-12T02:15:54.062Z
 tags:
   - product
 categories:
@@ -33,7 +33,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Changes Included With The DEX 3.6.1 Release Candidate
@@ -49,7 +49,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 _Have questions about DEX 3.6.1 DJ, **music video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -71,18 +71,18 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361rc-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-superior-3d-viewing-playback-on-android/"><u>[New] In 2024, Superior 3D Viewing, Playback on Android</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-enlightened-techniques-to-preserve-your-iptv-streams-for-2024/"><u>[Updated] Enlightened Techniques to Preserve Your IPTV Streams for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-rapid-growth-techniques-for-youtube-views-via-collaborative-videos/"><u>[Updated] Rapid Growth Techniques for YouTube Views via Collaborative Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/captivating-storm-visuals-in-ultra-hd-for-your-desktop-professional-photography-from-yl-software/"><u>Captivating Storm Visuals in Ultra HD for Your Desktop - Professional Photography From YL Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discover-how-yl-computings-tools-can-enhance-your-business-explore-key-advantages/"><u>Discover How YL Computing's Tools Can Enhance Your Business - Explore Key Advantages</u></a></li>
-<li><a href="https://fox-access.techidaily.com/dive-into-dynamic-footage-the-review-of-polaroid-cubeplus/"><u>Dive Into Dynamic Footage The Review of Polaroid Cube+</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/effective-solutions-for-fixing-wrongly-configured-ram-a-guide-by-yl-computing/"><u>Effective Solutions for Fixing Wrongly Configured RAM: A Guide by YL Computing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/expanding-audio-horizons-soundcloud-goplus-arrives-in-five-additional-markets-perfect-choice-for-djs/"><u>Expanding Audio Horizons: SoundCloud Go+ Arrives in Five Additional Markets - Perfect Choice for DJs</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-resolve-problems-when-your-icloud-isnt-synching-correctly/"><u>How to Resolve Problems When Your iCloud Isn’t Synching Correctly</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-note-30-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Note 30 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-poco-c55-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Poco C55 with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-lack-of-sound-in-your-device-tips-from-yl-software-experts/"><u>Troubleshooting Lack of Sound in Your Device: Tips From YL Software Experts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/yl-softwares-ultimate-tutorial-for-streaming-videos-and-audio-on-windows-simple-steps-inside/"><u>YL Software's Ultimate Tutorial for Streaming Videos & Audio on Windows - Simple Steps Inside!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-earnings-in-the-virtual-playground/"><u>[New] In 2024, Earnings in the Virtual Playground</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-design-principles-for-eye-catching-yt-previews-for-2024/"><u>[Updated] Design Principles for Eye-Catching YT Previews for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-easy-efficient-and-essential-top-23-tools-to-downgrade-youtube-audios-for-2024/"><u>[Updated] Easy, Efficient, and Essential Top 23 Tools to Downgrade YouTube Audios for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/automatiser-le-processus-de-sauvegarde-pour-plusieurs-pcs-sur-un-disque-dur-externe/"><u>Automatiser Le Processus De Sauvegarde Pour Plusieurs PCs Sur Un Disque Dur Externe</u></a></li>
+<li><a href="https://win-web.techidaily.com/how-to-automate-file-backups-using-aomei-backuppers-synchronization-feature-for-macos-users/"><u>How to Automate File Backups Using AOMEI Backupper's Synchronization Feature for macOS Users</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-recover-lost-and-erased-folders-in-windows-1011-efficiently-and-effectively/"><u>How to Recover Lost and Erased Folders in Windows 10/11 Efficiently & Effectively</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Infinix Smart 7? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-vivo-y36i-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Vivo Y36i Phone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/revolutionizing-the-way-we-see-toolwiz-apps-full-review-2023-for-2024/"><u>Revolutionizing the Way We See Toolwiz App's Full Review, 2023 for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/schritte-zum-beheben-von-problemen-bei-updates-der-sicherheitsdefinitionen-in-windows-11-systemen/"><u>Schritte Zum Beheben Von Problemen Bei Updates Der Sicherheitsdefinitionen in Windows 11-Systemen</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/succesvol-terugrecuperatie-voor-pny-sd-card-haal-je-bestanden-terug/"><u>Succesvol Terugrecuperatie Voor PNY SD Card - Haal Je Bestanden Terug!</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-best-value-for-money-our-review-of-the-samsung-galaxy-a51-with-5g-capabilities/"><u>The Best Value for Money: Our Review of the Samsung Galaxy A51 with 5G Capabilities</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/tutorial-passo-passo-su-come-connettere-il-tuo-computer-con-una-chiavetta-usb-o-ununita-flash-senza-problemi/"><u>Tutorial Passo-Passo Su Come Connettere Il Tuo Computer Con Una Chiavetta USB O Un'Unità Flash Senza Problemi</u></a></li>
 </ul></div>
 
