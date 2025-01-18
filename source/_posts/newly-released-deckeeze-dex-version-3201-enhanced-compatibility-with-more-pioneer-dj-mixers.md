@@ -1,7 +1,7 @@
 ---
 title: Newly Released Deckeeze (DEX) Version 3.20.1 - Enhanced Compatibility with More Pioneer DJ Mixers
-date: 2025-01-05T19:07:10.025Z
-updated: 2025-01-12T03:08:40.050Z
+date: 2025-01-13T16:24:46.751Z
+updated: 2025-01-18T04:47:07.834Z
 tags:
   - product
 categories:
@@ -29,7 +29,7 @@ If you already use a Pioneer DJ controller or plan on purchasing one in the near
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20.1
@@ -50,7 +50,7 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 _Have questions about the latest 3.20.1 version of our **Best DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,22 +72,17 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2023/03/Pioneer-DJ-Controllers-DEX
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-spreading-twitter-vid-facebook-integration-methods/"><u>[Updated] 2024 Approved Spreading Twitter Vid Facebook Integration Methods</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-achieve-social-stardom-essential-tips-for-thriving-instagram-unboxings/"><u>2024 Approved Achieve Social Stardom Essential Tips for Thriving Instagram Unboxings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-all-weather-action-cameras-ranking-top-7-summary/"><u>2024 Approved All-Weather Action Cameras Ranking, Top 7 Summary</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/boosting-your-digital-presence-with-cookiebot-technology/"><u>Boosting Your Digital Presence with Cookiebot Technology</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/come-scaricare-e-visualizzare-i-file-swf-nel-2024-con-movievi/"><u>Come Scaricare E Visualizzare I File SWF Nel 2024 Con Movievi</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-boost-your-sites-traffic-efficiently/"><u>Cookiebot-Driven Success: Boost Your Site's Traffic Efficiently</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-site-enhance-your-websites-engagement-with-advanced-analytics/"><u>Cookiebot-Enabled Site: Enhance Your Website's Engagement with Advanced Analytics</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-the-secret-ingredient-for-supercharging-your-site-performance/"><u>Cookiebot: The Secret Ingredient for Supercharging Your Site Performance</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/crafting-impactful-digital-content-strategies-for-page-excellence/"><u>Crafting Impactful Digital Content: Strategies for Page Excellence</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discover-the-scope-of-abbyys-technological-impact-annual-ocr-conversion-statistics-for-2017/"><u>Discover the Scope of ABBYY's Technological Impact: Annual OCR Conversion Statistics for 2017</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/discovering-cutting-edge-innovations-the-intersection-of-ai-and-process-mining-today/"><u>Discovering Cutting-Edge Innovations: The Intersection of AI and Process Mining Today</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-site-visits-experience-the-benefits-of-cookiebot-powered-marketing-solutions/"><u>Elevate Your Site Visits - Experience the Benefits of Cookiebot Powered Marketing Solutions</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-cmusbdacsys-crashes-and-stop-blue-screens-in-windows/"><u>How to Fix 'CMUSBDAC.sys' Crashes and Stop Blue Screens in Windows</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-from-apple-iphone-8-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock from Apple iPhone 8</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Itel A60 | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-superior-audio-format-changer-instant-mp3-creation-with-zero-hassle/"><u>New 2024 Approved Superior Audio Format Changer Instant MP3 Creation with Zero Hassle</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/professional-panoramic-vision-leading-360-cameras-of-2023/"><u>Professional Panoramic Vision Leading 360° Cameras of 2023</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-creations-get-free-high-quality-templates-today/"><u>[New] Elevate Creations - Get FREE High-Quality Templates Today</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-nostalgic-film-techniques-for-contemporary-projects-using-vhs/"><u>[Updated] In 2024, Nostalgic Film Techniques for Contemporary Projects Using VHS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-navigating-through-the-top-8-blended-mobile-video-collage-choices-on-android/"><u>[Updated] Navigating Through the Top 8 Blended Mobile Video Collage Choices on Android</u></a></li>
+<li><a href="https://some-tips.techidaily.com/discover-the-superior-alternative-to-ecobee-and-amazons-offerings-in-smart-thermostats-insights-by-zdnet/"><u>Discover the Superior Alternative to EcoBee and Amazon's Offerings in Smart Thermostats | Insights by ZDNET</u></a></li>
+<li><a href="https://fox-that.techidaily.com/stop-silent-notifications-discover-11-tricks-for-non-responsive-iphone-calls/"><u>Stop Silent Notifications! Discover 11 Tricks for Non-Responsive iPhone Calls</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamline-your-vids-with-these-15-royalty-free-tracks-sites-for-2024/"><u>Streamline Your Vids with These 15 Royalty-Free Tracks Sites for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/tech-rivalry-unveiled-apples-ongon-dispute-with-adobe-over-flash-support/"><u>Tech Rivalry Unveiled: Apple's Ongon Dispute with Adobe over Flash Support</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-5-elite-gaming-mechanical-keyboards-recommendations-by-zdnet/"><u>Top 5 Elite Gaming Mechanical Keyboards : Recommendations by ZDNet</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-avi-to-dvd-transcoder-for-windows-11-users-in-2e24/"><u>Top Rated AVI to DVD Transcoder for Windows 11 Users in 2E24</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-two-strategies-for-successful-amv-downloads/"><u>Top Two Strategies for Successful AMV Downloads</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-your-lenovo-mouse-pad-solutions-for-windows-10-8-and-7/"><u>Troubleshooting Your Lenovo Mouse Pad: Solutions for Windows 10, 8, and 7</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-prx-files-comprehensive-guide-on-opening-with-the-right-software/"><u>Understanding PRX Files: Comprehensive Guide on Opening with the Right Software</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Guide to Cloning Only the System Boot Partition on SSDs with Windows 11/10
-date: 2025-01-09T17:13:23.557Z
-updated: 2025-01-12T02:51:45.222Z
+date: 2025-01-16T19:40:47.442Z
+updated: 2025-01-17T21:20:30.452Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/403ee604a3f16d045c6709201099032edd204086d93c80ae19bbdd0f525004e0.png
@@ -24,13 +24,13 @@ Encounter the "winload.efi is missing or contains errors" error during computer 
 
 ![Maggie](https://www.ubackup.com/assets/images/author/maggie.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 By[Maggie](https://tools.techidaily.com/ubackup/products/)Updated on December 28, 2023
 
 Share this: ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Table of Contents** 
 
@@ -46,6 +46,10 @@ Share this: ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-arti
 4. [Suggestion: backup your crucial loading files in advance](https://tools.techidaily.com/ubackup/products/)
 5. [Conclusion](https://tools.techidaily.com/ubackup/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## User case: Windows 11 winload.efi missing, F8 button not working
 
 My HP is not starting up. I’ve received the ‘winload efi is missing or corrupt’. All the troubleshooting steps require me to go into startup settings but in order for me to do that, I have to press F8 however when I do press it my screen flashes and it doesn’t take me there (this is on the blue ‘recovery’ screen with the error message). Can anyone help me please. I need to get back into my laptop. I can’t afford to reinstall the OS. Too much important files and data that I didn’t back up unfortunately.
@@ -55,7 +59,7 @@ My HP is not starting up. I’ve received the ‘winload efi is missing or corru
 If you meet similar problems that you can’t find winload.efi, you have been in the right place. Here is a collection of methods to solve ‘winload.efi missing Windows 11 issue. Let’s start to go!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## About winload.efi file
@@ -98,9 +102,17 @@ Step 2\. Select a type of bootable media you want to create and click **Next** t
 
 [![Winpe](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/adv/tools/create-bootable-media/winpe.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3\. Select the CD, DVD, USB drive or ISO file as bootable media. Then click **Next** to create system repair disc in Windows 11.
 
 [![Choose Bootable Media](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/adv/tools/create-bootable-media/choose-bootable-media.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After creating bootable media (just a few minutes), boot your computer from this media, then AOMEI Backupper will run automatically, then go to **Tools** \-> **Windows Shell Command**. And you can restore system image or disk image created by AOMEI Backupper. 
 
@@ -119,10 +131,6 @@ Step 2\. Navigate to the Secure Boot option in BIOS, located under tabs like **B
 Step 3\. In the **Secure Boot** interface, change it from **Enabled** to **Disable**.
 
 [![Disable Secure Boot](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/articles/images/winload-efi-missing-after-clone-5740/secure-boot.jpg "Disable Secure Boot")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 4\. Save the changes and exit the UEFI settings.
 
@@ -148,6 +156,10 @@ Step 5\. Once the process is complete, unplug the USB and restart the computer.
 
 Check if the system boots normally after performing these steps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Option 4\. Run SFC to Check System File Integrity
 
 To utilize the System File Checker (SFC) and check system file integrity, follow these steps:
@@ -171,13 +183,13 @@ If the "sfc /scannow" command fails to repair the Winload.efi missing file, proc
 [![SFC Scannow](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/winload-efi-after-clone/sfc-scannow.png "SFC Scannow")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Exercise caution to avoid potential system errors when using this command.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Option 5\. Repair EFI Boot Loader
@@ -214,10 +226,6 @@ Step 4\. Assign the partition a drive letter. Enter each of the following comman
 
 Step 5\. Restart your computer after successfully repairing the EFI loader.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Suggestion: backup your crucial loading files in advance
 
 A reliable backup software like [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) allows you to create a bootable disc and system backup, preventing startup loop errors and addressing various computer failures. In the event of a system crash, you can restore the system image to a new hard drive and regain normal functionality. AOMEI Backupper Standard offers numerous advantages for seamless backup and recovery processes.
@@ -235,7 +243,7 @@ You just need to download this software and install it. Open it and navigate to 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-20.svg) 100% Secure
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![System Backup](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/backup/system-backup/system-backup.png)
@@ -276,10 +284,6 @@ Was the provided information useful? Your vote is important to us!
 
 [Yes](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Free Get AOMEI Backupper Now
 
 Safeguard any data of your computer with backup, sync and clone.
@@ -288,14 +292,10 @@ Safeguard any data of your computer with backup, sync and clone.
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Clean & Secure
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -313,21 +313,24 @@ Safeguard any data of your computer with backup, sync and clone.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-mplayer-xtreme-next-gen-media-player/"><u>[New] MPlayer Xtreme Next-Gen Media Player</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-setting-up-the-pip-feature-in-the-youtube-app-for-easy-video-streaming/"><u>[New] Setting up the PIP Feature in the YouTube App for Easy Video Streaming</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transformative-video-editing-techniques-for-viral-tiktok-creations/"><u>[New] Transformative Video Editing Techniques for Viral TikTok Creations</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-crafting-stellar-instagram-content-for-maximum-influence-for-2024/"><u>[Updated] Crafting Stellar Instagram Content for Maximum Influence for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/assessing-inshot-a-thorough-comparative-study-for-2024/"><u>Assessing InShot A Thorough Comparative Study for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-iphone-6s-plus-drfone-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/erfolgreiches-datensicherungsprogramm-fur-die-ruckgewinnung-von-vom-computer-entfernten-bildern/"><u>Erfolgreiches Datensicherungsprogramm Für Die Rückgewinnung Von Vom Computer Entfernten Bildern</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-enhance-your-fb-with-iphonesandroids-favorite-tunes/"><u>In 2024, Enhance Your FB with iPhones/Androids' Favorite Tunes</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-interpreting-single-photos-as-video-chronicles/"><u>In 2024, Interpreting Single Photos as Video Chronicles</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-from-apple-iphone-se-2020-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue From Apple iPhone SE (2020)</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/outlook-ost/"><u>Outlook OST開啟失敗？！推薦的五種修正方式</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/system-restore-auf-windows-10-uber-die-eingabeaufforderung-effiziente-losungsmethoden-fur-computerprobleme/"><u>System Restore Auf Windows 10 Über Die Eingabeaufforderung: Effiziente Lösungsmethoden Für Computerprobleme</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/transfert-dos-et-fichiers-facile-avec-le-meilleur-logiciel-pour-windows-11-solution-de-transfert-ultime/"><u>Transfert D'OS Et Fichiers Facile Avec Le Meilleur Logiciel Pour Windows 11: Solution De Transfert Ultime</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/upgrading-to-faster-performance-swapping-hdd-for-ssd-in-acer-aspire-notebooks-with-various-windows-versions/"><u>Upgrading to Faster Performance: Swapping HDD for SSD in Acer Aspire Notebooks with Various Windows Versions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728505835786-usbsd/"><u>USBケーブル使用:マイクロSDカードからラップトップに容易にデータ転送の手順</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/wiederherstellung-von-beschadigten-oder-geloschten-dateien-einfach-and-schnell/"><u>Wiederherstellung Von Beschädigten Oder Gelöschten Dateien: Einfach & Schnell</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-achieving-professional-results-video-recordingediting-on-adobe-connect/"><u>[New] 2024 Approved Achieving Professional Results Video Recording/Editing on Adobe Connect</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-mastering-google-meets-grid-view-functionality-for-2024/"><u>[New] Mastering Google Meet's Grid View Functionality for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-masterclass-in-virtual-reality-critical-oculus-player-insights/"><u>[Updated] Masterclass in Virtual Reality Critical Oculus Player Insights</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/1728462207807-hdd/"><u>「東芝HDD用に特化した安心のバックアップツール選び - 無料で最高のオプションを紹介！」</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1-how-to-restore-irretrievably-erased-documents-in-your-google-drive-a-comprehensive-guide/"><u>1. How to Restore Irretrievably Erased Documents in Your Google Drive: A Comprehensive Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-7-key-strategies-for-perfect-macro-video-shooting/"><u>2024 Approved 7 Key Strategies for Perfect Macro Video Shooting</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-game-changing-potential-try-our-top-ranked-free-voice-alteration-tool/"><u>2024 Approved Unlock Game-Changing Potential Try Our Top-Ranked Free Voice Alteration Tool</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728496784880-hddssdwindows-1011/"><u>無料で直接移行：HDDからSSDへのシームレスなWindows 10/11クローニング手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/aomei-backupper-serveraomei-cyber-backupwindows-server/"><u>AOMEI Backupper Server與AOMEI Cyber Backup專為Windows Server設計 - 搶先上市</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/come-eseguire-il-backup-di-un-file-iso-in-dvd-utilizzando-aomei-backupper/"><u>Come Eseguire Il Backup Di Un File .ISO in DVD Utilizzando AOMEI Backupper</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/detecting-fabricated-prose-leveraging-gptzeros-capabilities-for-authentic-writing-assurance/"><u>Detecting Fabricated Prose: Leveraging GPTZero's Capabilities for Authentic Writing Assurance</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-best-apple-watch-apps-for-improved-sleep-quality/"><u>Discover the Best Apple Watch Apps for Improved Sleep Quality</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/evolving-your-tiktok-conclusion-designs-for-2024/"><u>Evolving Your TikTok Conclusion Designs for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fehlerbehebung-fur-windows-problem-beim-starten-der-systemwiederherstellung/"><u>Fehlerbehebung Für Windows: Problem Beim Starten Der Systemwiederherstellung</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728463904704-iphone/"><u>IPhone升級錯誤後無法啟動的修正方法</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/metodos-eficaces-para-eliminar-de-manera-segura-un-pendrive-usb-en-windows-10-una-guia-paso-a-paso/"><u>Métodos Eficaces Para Eliminar De Manera Segura Un Pendrive USB en Windows 10: Una Guía Paso a Paso</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/rescatando-tu-informacion-importante-usando-diskpart-y-la-herramienta-limpiadora/"><u>Rescatando Tu Información Importante Usando Diskpart Y La Herramienta Limpiadora</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/xsplit-digest-in-depth-splits-reviews/"><u>XSplit Digest In-Depth Splits Reviews</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728466066776-sd/"><u>データ回復不可能な状態にSDカードを変更する正しい方法</u></a></li>
 </ul></div>
 

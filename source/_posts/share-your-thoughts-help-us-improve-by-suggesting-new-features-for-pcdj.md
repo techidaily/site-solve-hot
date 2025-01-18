@@ -1,7 +1,7 @@
 ---
 title: "Share Your Thoughts: Help Us Improve by Suggesting New Features for PCDJ!"
-date: 2025-01-06T05:05:30.007Z
-updated: 2025-01-12T05:11:17.315Z
+date: 2025-01-10T17:24:18.484Z
+updated: 2025-01-18T02:27:06.412Z
 tags:
   - product
 categories:
@@ -40,7 +40,7 @@ We’ve setup **“wishlist” threads** on the user forums; click the option be
 [Suggestions For Karaoki](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -62,19 +62,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2016/03/wewantfeedback-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-discover-the-leading-video-calling-apps-of-today/"><u>[New] 2024 Approved Discover the Leading Video Calling Apps of Today</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-dynamic-capture-premium-choices-in-4k-technology/"><u>[New] 2024 Approved Dynamic Capture Premium Choices in 4K Technology</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/treamline-your-vlog-with-video-length-optimization/"><u>[New] Streamline Your Vlog with Video Length Optimization</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-depth-of-photography-with-polarrs-advanced-editing/"><u>[Updated] Exploring the Depth of Photography with Polarr’s Advanced Editing</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/geheimgegeven-van-de-hard-disk-windows-vijf-herinnerwijzingen-om-terug-te-vinden/"><u>Geheimgegeven Van De Hard Disk Windows - Vijf Herinnerwijzingen Om Terug Te Vinden</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-seizing-youtubes-algorithm-advantage-with-smart-seo-tactics/"><u>In 2024, Seizing YouTube's Algorithm Advantage with Smart SEO Tactics</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-se-drfone-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/korek-api-mendapatkan-folder-yang-tak-terlihat-lagi-di-windows-1011/"><u>Korek Api Mendapatkan Folder Yang Tak Terlihat Lagi Di Windows 10/11</u></a></li>
-<li><a href="https://win-blog.techidaily.com/pc-gamers-rejoice-detroit-become-human-now-plays-smoothly-no-more-pc-crashes/"><u>PC Gamers Rejoice: Detroit: Become Human Now Plays Smoothly, No More PC Crashes!</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/sdwindows/"><u>SDカードのデータ復元:無料プログラムとWindows内蔵ツールで簡単に始めよう</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/solving-the-issue-trouble-transferring-files-from-mac-to-external-drive-and-effective-solutions/"><u>Solving the Issue: Trouble Transferring Files From Mac to External Drive & Effective Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-rated-no-cost-disk-imaging-applications-for-windows-11-complete-review/"><u>Top Rated No-Cost Disk Imaging Applications for Windows 11 (Complete Review)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-seamless-connectivity-with-linksys-velop-a-review-of-its-superior-performance/"><u>Unlocking Seamless Connectivity with Linksys Velop - A Review of Its Superior Performance</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-tone-maps-a-list-of-top-10-luts/"><u>[Updated] Mastering Tone Maps A List of Top 10 LUTs</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728494100772-windows-10windows-11/"><u>簡單操作！學習如何在只用二種步驟下，改裝Windows 10到電腦上的Windows 11.</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/adrian-jones-elevated-to-cro-position-at-abbyy-leading-revenue-innovation/"><u>Adrian Jones Elevated to CRO Position at ABBYY - Leading Revenue Innovation</u></a></li>
+<li><a href="https://win-dash.techidaily.com/amd-radeon-hd-7870-driver-download-keep-your-graphics-card-running-smoothly-on-windows-11/"><u>AMD Radeon HD 7870 Driver Download – Keep Your Graphics Card Running Smoothly on Windows 11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/aomei-partition-assistant-professional-netzwerkbootfunktion/"><u>AOMEI Partition Assistant Professional - Netzwerkbootfunktion</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-iphone-12-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From iPhone 12? How to Fix it?</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/como-actualizar-tu-computadora-de-hdd-a-ssd-en-windows-tutoriales-para-versiones-111087/"><u>Cómo Actualizar Tu Computadora De HDD a SSD En Windows: Tutoriales Para Versiones 11/10/8/7</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/como-hacer-backup-de-todos-los-programas-instalados-en-windows-11-para-salvaguardar-tu-sistema-sin-necesidad-de-reinstalacion/"><u>Cómo Hacer Backup De Todos Los Programas Instalados en Windows 11 Para Salvaguardar Tu Sistema Sin Necesidad De Reinstalación</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/guida-passo-passo-per-il-ripristino-dei-tuoi-dati-con-i-backup/"><u>Guida Passo-Passo per Il Ripristino Dei Tuoi Dati Con I Backup</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/in-depth-hardware-comparisons-and-advice-from-toms-tech-corner/"><u>In-Depth Hardware Comparisons and Advice From Tom's Tech Corner</u></a></li>
+<li><a href="https://win-answers.techidaily.com/no-more-disruptions-expert-advice-on-preventing-state-of-decay-2-crashes/"><u>No More Disruptions: Expert Advice on Preventing State of Decay 2 Crashes</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/playing-pokemon-unite-on-pc-techniques-tricks-and-setup-advice/"><u>Playing Pokémon Unite on PC: Techniques, Tricks & Setup Advice</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolve-your-google-chromes-black-screen-dilemma-with-these-easy-fixes/"><u>Resolve Your Google Chrome's Black Screen Dilemma with These Easy Fixes</u></a></li>
 </ul></div>
 
