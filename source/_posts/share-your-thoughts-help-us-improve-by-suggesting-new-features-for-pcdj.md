@@ -1,7 +1,7 @@
 ---
 title: "Share Your Thoughts: Help Us Improve by Suggesting New Features for PCDJ!"
-date: 2025-01-10T17:24:18.484Z
-updated: 2025-01-18T02:27:06.412Z
+date: 2025-01-22T19:10:04.288Z
+updated: 2025-01-24T07:31:52.845Z
 tags:
   - product
 categories:
@@ -40,7 +40,7 @@ We’ve setup **“wishlist” threads** on the user forums; click the option be
 [Suggestions For Karaoki](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -62,18 +62,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2016/03/wewantfeedback-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-tone-maps-a-list-of-top-10-luts/"><u>[Updated] Mastering Tone Maps A List of Top 10 LUTs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728494100772-windows-10windows-11/"><u>簡單操作！學習如何在只用二種步驟下，改裝Windows 10到電腦上的Windows 11.</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/adrian-jones-elevated-to-cro-position-at-abbyy-leading-revenue-innovation/"><u>Adrian Jones Elevated to CRO Position at ABBYY - Leading Revenue Innovation</u></a></li>
-<li><a href="https://win-dash.techidaily.com/amd-radeon-hd-7870-driver-download-keep-your-graphics-card-running-smoothly-on-windows-11/"><u>AMD Radeon HD 7870 Driver Download – Keep Your Graphics Card Running Smoothly on Windows 11</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/aomei-partition-assistant-professional-netzwerkbootfunktion/"><u>AOMEI Partition Assistant Professional - Netzwerkbootfunktion</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-iphone-12-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From iPhone 12? How to Fix it?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/como-actualizar-tu-computadora-de-hdd-a-ssd-en-windows-tutoriales-para-versiones-111087/"><u>Cómo Actualizar Tu Computadora De HDD a SSD En Windows: Tutoriales Para Versiones 11/10/8/7</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/como-hacer-backup-de-todos-los-programas-instalados-en-windows-11-para-salvaguardar-tu-sistema-sin-necesidad-de-reinstalacion/"><u>Cómo Hacer Backup De Todos Los Programas Instalados en Windows 11 Para Salvaguardar Tu Sistema Sin Necesidad De Reinstalación</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/guida-passo-passo-per-il-ripristino-dei-tuoi-dati-con-i-backup/"><u>Guida Passo-Passo per Il Ripristino Dei Tuoi Dati Con I Backup</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/in-depth-hardware-comparisons-and-advice-from-toms-tech-corner/"><u>In-Depth Hardware Comparisons and Advice From Tom's Tech Corner</u></a></li>
-<li><a href="https://win-answers.techidaily.com/no-more-disruptions-expert-advice-on-preventing-state-of-decay-2-crashes/"><u>No More Disruptions: Expert Advice on Preventing State of Decay 2 Crashes</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/playing-pokemon-unite-on-pc-techniques-tricks-and-setup-advice/"><u>Playing Pokémon Unite on PC: Techniques, Tricks & Setup Advice</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolve-your-google-chromes-black-screen-dilemma-with-these-easy-fixes/"><u>Resolve Your Google Chrome's Black Screen Dilemma with These Easy Fixes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-a-detailed-review-top-10-screen-recorders-for-mac-for-2024/"><u>[New] A Detailed Review Top 10 Screen Recorders for Mac for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-accessible-quality-sunglasses-to-enhance-vr-experience/"><u>[New] In 2024, Accessible, Quality Sunglasses to Enhance VR Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-elite-8-cameras-revolutionizing-online-broadcasts/"><u>[New] In 2024, Elite 8 Cameras Revolutionizing Online Broadcasts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-accelerate-vimeo-videos-the-guide-for-2024/"><u>[Updated] Accelerate Vimeo Videos The Guide for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/diplomacy-is-key-to-achieving-progress-in-nuclear-disarmament-agreements-and-requires-nuanced-understanding-of-international-relations/"><u>Diplomacy Is Key to Achieving Progress in Nuclear Disarmament Agreements and Requires Nuanced Understanding of International Relations</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/error-404-unable-to-locate-your-requested-webpage/"><u>Error 404: Unable to Locate Your Requested Webpage</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/geheimgegeven-van-de-hard-disk-windows-vijf-herinnerwijzingen-om-terug-te-vinden/"><u>Geheimgegeven Van De Hard Disk Windows - Vijf Herinnerwijzingen Om Terug Te Vinden</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-honor-x7b-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Honor X7b.</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Xiaomi Civi 3? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/installing-kodi-on-your-xbox-one-a-detailed-easy-to-follow-tutorial/"><u>Installing Kodi on Your Xbox One: A Detailed, Easy-to-Follow Tutorial</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/is-turings-trial-timeless-exploring-new-frontiers/"><u>Is Turing's Trial Timeless? Exploring New Frontiers</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/korek-api-mendapatkan-folder-yang-tak-terlihat-lagi-di-windows-1011/"><u>Korek Api Mendapatkan Folder Yang Tak Terlihat Lagi Di Windows 10/11</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/quick-tips-for-successfully-syncing-iphone-pictures-with-usb-storage-devices/"><u>Quick Tips for Successfully Syncing iPhone Pictures with USB Storage Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/reinitialisation-des-versions-precedentes-manquantes-guide-complet/"><u>Réinitialisation Des Versions Précédentes Manquantes - Guide Complet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-cubefit-terramat-a-revolutionary-way-to-keep-moving-on-your-feet/"><u>Review of CubeFit TerraMat - A Revolutionary Way to Keep Moving on Your Feet</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/sdwindows/"><u>SDカードのデータ復元:無料プログラムとWindows内蔵ツールで簡単に始めよう</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-repairing-a-duplicated-ssd-that-fails-to-start-video-lesson/"><u>Step-by-Step Guide: Repairing a Duplicated SSD That Fails to Start - Video Lesson</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/tipps-und-tricks-zur-stabilitatsvermeidung-beim-bearbeiten-grosser-xlsx-dateien-auf-ihrem-computer/"><u>Tipps Und Tricks Zur Stabilitätsvermeidung Beim Bearbeiten Großer XLSX Dateien Auf Ihrem Computer</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-rated-no-cost-disk-imaging-applications-for-windows-11-complete-review/"><u>Top Rated No-Cost Disk Imaging Applications for Windows 11 (Complete Review)</u></a></li>
 </ul></div>
 

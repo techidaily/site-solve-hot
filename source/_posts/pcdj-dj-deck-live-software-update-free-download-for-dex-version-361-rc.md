@@ -1,7 +1,7 @@
 ---
 title: "PCDJ DJ Deck Live Software Update: Free Download for DEX Version 3.6.1 RC!"
-date: 2025-01-15T22:01:50.634Z
-updated: 2025-01-17T20:17:46.038Z
+date: 2025-01-16T22:53:08.111Z
+updated: 2025-01-23T23:43:07.573Z
 tags:
   - product
 categories:
@@ -33,7 +33,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Changes Included With The DEX 3.6.1 Release Candidate
@@ -49,7 +49,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 _Have questions about DEX 3.6.1 DJ, **music video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -71,21 +71,22 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361rc-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/asterclass-in-making-engaging-video-lessons-your-step-by-step-guide-for-youtube/"><u>[New] Masterclass in Making Engaging Video Lessons Your Step-by-Step Guide for YouTube</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-comprehensive-guide-to-showmores-efficient-recording-tools/"><u>[Updated] 2024 Approved Comprehensive Guide to ShowMore's Efficient Recording Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unlock-the-power-of-filmora-for-effective-avi-to-gif-conversion/"><u>[Updated] 2024 Approved Unlock the Power of Filmora for Effective AVI-to-GIF Conversion</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/24-hour-heavyweights-top-10-most-watched-on-yt-for-2024/"><u>24 Hour Heavyweights Top 10 Most Watched on YT for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comprehensive-fixes-for-persistent-pc-stalls-during-usb-connection/"><u>Comprehensive Fixes for Persistent PC Stalls During USB Connection</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/easy-guide-online-tools-to-save-your-youtube-videos/"><u>Easy Guide Online Tools to Save Your YouTube Videos</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/easy-methods-for-saving-outlook-express-mailboxes-on-external-drives/"><u>Easy Methods for Saving Outlook Express Mailboxes on External Drives</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fehlerbehebung-fur-windows-problem-beim-starten-der-systemwiederherstellung/"><u>Fehlerbehebung Für Windows: Problem Beim Starten Der Systemwiederherstellung</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-the-slow-download-problem-in-league-of-legends-once-and-for-all/"><u>Fixing the Slow Download Problem in League of Legends Once and For All</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Motorola Razr 40? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-youtubes-opposite-order-rearranging-videos-in-reverse-flow/"><u>In 2024, Youtube's Opposite Order Rearranging Videos in Reverse Flow</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/metodos-eficaces-para-eliminar-de-manera-segura-un-pendrive-usb-en-windows-10-una-guia-paso-a-paso/"><u>Métodos Eficaces Para Eliminar De Manera Segura Un Pendrive USB en Windows 10: Una Guía Paso a Paso</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/rescatando-tu-informacion-importante-usando-diskpart-y-la-herramienta-limpiadora/"><u>Rescatando Tu Información Importante Usando Diskpart Y La Herramienta Limpiadora</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728491210146-windows-10/"><u>Windows 10自动删除文件的修复方法</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1728477386609-windowspc/"><u>ディスクへダウンロード後、WindowsPC上のファイル位置探しマニュアル</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-leveraging-viewership-the-mechanics-of-product-sponsored-youtube-videos/"><u>[New] Leveraging Viewership The Mechanics of Product-Sponsored YouTube Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-how-to-successfully-record-and-manage-internet-radio/"><u>[Updated] 2024 Approved How to Successfully Record and Manage Internet Radio</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-expert-tips-on-perfecting-zoom-video-conferencing-for-youtube-for-2024/"><u>[Updated] Expert Tips on Perfecting Zoom Video Conferencing for YouTube for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-power-of-luts-color-grading-made-easy-in-pro/"><u>2024 Approved Exploring the Power of LUTs Color Grading Made Easy in Pro</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/amazon-luna-experience-a-deep-dive-into-its-seamless-gaming-streams/"><u>Amazon Luna Experience - A Deep Dive Into Its Seamless Gaming Streams</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/comment-conserver-des-documents-lorsque-windows-ne-demarre-pas-une-solution-facile/"><u>Comment Conserver Des Documents Lorsque Windows Ne Démarre Pas : Une Solution Facile</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comparing-ipad-air-4-and-ipad-air-cued-by-apple-which-one-deserves-your-upgrade-gadget-flow-insights/"><u>Comparing iPad Air 4 and iPad Air Cued by Apple, Which One Deserves Your Upgrade? | Gadget Flow Insights</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/dna-is-primarily-located-in-the-nucleus-of-eukaryotic-cells-while-rna-can-move-between-the-nucleus-and-cytoplasm/"><u>DNA Is Primarily Located in the Nucleus of Eukaryotic Cells, While RNA Can Move Between the Nucleus and Cytoplasm.</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/erfolgreiches-datenwiederauffinden-tipps-und-tricks-fur-das-wiederauffinden-geloschter-festplattendateien-rescuegenie/"><u>Erfolgreiches Datenwiederauffinden: Tipps Und Tricks Für Das Wiederauffinden Gelöschter Festplattendateien – RescueGenie</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/explora-las-vias-de-clonacion-digital-elegir-el-mejor-metodo-de-repeticion-electronica/"><u>Explora Las Vías De Clonación Digital: Elegir El Mejor Método De Repetición Electrónica</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/fixing-backup-is-disabled-errors-for-a-smooth-windows-11-experience/"><u>Fixing 'Backup Is Disabled' Errors for a Smooth Windows 11 Experience</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-y27-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Y27 5G</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/igniting-interest-and-inviting-in-accelerating-audience-acquisition-for-2024/"><u>Igniting Interest and Inviting In Accelerating Audience Acquisition for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mbr-windows-11/"><u>MBR磁碟升級：您的 Windows 11 安裝指南</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/schlussel-zur-nahtlosen-installation-von-dual-boot-windows-11-und-windows-7-kombiniert/"><u>Schlüssel Zur Nahtlosen Installation Von Dual-Boot: Windows 11 Und Windows 7 Kombiniert</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ultimate-guide-to-free-ransomware-defense-disks-secure-your-files-now/"><u>Ultimate Guide to Free Ransomware Defense Disks: Secure Your Files Now!</u></a></li>
 </ul></div>
 

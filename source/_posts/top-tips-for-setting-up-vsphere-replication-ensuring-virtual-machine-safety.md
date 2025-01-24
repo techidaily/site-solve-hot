@@ -1,7 +1,7 @@
 ---
 title: "Top Tips for Setting Up vSphere Replication: Ensuring Virtual Machine Safety"
-date: 2025-01-12T16:51:10.026Z
-updated: 2025-01-18T00:18:43.959Z
+date: 2025-01-19T04:03:52.152Z
+updated: 2025-01-24T06:12:30.429Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/8ab6ea565c08148258cccefd3c4e69bde02c4b3dbfe57b65bd55e5629cfc57b6.jpg
@@ -29,7 +29,7 @@ Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Table des matières** 
@@ -46,10 +46,6 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 À ce stade, vous avez besoin d'un logiciel de sauvegarde NAS Buffalo, de préférence le plus simple. Les Buffalo LinkStation et Buffalo TeraStation sont équipés d'un lecteur NAS pour vous aider à sauvegarder des photos, des vidéos, de la musique, etc. ou à les partager, mais la plupart des appareils ne prennent en charge que le système Linux et certains sont disponibles sur Windows Server 2016\. Que faire si vous utilisez Windows 7/8/10/11 ?
 
 [![buffalo](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/others/image/nas-buffalo.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
 
@@ -70,7 +66,7 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
@@ -85,10 +81,6 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
 
 **Étape 2.** Sélectionnez les fichiers ou les dossiers sur le lecteur NAS Buffalo.
@@ -101,16 +93,24 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
 [![destination](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/choix-chemin-destinations.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Étape 4.** Pour rendre la sauvegarde simple et efficace, définissez une planification de sauvegarde quotidienne, hebdomadaire ou mensuelle dans l'endroit inférieur et cliquez sur **Démarrer** pour sauvegarder le NAS Buffalo. Si vous cochez la case Réveiller l'ordinateur pour exécuter les tâches planifiées, le logiciel s'ouvrira et exécutera automatiquement cette tâche.
@@ -142,7 +142,7 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
@@ -169,10 +169,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Obtenez gratuitement AOMEI Backupper
 
 Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchronisation et le clonage.
@@ -182,6 +178,10 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Propre & Sûr
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -198,19 +198,22 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-from-scripts-to-subscribers-mastering-the-production-of-engaging-educational-videos-for-youtube-for-2024/"><u>[New] From Scripts to Subscribers Mastering the Production of Engaging Educational Videos for YouTube for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-mastering-iphone-creating-and-editing-low-speed-video-clips/"><u>[New] In 2024, Mastering iPhone Creating & Editing Low-Speed Video Clips</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-how-does-t-series-generate-revenue/"><u>2024 Approved How Does T-Series Generate Revenue?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-features-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Features: Enhancing User Experience with Smart Tracking</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-marketing-automation-solutions/"><u>Cookiebot-Enabled Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-solutions-optimize-your-online-experience/"><u>Cookiebot-Enabled Solutions: Optimize Your Online Experience</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Enhancing User Experience with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-with-expertly-managed-cookies/"><u>Cookiebot-Enhanced: Boost Your Site's Performance with Expertly Managed Cookies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-influencing-up-a-comprehensive-instagram-growth-strategy/"><u>[New] 2024 Approved Influencing Up A Comprehensive Instagram Growth Strategy</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-step-by-step-guide-to-seeing-whos-watching-for-2024/"><u>[New] A Step-by-Step Guide to Seeing Who's Watching for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-covert-observers-fb-flashbacks-reader/"><u>[New] Covert Observers FB Flashbacks Reader</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-diving-deep-essential-pro-tips-for-underwater-gopro-footage-for-2024/"><u>[New] Diving Deep Essential Pro Tips for Underwater GoPro Footage for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-reel-revolution-top-tech-for-brightening-videos-for-2024/"><u>[New] Reel Revolution Top Tech for Brightening Videos for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-icons-of-illusion-youtubes-most-influential-gurus/"><u>2024 Approved Icons of Illusion YouTube's Most Influential Gurus</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/all-you-need-to-know-teslas-rumored-robotaxi-price-launch-date-and-features/"><u>All You Need to Know: Tesla's Rumored Robotaxi Price, Launch Date & Features</u></a></li>
 <li><a href="https://solve-hot.techidaily.com/efficient-lead-generation-using-the-cookiebot-platform/"><u>Efficient Lead Generation Using the Cookiebot Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-profile-name-vs-username-the-differences-and-what-you-should-know/"><u>Facebook Profile Name Vs. Username: The Differences and What You Should Know</u></a></li>
-<li><a href="https://win11.techidaily.com/linking-legacy-and-modernity-initiating-windows-11-with-a-window-7-code/"><u>Linking Legacy and Modernity: Initiating Windows 11 with a Window 7 Code</u></a></li>
-<li><a href="https://win-forum.techidaily.com/navigating-the-web-of-connections-a-look-at-facebook-twitter-instagram-and-youtube/"><u>Navigating the Web of Connections: A Look at Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/overcoming-mfc71dll-is-unavailable-or-not-found-strategies-that-work/"><u>Overcoming 'MFC71.DLL' Is Unavailable or Not Found – Strategies That Work</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-nokia-105-classic-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Nokia 105 Classic Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-user-engagement-using-the-innovative-power-of-cookiebot-analytics-solutions/"><u>Elevate User Engagement Using the Innovative Power of Cookiebot Analytics Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-digital-campaigns-using-the-power-of-cookiebot/"><u>Elevate Your Digital Campaigns Using the Power of Cookiebot</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/empower-your-site-with-cookiebot-advanced-analytics-and-custom-user-experience-features/"><u>Empower Your Site with Cookiebot: Advanced Analytics & Custom User Experience Features</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-document-management-efficiency-the-new-wave-of-sharp-mfps-featuring-abbyy-ocr-technology-as-showcased-on-abbyys-expert-blog/"><u>Enhance Document Management Efficiency: The New Wave of Sharp MFPs Featuring ABBYY OCR Technology, as Showcased on ABBYY's Expert Blog</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhance-user-experience-with-cookiebots-advanced-tracking-technology/"><u>Enhance User Experience with Cookiebot's Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-accessibility-how-texthelp-software-and-abbyy-assist-individuals-with-dyslexia/"><u>Enhancing Accessibility: How Texthelp Software & ABBYY Assist Individuals with Dyslexia</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-website-visitors-the-role-of-cookiebot-technology/"><u>Enhancing Website Visitors: The Role of Cookiebot Technology</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionizing-wood-craftsmanship-how-researchers-use-3d-printing-and-sawdust-ink-to-mimic-real-wood-characteristics/"><u>Revolutionizing Wood Craftsmanship: How Researchers Use 3D Printing & Sawdust Ink to Mimic Real Wood Characteristics</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unlock-low-cost-photography-with-kodaks-fz53-review/"><u>Unlock Low-Cost Photography with Kodak's FZ53 Review</u></a></li>
 </ul></div>
 
