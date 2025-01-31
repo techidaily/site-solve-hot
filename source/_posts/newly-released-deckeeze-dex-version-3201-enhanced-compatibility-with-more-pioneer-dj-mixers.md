@@ -1,7 +1,7 @@
 ---
 title: Newly Released Deckeeze (DEX) Version 3.20.1 - Enhanced Compatibility with More Pioneer DJ Mixers
-date: 2025-01-21T07:19:53.753Z
-updated: 2025-01-24T04:15:04.669Z
+date: 2025-01-26T17:11:08.995Z
+updated: 2025-01-31T19:47:09.016Z
 tags:
   - product
 categories:
@@ -29,7 +29,7 @@ If you already use a Pioneer DJ controller or plan on purchasing one in the near
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in DEX 3.20.1
@@ -50,7 +50,7 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 _Have questions about the latest 3.20.1 version of our **Best DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,19 +72,17 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2023/03/Pioneer-DJ-Controllers-DEX
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-silliest-stories-on-twitter-for-2024/"><u>[New] Silliest Stories on Twitter for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-expert-tips-on-mastering-the-preview-application-on-mac-for-2024/"><u>[Updated] Expert Tips on Mastering the Preview Application on Mac for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-diy-football-viewing-watch-record-cut-on-the-cheap/"><u>[Updated] In 2024, DIY Football Viewing Watch, Record, Cut on the Cheap</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-mastering-discords-video-communication-for-pcios-users/"><u>[Updated] Mastering Discord's Video Communication for PC/iOS Users</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/44cm44ol44kz44ol44kz5yuv55s744gu44kq44o844oh44kj44kq44gg44gr5oq95ye644go5lplusd5a2y5pa55rov44cn/"><u>「ニコニコ動画のオーディオだけ抽出と保存方法」</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-unlocking-video-potential-the-creme-de-la-creme-browser-recorders/"><u>2024 Approved Unlocking Video Potential The Crème De La Crème Browser Recorders</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/easy-solutions-for-straightening-out-broken-lines-on-computer-screens/"><u>Easy Solutions for Straightening Out Broken Lines on Computer Screens</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/finding-and-downloading-free-yoruba-films-online/"><u>Finding & Downloading Free Yoruba Films Online</u></a></li>
-<li><a href="https://techidaily.com/how-to-set-up-your-second-monitor-in-windows-7-8-and-10/"><u>How to Set up Your Second Monitor in Windows 7, 8 and 10</u></a></li>
-<li><a href="https://fox-that.techidaily.com/revitalize-your-iphone-or-ipad-updates-learn-these-6-proven-strategies-now/"><u>Revitalize Your iPhone or iPad Updates – Learn These 6 Proven Strategies Now</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/seeking-top-sound-quality-in-compact-file-formats-what-are-your-options/"><u>Seeking Top Sound Quality in Compact File Formats - What Are Your Options?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ultimate-guide-mastering-video-scaling-techniques-in-adobe-premiere-pro/"><u>Ultimate Guide: Mastering Video Scaling Techniques in Adobe Premiere Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ultimate-techniques-and-tips-for-successfully-opening-bin-files/"><u>Ultimate Techniques and Tips for Successfully Opening BIN Files</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1726028678116-windows-10/"><u>Windows 10で最適なビデオキャプチャテクニック４選：高解像度版</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-boosting-video-impact-integrating-free-luts-into-your-obs-workflow/"><u>[Updated] 2024 Approved Boosting Video Impact Integrating Free LUTs Into Your OBS Workflow</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-find-peace-and-power-the-10-greatest-yoga-channels-online-for-2024/"><u>[Updated] Find Peace & Power The 10 Greatest Yoga Channels Online for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-gratuitous-goal-games-capturing-kicks-without-costs/"><u>2024 Approved Gratuitous Goal Games Capturing Kicks Without Costs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-y27-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo Y27 5G</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-if-you-are-struggling-to-figure-out-which-online-video-trimmer-is-for-you-then-here-is-a-list-of-the-10-best-free-online-video-trimmers-for-2024/"><u>New If You Are Struggling to Figure Out Which Online Video Trimmer Is for You, Then Here Is a List of the 10 Best Free Online Video Trimmers for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-invisible-blemishes-of-ai-text/"><u>The Invisible Blemishes of AI Text</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/transformative-mobile-tools-discovering-the-top-game-changers-on-your-smartphone/"><u>Transformative Mobile Tools: Discovering the Top Game-Changers on Your Smartphone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/forming-channels-with-powerful-visual-branding-strategies/"><u>Transforming Channels with Powerful Visual Branding Strategies</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-intelligent-process-automation-an-overview/"><u>Understanding Intelligent Process Automation: An Overview</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unlocking-successful-ad-campaigns-through-smart-technology-insights-into-cookiebot-solutions/"><u>Unlocking Successful Ad Campaigns Through Smart Technology: Insights Into Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/utilizing-cookiebot-technology-for-tailored-user-experience-on-websites/"><u>Utilizing Cookiebot Technology for Tailored User Experience on Websites</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/watermark-free-video-editing-top-14-free-tools/"><u>Watermark-Free Video Editing Top 14 Free Tools</u></a></li>
 </ul></div>
 

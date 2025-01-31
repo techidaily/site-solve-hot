@@ -1,7 +1,7 @@
 ---
 title: "PCDJ DJ Deck Live Software Update: Free Download for DEX Version 3.6.1 RC!"
-date: 2025-01-16T22:53:08.111Z
-updated: 2025-01-23T23:43:07.573Z
+date: 2025-01-25T18:08:39.849Z
+updated: 2025-01-31T18:22:28.371Z
 tags:
   - product
 categories:
@@ -33,7 +33,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Changes Included With The DEX 3.6.1 Release Candidate
@@ -49,7 +49,7 @@ We invite all DEX 3 DJs and potential users to download and try the DEX 3.6.1 re
 _Have questions about DEX 3.6.1 DJ, **music video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -71,22 +71,24 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361rc-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-leveraging-viewership-the-mechanics-of-product-sponsored-youtube-videos/"><u>[New] Leveraging Viewership The Mechanics of Product-Sponsored YouTube Videos</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-how-to-successfully-record-and-manage-internet-radio/"><u>[Updated] 2024 Approved How to Successfully Record and Manage Internet Radio</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-expert-tips-on-perfecting-zoom-video-conferencing-for-youtube-for-2024/"><u>[Updated] Expert Tips on Perfecting Zoom Video Conferencing for YouTube for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-power-of-luts-color-grading-made-easy-in-pro/"><u>2024 Approved Exploring the Power of LUTs Color Grading Made Easy in Pro</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/amazon-luna-experience-a-deep-dive-into-its-seamless-gaming-streams/"><u>Amazon Luna Experience - A Deep Dive Into Its Seamless Gaming Streams</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/comment-conserver-des-documents-lorsque-windows-ne-demarre-pas-une-solution-facile/"><u>Comment Conserver Des Documents Lorsque Windows Ne Démarre Pas : Une Solution Facile</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/comparing-ipad-air-4-and-ipad-air-cued-by-apple-which-one-deserves-your-upgrade-gadget-flow-insights/"><u>Comparing iPad Air 4 and iPad Air Cued by Apple, Which One Deserves Your Upgrade? | Gadget Flow Insights</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/dna-is-primarily-located-in-the-nucleus-of-eukaryotic-cells-while-rna-can-move-between-the-nucleus-and-cytoplasm/"><u>DNA Is Primarily Located in the Nucleus of Eukaryotic Cells, While RNA Can Move Between the Nucleus and Cytoplasm.</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/erfolgreiches-datenwiederauffinden-tipps-und-tricks-fur-das-wiederauffinden-geloschter-festplattendateien-rescuegenie/"><u>Erfolgreiches Datenwiederauffinden: Tipps Und Tricks Für Das Wiederauffinden Gelöschter Festplattendateien – RescueGenie</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/explora-las-vias-de-clonacion-digital-elegir-el-mejor-metodo-de-repeticion-electronica/"><u>Explora Las Vías De Clonación Digital: Elegir El Mejor Método De Repetición Electrónica</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fixing-backup-is-disabled-errors-for-a-smooth-windows-11-experience/"><u>Fixing 'Backup Is Disabled' Errors for a Smooth Windows 11 Experience</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-y27-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Y27 5G</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/igniting-interest-and-inviting-in-accelerating-audience-acquisition-for-2024/"><u>Igniting Interest and Inviting In Accelerating Audience Acquisition for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Tecno Pova 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mbr-windows-11/"><u>MBR磁碟升級：您的 Windows 11 安裝指南</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/schlussel-zur-nahtlosen-installation-von-dual-boot-windows-11-und-windows-7-kombiniert/"><u>Schlüssel Zur Nahtlosen Installation Von Dual-Boot: Windows 11 Und Windows 7 Kombiniert</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/ultimate-guide-to-free-ransomware-defense-disks-secure-your-files-now/"><u>Ultimate Guide to Free Ransomware Defense Disks: Secure Your Files Now!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enhance-creativity-with-6-premium-and-complimentary-video-downloaders-for-2024/"><u>[Updated] Enhance Creativity With 6 Premium and Complimentary Video Downloaders for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/44cm44ol44kz44ol44kz5yuv55s744gu44kq44o844oh44kj44kq44gg44gr5oq95ye644go5lplusd5a2y5pa55rov44cn/"><u>「ニコニコ動画のオーディオだけ抽出と保存方法」</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-amplifying-instagram-video-reach-and-traffic/"><u>2024 Approved Amplifying Instagram Video Reach & Traffic</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-chorus-chronicles-a-guide-to-audio-selection-for-ig/"><u>2024 Approved Chorus Chronicles A Guide to Audio Selection for IG</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/a-comprehensive-guide-to-locating-and-creating-superb-instagram-alarms/"><u>A Comprehensive Guide to Locating and Creating Superb Instagram Alarms</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/boosting-website-traffic-with-cookiebot-technology/"><u>Boosting Website Traffic with Cookiebot Technology</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/comprehensive-fixes-reviving-inactive-speakers-on-windows-10-computers/"><u>Comprehensive Fixes: Reviving Inactive Speakers on Windows 10 Computers</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/finding-and-downloading-free-yoruba-films-online/"><u>Finding & Downloading Free Yoruba Films Online</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/how-to-successfully-rip-a-handbrake-dvd-with-scrambled-content-and-avoid-video-distortion/"><u>How to Successfully Rip a Handbrake DVD with Scrambled Content & Avoid Video Distortion?</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-12-mini-to-samsung-galaxy-s20-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 12 mini to Samsung Galaxy S20? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-essential-tips-for-choosing-fpv-drone-blades/"><u>In 2024, Essential Tips for Choosing FPV Drone Blades</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-itel-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Itel to Protect Your Individual Information</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/mp4mkvmovmtsm2ts/"><u>MP4とMKVのようなMOVやMTS/M2TS形式のビデオファイルをスマートに分割するテクニック</u></a></li>
+<li><a href="https://driver-download.techidaily.com/secure-the-latest-network-driver-updates-for-seamless-wi-fi-experience-in-windows-devices/"><u>Secure the Latest Network Driver Updates for Seamless Wi-Fi Experience in Windows Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-changing-the-dvd-region-setting-on-your-pc/"><u>Step-by-Step Guide to Changing the DVD Region Setting on Your PC</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-adding-subtitles-to-your-facebook-videos/"><u>Step-by-Step Guide: Adding Subtitles to Your Facebook Videos</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/top-3-secure-erome-video-downloading-tools-safely-extracting-content/"><u>Top 3 Secure Erome Video Downloading Tools - Safely Extracting Content</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/windows-1011youtube/"><u>Windows 10/11に最適化したYouTubeコンテンツダウンロード手順</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/wma3/"><u>WMA音楽を巧みに編集:ベストの3つのコストフリーソフト選び</u></a></li>
 </ul></div>
 
