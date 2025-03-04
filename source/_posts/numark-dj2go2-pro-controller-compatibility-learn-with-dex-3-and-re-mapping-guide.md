@@ -1,7 +1,7 @@
 ---
 title: Numark DJ2GO2 Pro Controller Compatibility - Learn with Dex 3 & RE Mapping Guide
-date: 2025-02-10T07:36:57.867Z
-updated: 2025-02-12T17:40:50.132Z
+date: 2025-03-02T16:43:43.195Z
+updated: 2025-03-04T02:50:31.219Z
 tags:
   - product
 categories:
@@ -38,10 +38,6 @@ Bottom line, the **Numark DJGO2** is a quality upgrade from the previous model a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### KEY NUMARK DJ2GO2 FEATURES:
 
 * Portable two-channel DJ controller
@@ -58,10 +54,6 @@ Bottom line, the **Numark DJGO2** is a quality upgrade from the previous model a
 **NUMARK DJ2GO2 INSTALL INSTRUCTIONS:** Unzip the Map (js file ONLY in zip) To: _**DOCUMENTS -> PCDJ-DEX3 (OR PCDJ-RED3) -> CONTROLLERS**_
 
 _Have questions about the **Numark DJ2Go2** DJ controller and how it works with our **DJ mixing software**? Please leave them in the comments section below!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### _Related_
 
@@ -82,17 +74,24 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2017/10/numarkdj2go2-coverimage.jp
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-audiovisual-authority-the-finest-computers-for-professional-edits/"><u>[New] 2024 Approved Audiovisual Authority The Finest Computers for Professional Edits</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-top-picks-of-engaging-click-based-pc-gaming/"><u>[Updated] Top Picks of Engaging Click-Based PC Gaming</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-most-popular-and-praised-prime-originals-on-twitter/"><u>2024 Approved The Most Popular & Praised Prime Originals on Twitter</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/abbyy-groups-latest-update-insights-from-ulf-persson-ceo-regarding-the-current-covid-19-pandemic-breaking-news/"><u>ABBYY Group's Latest Update: Insights From Ulf Persson, CEO, Regarding the Current COVID-19 Pandemic - Breaking News</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-toshiba-55lf711u20-55-fire-tv-edition-guide-a-top-pick-for-prime-subscribers/"><u>Comprehensive Toshiba 55LF711U20 55 Fire TV Edition Guide - A Top Pick for Prime Subscribers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/1724313333073-cookiebot-enabled-enhance-your-websites-personalization-and-analytics/"><u>Cookiebot-Enabled: Enhance Your Website's Personalization & Analytics</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/elevated-visuals-selecting-the-right-card/"><u>Elevated Visuals Selecting the Right Card</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/experience-long-lasting-performance-with-our-reliable-laptop-battery-backup-discounted-price-available/"><u>Experience Long-Lasting Performance with Our Reliable Laptop Battery Backup - Discounted Price Available</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/making-your-twitter-videos-dance-convert-them-into-expressive-animated-gifs/"><u>Making Your Twitter Videos Dance Convert Them Into Expressive Animated GIFs</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-5-strategies-for-enhanced-law-firm-document-control-with-abbyy/"><u>Top 5 Strategies for Enhanced Law Firm Document Control with ABBYY</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/verhinderung-von-cyberverbrechen-und-sicherstellung-der-einhaltung-von-vorschriften-wie-kunstliche-intelligenz-ki-and-maschinelles-lernen-ml-dabei-helfen/"><u>Verhinderung Von Cyberverbrechen Und Sicherstellung Der Einhaltung Von Vorschriften: Wie Künstliche Intelligenz (KI) & Maschinelles Lernen (ML) Dabei Helfen</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-tips-and-solutions-for-common-vlc-issues-on-mac/"><u>[New] Top Tips & Solutions for Common VLC Issues on Mac</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-best-platforms-maximizing-your-youtube-reach-for-2024/"><u>[Updated] Best Platforms Maximizing Your YouTube Reach for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728483214013-windows/"><u>起動せずに Windows の下で安全にデータ複製方法</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/comprehensive-but-concise-guide-to-keyers-techniques-for-2024/"><u>Comprehensive but Concise Guide to Keyers' Techniques for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exklusive-strategien-fur-den-erfolg-geloschte-inhalte-von-einem-flash-laufwerk-wiederbeleben/"><u>Exklusive Strategien Für Den Erfolg: Gelöschte Inhalte Von Einem Flash-Laufwerk Wiederbeleben</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/from-gaming-to-adventure-the-power-of-the-new-polaroid-xs-100i-for-2024/"><u>From Gaming to Adventure, the Power of the New Polaroid XS 100I for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/insignia-vga-connector-from-usb-easy-installation-and-driver-guide/"><u>Insignia VGA Connector From USB: Easy Installation and Driver Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/methoden-zur-wiederherstellung-beschadigter-ntfs-partitionen-auf-windows/"><u>Methoden Zur Wiederherstellung Beschädigter NTFS-Partitionen Auf Windows</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/obs-studio-vs-fraps-deciding-the-ultimate-screen-grab-software/"><u>OBS Studio vs Fraps Deciding the Ultimate Screen Grab Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/protect-your-data-on-windows-11-with-easy-backup-strategies-expert-tips-from-yl-software-team/"><u>Protect Your Data on Windows 11 with Easy Backup Strategies – Expert Tips From YL Software Team</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/protect-your-data-with-ease-a-beginners-tutorial-for-windows-file-backups/"><u>Protect Your Data with Ease: A Beginner's Tutorial for Windows File Backups</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/ripristina-immagini-eliminate-sulla-tua-carta-sd-senza-utilizzare-applicazioni/"><u>Ripristina Immagini Eliminate Sulla Tua Carta SD Senza Utilizzare Applicazioni</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/schritt-fur-schritt-anleitung-zum-einschalten-von-computerschutz-fur-das-speichergerat/"><u>Schritt-Für-Schritt-Anleitung Zum Einschalten Von Computerschutz Für Das Speichergerät</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/seamless-windows-10-auto-save-features-for-your-data-on-wd-my-cloud-storage-device/"><u>Seamless Windows 10 Auto-Save Features for Your Data on WD My Cloud Storage Device</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/steps-to-upload-songs-into-your-icloud-music-collection-from-pc/"><u>Steps to Upload Songs Into Your iCloud Music Collection From PC</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-best-of-the-best-top-reaction-video-editing-apps/"><u>The Best of the Best Top Reaction Video Editing Apps</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-picks-most-affordable-computers-in-july-2024-insights/"><u>Top Picks: Most Affordable Computers in July 2024 - Insights</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/1728464928227-windows-10/"><u>Windows 10中创建磁盘快照的基本方法</u></a></li>
 </ul></div>
 

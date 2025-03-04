@@ -1,7 +1,7 @@
 ---
 title: Newly Released Deckeeze (DEX) Version 3.20.1 - Enhanced Compatibility with More Pioneer DJ Mixers
-date: 2025-02-08T11:21:31.883Z
-updated: 2025-02-13T03:37:55.141Z
+date: 2025-02-24T17:51:05.684Z
+updated: 2025-03-03T21:23:05.951Z
 tags:
   - product
 categories:
@@ -28,10 +28,6 @@ If you already use a Pioneer DJ controller or plan on purchasing one in the near
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### New, Changed, and Fixed in DEX 3.20.1
 
 * New controller supported: [Pioneer DDJ-REV1](https://www.pioneerdj.com/en/product/controller/ddj-rev1/black/overview/)
@@ -48,10 +44,6 @@ _Not a DEX 3 user? [Download Free Trial](https://tools.techidaily.com/pcdj/produ
 **IMPORTANT NOTE:** If you receive this warning _“setup\_dex3\_3.20.1\_macOS.pkg can’t be opened because Apple cannot check it for malicious software. this software needs to be updated. Contact the developer for more information”_ when installing to macOS Catalina or above, [please follow the steps on Apple’s website](https://support.apple.com/guide/mac-help/open-a-mac-app-from-an-unidentified-developer-mh40616/mac) to install DEX 3.
 
 _Have questions about the latest 3.20.1 version of our **Best DJ software**? Please leave them in the comments section below!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### _Related_
 
@@ -72,22 +64,18 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2023/03/Pioneer-DJ-Controllers-DEX
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-best-platforms-maximizing-your-youtube-reach/"><u>[New] Best Platforms Maximizing Your YouTube Reach</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-key-strategies-for-board-utilization-across-devices-in-zoom/"><u>[New] In 2024, Key Strategies for Board Utilization Across Devices in Zoom</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mastering-twitter-uploading-videos-compliance-for-2024/"><u>[Updated] Mastering Twitter Uploading Videos Compliance for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-best-shooting-gear-top-10-cameras-without-jitters/"><u>2024 Approved Best Shooting Gear Top 10 Cameras Without Jitters</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-transform-videos-into-stories-discover-the-top-10-reactions/"><u>2024 Approved Transform Videos Into Stories Discover the Top 10 Reactions</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-tecno-pop-7-pro-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Tecno Pop 7 Pro System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/cutting-down-on-graphics-card-power-demand-expert-advice-from-yl-software-solutions/"><u>Cutting Down on Graphics Card Power Demand: Expert Advice From YL Software Solutions</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/efficient-chroma-removal-in-kinemaster/"><u>Efficient Chroma Removal in KineMaster</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevating-your-visuals-mastering-instagram-edits-in-fcpx/"><u>Elevating Your Visuals Mastering Instagram Edits in FCPX</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/how-to-effortlessly-install-network-adapters-with-yl-software-a-comprehensive-tutorial-by-yl-computing/"><u>How To Effortlessly Install Network Adapters with YL Software - A Comprehensive Tutorial by YL Computing</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Oppo F23 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/protecting-yourself-in-the-world-of-digital-coins-expert-tips-from-yl-computing-and-yl-software/"><u>Protecting Yourself in the World of Digital Coins: Expert Tips From YL Computing and YL Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/resolving-graphics-card-error-messages-during-app-use-expert-tips-from-yl-software/"><u>Resolving Graphics Card Error Messages During App Use: Expert Tips From YL Software</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/stunning-catahoula-leopard-dog-visuals-premium-backgrounds-and-wallpapers-from-yl-computings-exclusive-collection/"><u>Stunning Catahoula Leopard Dog Visuals: Premium Backgrounds & Wallpapers From YL Computing's Exclusive Collection</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/top-5-essential-free-tools-all-aspiring-digital-djs-need-on-pcdj/"><u>Top 5 Essential Free Tools All Aspiring Digital DJs Need on PCdj</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-audio-drivers-made-easy-with-yl-computings-techniques/"><u>Troubleshooting Audio Drivers Made Easy with YL Computing's Techniques</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/yl-software-unveiled-seamless-integration-of-crypto-payment-systems-explained/"><u>YL Software Unveiled: Seamless Integration of Crypto Payment Systems Explained</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-improving-zoom-picture-quality-quick-solutions/"><u>[Updated] Improving Zoom Picture Quality Quick Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-ace-the-art-of-altering-and-amplifying-vhs-photos-on-computers/"><u>[Updated] In 2024, Ace the Art of Altering and Amplifying VHS Photos on Computers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-timing-and-frequency-their-effect-on-youtube-rankings/"><u>[Updated] In 2024, Timing & Frequency Their Effect on YouTube Rankings</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-seamless-volume-reduction-for-apple-and-microsoft-systems-for-2024/"><u>[Updated] Seamless Volume Reduction for Apple and Microsoft Systems for 2024</u></a></li>
+<li><a href="https://win-guides.techidaily.com/best-diskwarrior-software-replacements-4-no-cost-options/"><u>Best DiskWarrior Software Replacements: 4 No-Cost Options</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mkv-editor-tools-how-to-quickly-trim-and-edit-mkv-videos-at-no-cost/"><u>Best Free MKV Editor Tools: How to Quickly Trim & Edit MKV Videos at No Cost</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/best-free-mp4-video-trimmers-a-guide-to-easily-editing-your-videos-across-all-devices/"><u>Best Free MP4 Video Trimmers: A Guide to Easily Editing Your Videos Across All Devices</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/bypass-restrictions-the-ultimate-tutorial-on-viewing-bilibili-worldwide/"><u>Bypass Restrictions: The Ultimate Tutorial on Viewing Bilibili Worldwide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/converting-youtube-content-into-convenient-audio-format-a-step-by-step-guide/"><u>Converting YouTube Content Into Convenient Audio Format: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/create-your-own-iphone-ringtone-with-mp4-video-a-step-by-step-guide/"><u>Create Your Own iPhone Ringtone with MP4 Video: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-skip-two-step-verification-without-your-phone/"><u>How To Skip Two-Step Verification Without Your Phone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-best-of-the-best-highlight-video-makers-for-desktop-mobile-and-more-for-2024/"><u>New Best of the Best Highlight Video Makers for Desktop, Mobile, and More for 2024</u></a></li>
 </ul></div>
 

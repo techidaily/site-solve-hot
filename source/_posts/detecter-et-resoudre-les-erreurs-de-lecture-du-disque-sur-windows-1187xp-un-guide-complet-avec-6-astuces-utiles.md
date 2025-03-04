@@ -1,7 +1,7 @@
 ---
 title: "Détecter Et Résoudre Les Erreurs De Lecture Du Disque Sur Windows 11/8/7/XP : Un Guide Complet Avec 6 Astuces Utiles"
-date: 2025-01-09T19:23:49.228Z
-updated: 2025-01-12T05:15:06.313Z
+date: 2025-02-28T16:03:15.582Z
+updated: 2025-03-04T02:00:25.457Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/0091dc61c65475448e6b20380c1ba19b6aec743f43714543b259bc14c7475306.jpg
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/0091dc61c65475448e6b20380c1ba19b6aec743f4
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Recover Files from Ransomware Attack \[Full Guide 2022\]
 
@@ -88,10 +84,6 @@ You can expand the Deleted files folder and Other missing files folder to select
 
 [![Select Deleted Excel Files Click Recover](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/select-deleted-excel-files-click-recover.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 2\. Recover ransomware infected files via Backup and Restore
 
 If you have a backup available, restoring files is as simple as ABC. You can easily recover encrypted files by finding the corresponding backup file and restoring the data you need. But this option is possible only when you regularly back up your data.
@@ -118,10 +110,6 @@ Step 1\. Go to **Control Panel** \> **System and Security**, and click on **File
 
 [![File History](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/file-history.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2\. Press the **Restore personal files** button on the left panel. Please make sure your File History is turned on.
 
 [![Restore Personal Files](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-personal-files.png)
@@ -129,10 +117,6 @@ Step 2\. Press the **Restore personal files** button on the left panel. Please m
 Step 3\. Find the files you want to recover and click the arrow pointing left or right to choose the version you need. And then, click the **Recover** button.
 
 [![Restore Deleted File](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-deleted-file.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 4\. Recover from ransomware through system restore
 
@@ -152,19 +136,11 @@ Step 3\. Choose a restore point from the list and tap on **Scan for affected pro
 
 [![Scan For Affected Programs Close](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/scan-for-affected-programs-close.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 4\. Press **Next**. Confirm the selected restore point and click **Finish**. Then, hit **Yes** to begin the [recovery of deleted files](https://tools.techidaily.com/ubackup/products/).
 
 If there is no restore point, it might be because the system protection isn't turned on. You can check **Protection Settings** on the System Protection tab. If the Protection Settings for your system drive shows as **Off**, you can click on **Configure** \> **Turn on System protection**, and then OK to turn it on.
 
 [![Turn On System Protection Ok](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/turn-on-system-protection-ok.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Notes:✎...
 
@@ -179,10 +155,6 @@ To prevent ransomware from attacking your computer and files again, we list seve
 * Report ransomware attacks to let authorities identify the attacker.
 * Regularly back up important data in case of emergencies.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Ransomware can't be prevented. Though there are multiple ways for you to accomplish how to recover files from ransomware, prevention is easier than rescue. We highly recommend you backup your important data periodically.
@@ -194,10 +166,6 @@ Was the provided information useful? Your vote is important to us!
 [Yes](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
 ![Kelsey](https://www.ubackup.com/assets/images/author/kelsey-avatar.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Kelsey](https://tools.techidaily.com/ubackup/products/) · Editor
 
@@ -231,15 +199,7 @@ Recover deleted & lost data from any disasters in Windows.
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Clean & Secure
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://www.ubackup.com/resource/images/ub-mr-theme/ub-article-mr-img-dibu.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -256,19 +216,21 @@ Recover deleted & lost data from any disasters in Windows.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-mastering-your-mobiles-skin-aesthetics-the-creme-de-la-liste/"><u>[New] Mastering Your Mobile's Skin Aesthetics The Crème De La Liste</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-vivid-visual-victory-professional-image-coloration/"><u>[Updated] 2024 Approved Vivid Visual Victory Professional Image Coloration</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-fixes-for-iphoneandroidchrome-why-are-facebook-videos-blurry-for-2024/"><u>[Updated] Fixes for iPhone/Android/Chrome | Why Are Facebook Videos Blurry for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/discovering-ideal-career-beginnings-5-key-tips-by-zdnet-professionals/"><u>Discovering Ideal Career Beginnings: 5 Key Tips by ZDNet Professionals</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/discovering-superior-sound-a-non-bose-non-sony-portable-speaker-tested-by-zdnet/"><u>Discovering Superior Sound: A Non-Bose, Non-Sony Portable Speaker Tested by ZDNet</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/guide-to-personalizing-user-account-settings-on-your-pc-using-the-windows-control-panel-insights-by-yl-software-experts/"><u>Guide to Personalizing User Account Settings on Your PC Using the Windows Control Panel - Insights by YL Software Experts</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-infinix-zero-30-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Infinix Zero 30 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-quick-click-quests-top-10-agile-gaming-platforms/"><u>In 2024, Quick Click Quests Top 10 Agile Gaming Platforms</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/integrating-new-print-devices-using-the-pcs-control-panel-expert-advice-by-yl-software-experts/"><u>Integrating New Print Devices Using the PC's Control Panel: Expert Advice by YL Software Experts</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/master-the-technique-of-resolving-critical-fatal-error-during-install-issues-code-1603/"><u>Master the Technique of Resolving Critical 'Fatal Error During Install' Issues (Code 1603)</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/resolving-image-display-issues-on-your-screen-expert-tips-from-yl-computings-software-solutions/"><u>Resolving Image Display Issues on Your Screen: Expert Tips From YL Computing's Software Solutions</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/step-by-step-guide-transferring-files-on-windows-without-starting-the-operating-system/"><u>Step-by-Step Guide: Transferring Files on Windows Without Starting the Operating System</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-persistent-scanner-errors-insights-from-yl-software-experts/"><u>Troubleshooting Persistent Scanner Errors: Insights From YL Software Experts</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/troubleshooting-tips-why-wont-your-laptop-turn-on-a-guide-by-yl-computing/"><u>Troubleshooting Tips: Why Won't Your Laptop Turn On? A Guide by YL Computing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-iosplusandroid-tips-for-uninterrupted-youtube-viewing/"><u>[New] In 2024, IOS+Android Tips for Uninterrupted YouTube Viewing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlocking-hidden-potential-how-to-use-video-filters-on-zoom/"><u>[New] Unlocking Hidden Potential How To Use Video Filters on Zoom</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-yogic-alchemy-transform-your-body-mind-and-spirit/"><u>[Updated] In 2024, Yogic Alchemy - Transform Your Body, Mind & Spirit</u></a></li>
+<li><a href="https://fox-http.techidaily.com/a-list-mobile-camera-utilities-for-iphone/"><u>A-List Mobile Camera Utilities for iPhone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-mobile-photography-tools-reviewed-iphone-and-android-comparisons/"><u>Best Mobile Photography Tools Reviewed IPhone & Android Comparisons</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/dealing-with-sound-card-malfunctions-effective-solutions-provided-by-yl-software-experts/"><u>Dealing with Sound Card Malfunctions: Effective Solutions Provided by YL Software Experts</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/exploring-audio-configuration-navigating-control-panel-options-yl-computings-guide/"><u>Exploring Audio Configuration: Navigating Control Panel Options - YL Computing's Guide</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/get-fresh-tunes-with-aprils-top-pcdj-tracks-exclusive-downloads-available-at-thevideopoolcom/"><u>Get Fresh Tunes with April's Top PCDJ Tracks - Exclusive Downloads Available at TheVIDEOPOOL.com!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-apple-iphone-13-mini-find-my-friends-no-location-found-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Apple iPhone 13 mini Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-iphone-8-by-drfone-ios/"><u>In 2024, How to Unlock Verizon iPhone 8</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/printer-stuck-how-to-fix-no-print-issues-with-professional-advice-from-yl-software/"><u>Printer Stuck? How to Fix No-Print Issues with Professional Advice From YL Software</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/resolving-printer-issues-effective-strategies-for-handling-print-error-messages-at-yl-technology/"><u>Resolving Printer Issues: Effective Strategies for Handling Print Error Messages at YL Technology</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/techniques-to-enhance-roblox-on-windows-reducing-delay/"><u>Techniques to Enhance Roblox on Windows: Reducing Delay</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/understanding-the-impact-of-overheating-on-system-memory-exploring-how-high-temperatures-affect-ram/"><u>Understanding the Impact of Overheating on System Memory: Exploring How High Temperatures Affect RAM</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/unzipping-files-made-easy-a-step-by-step-guide-for-windows-users-the-digital-pro/"><u>Unzipping Files Made Easy: A Step-by-Step Guide for Windows Users - The Digital Pro</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-narzo-60x-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme Narzo 60x 5G? Fixed | Dr.fone</u></a></li>
 </ul></div>
 
